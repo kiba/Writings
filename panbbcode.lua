@@ -222,7 +222,7 @@ function Blocksep(s)
 end
 
 function HorizontalRule(s)
-  return '--'
+  return '---===---'
 end
 
 function CodeBlock(s, attr)
