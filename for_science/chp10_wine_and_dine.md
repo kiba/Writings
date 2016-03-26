@@ -1,8 +1,10 @@
-[B]chp10_wine_and_dine[/B]
+**chp10_wine_and_dine**
 
-[B]Ami Natsu
-Sidonia[/B]
----
+*****
+
+**Ami Natsu
+Shopping Distract 9, Sidonia**
+
 
 For Security Police agent Ami Natsu, this street was...just like any other shopping district she had seen in her life, given that the she lived on Sidonia for all her life.
 
@@ -42,8 +44,9 @@ Of course, there's no way that the two will eat and talk without being bugged th
 
 Nothing about the couple will escape the eyes and ears of the security service.
 
-[B]James Archer[/B]
----
+*****
+**James Archer**
+
 
 [i]Dear journal,
 
@@ -110,7 +113,9 @@ Ancestors. It was a word that I am getting used to. It's the most favored label 
 "I don't see a problem with that."
 
 That's right, I am sticking it on her tab as much as I could get away with. I am pretty sure it's carte blanche within reason.
----
+
+*****
+**Diana Rose**
 
 Diana found herself with her boyfriend in front of an old war machine, the mecha named Tsugumori, a legendary Type 17 war machine, piloted by a war hero and ace named Hiroki Saitō, with the family name coming first.
 
@@ -124,15 +129,15 @@ Still, the design set off her alarm bells, recalling her expertise as a mechanic
 
 "An anime?" the escort asked.
 
-"Giant robots are a genre of Japanese cartoon," he explained.
+"Giant robots are a genre of Japanese cartoon," he explained. "We're in a fictional universe."
 
-"So you think Sidonia is a fictional universe just because we have humanoid machines we used for robots?"
+"So you think Sidonia is a fictional universe just because we have humanoid machines to wage war on the gauna."
 
-"Why not? Everything that is possible is also fictional."
+"Why couldn't it be? It's an absurd concept!"
 
 "I....don't see the world as fictional."
 
-Diana pulled on her boyfriend, putting her hand over his mouth.
+Diana pulled on her boyfriend's ear, shutting his mouth with her hand.
 
 "I am sorry if we offended you," Diana said, attempting to do damage control. "Sometime my boyfriend didn't really think thing through."
 
@@ -140,12 +145,13 @@ The agent blinked several times, before answering, "not at all."
 
 "MMMPRFHMPPFH," James tried to speak.
 
-Meanwhile, the engineer whispered to him, "please be a bit more considerate," and then let him go.
+"Please be more considerate," the mechanical engineer whispered to James.
 
-"Sorry," he said.
+"Fine," he pouted.
 
----
-[B]Captain Kobayashi[/B]
+*****
+**Captain Kobayashi**
+
 
 Kobayashi entered a dark and cool room with a large screen in the back. Life support units lined up the hallway of the committee, supporting a shadow council who ruled Sidonia from the shadow.
 
@@ -165,4 +171,50 @@ One scoffed. "You must be senile to believe that sort of story. They must be som
 
 A female spoken up, "I don't believe that this is a prelude to an invasion. It sounded too bizarre to be plausible. I believe we must have a contingency."
 
-"As a matter of fact, I do have a contingency in mind," Kobayashi replied. "However, if we are facing an invasion,especially occupation, we must concoct a story for bringing back infantry warfare."
+"As a matter of fact, I do have a contingency in mind," Kobayashi replied. "However, if we are facing an invasion, especially occupation, we must concoct a good enough excuse for bringing back infantry school. But if it turned out that our guests are lying, it will be a vital part of Sidonian's military as it had been for our ancestors."
+
+*They may live, for now.*
+
+For a moment, the entire council forgot their selfish desire for power and simply thought on it.
+
+Finally, number three spoke, "we have zero institutional experience of any kind in this kind of warfare, beyond our service service and only for the protection of VIPs and sensitive areas..."
+
+"Then we'll recruit from the multiverse," Kobayashi replied. "Incentivize them to join, marry a Sidonian, and have children."
+
+"As long as they are not threat to the immortal council," number four warned.
+
+*Then again, maybe not.*
+
+"High on our list are of course, Generals," Kobayashi said. "preferably from Japan if possible for the cultural compatibility, but I am open to generals from other culture. There's other expertise we need to import as well, such as the ancestral couples's engineering expertise. We can get them up to speed on our education system."
+
+"So many changes in so many short time," number one commented. "Too fast."
+
+*Maybe I should just murder them all?*
+
+"The gauna may return," Kobayashi reminded the council.
+
+"Or not," number two suggested. "They hadn't bothered with us for over a century now."
+
+"Did you not forget what happened a century ago? Almost the entire crew of Sidonia were wiped out."
+
+"I see that the plans did not include our priority extraction from this place?" Number five butted in. "We are the immortal committee after all. Without us, the Sidonians are nothing."
+
+The immortal captain sneered at the sheer arrogance. The people of this ship can handle themselves very well without the immortals.
+
+But the mutter of assent poured into the chamber.
+
+*Congratulation. You just signed your own death warrant.*
+
+"I have other priorities in mind than our own survival," the captain said. "Sidonia's survival is more important than any single individual in this room. Humanity demanded nothing more than our dedication to this cause. The request in change in priority is denied."
+
+The chamber erupted into mad fury as the Kobayashi calmly walked outside of the room. They would immediately vote to relieve her position as the Captain of this ship. They would not be able to carry out their will.
+
+The surprise scream of the council members barely reached beyond the door as Ochiai carried out the assassination of the entire committee. There was no trial, no judge, and no jail. Nothing resembling any process of justice or the protection of rights.
+
+Finally, Ochiai walked out from his surprise ambush.
+
+"It is done," the cyborg said with finality. "All immortal ship committee are dead. I will carry out the extraction of useful data from their exocortex." The cyborg walked back into the room to carry out his grisy duty of looting from the youthful bodies of the dead.
+
+"Finally, those wretched fools are gone," she said to no one in particular. Feeling that her coup was finished at last, she phoned Lala Hiyama.
+
+"Kobayashi? Why are you calling so late," Lala greeted.
