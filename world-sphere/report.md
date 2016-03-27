@@ -1,8 +1,9 @@
 # Setting: The Sphere
-**TOP SECRET, EYES ONLY**
-**Portal Exploration Command**
-**Universe ID: ImMPvsRRW1SrYsZJktBc**
-**Report ID: vBfxWzgdZHBwekVkqcXV**
+
+* **TOP SECRET, EYES ONLY**
+* **Portal Exploration Command**
+* **Universe ID: ImMPvsRRW1SrYsZJktBc**
+* **Report ID: vBfxWzgdZHBwekVkqcXV**
 
 In our survey of this universe, we discovered what appeared at first to be a dyson sphere, designated as Alpha-Delta-Zero-Niner-Gamma.
 
@@ -28,6 +29,7 @@ We noted that the sphere continues to expand at a constant rate of about a jupit
 
 
 ## **Infrastructure**
+
 To our fortune, there are places within the sphere favorable to the organic bodies of human beings, without requiring environmental protection suits for survival. It was to our fortune that the network of habitable spaces extended across the sphere, allowing us general access, if not completely extensive or in depth. It would be impossible to explore all of it in a reasonable timeframe anyway.
 
 Below are parts of the sphere infrastructure we encountered.
