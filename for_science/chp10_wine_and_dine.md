@@ -2,11 +2,11 @@
 
 *****
 
-**Ami Natsu
+**Mayumi Yoshizawa
 Shopping Distract 9, Sidonia**
 
 
-For Security Police agent Ami Natsu, this street was...just like any other shopping district she had seen in her life, given that the she lived on Sidonia for all her life.
+For Security Police agent Yoshizawa Mayumi, this street was...just like any other shopping district. There was absolutely nothing special about it, for it was part of her life for as long she remembered.
 
 But for the ancestral couple, it was the same yet different. In some way, it might as well not be on a starship traveling between star systems.
 
@@ -16,7 +16,7 @@ At the same time, there were difference. Everyone, for instance, all virtually w
 
 No one, not even the ancestral pairs, was unique to this. It was just the fact of life on the last known bastion of humanity.
 
-But for officer Natsu, she wasn't thinking much, other than what she had witnessed and took part in yesterday. Simply put, her team were ordered to conduct 'espionage' against citizens of a foreign power, for the purpose of 'national security' and 'security of humanity'.
+But for officer Yoshizawa, she wasn't thinking much, other than what she had witnessed and took part in yesterday. Simply put, her team were ordered to conduct 'espionage' against citizens of a foreign power, for the purpose of 'national security' and 'security of humanity'.
 
 Behind all that nice-sound justification was the fact that she invaded someone's privacy last night without a warrant or a court hearing, a virtually unprecedented activity.
 
@@ -76,7 +76,7 @@ The captain might be one. She might be the same person. Or she might be controll
 
 Our escort, a beautiful woman who looked to be in her mid-twenties, looked somewhat antsy and nervous. I swore that I must had seen one of her blushes, though I wouldn't know what was it about.
 
-When it came to ordering food, we let Natsu took the lead in talking to the waiter, and giving us recommendations. All of that sounded really good, and I wouldn't know where to start. When confronted with such a situation, I would try them at out at random, with as much money I am willing to burn. In this case, it would be all on our escort' tab. My girlfriend on the other hand, slavishly followed the lady's suggestion.
+When it came to ordering food, we let Miss Yoshizawa took the lead in talking to the waiter, and giving us recommendations. All of that sounded really good, and I wouldn't know where to start. When confronted with such a situation, I would try them at out at random, with as much money I am willing to burn. In this case, it would be all on our escort' tab. My girlfriend on the other hand, slavishly followed the lady's suggestion.
 
 "So, what is it like to live on Earth?" the agent asked.
 
@@ -84,7 +84,7 @@ When it came to ordering food, we let Natsu took the lead in talking to the wait
 
 "Ditto. What he said." Diana replied. "Is poverty a thing here?"
 
-"A thing? I think not, or at least in the way that you think about it," Natsu answered. "Nobody went hungry or lack for shelter. At the same time, nobody can be obscenely wealthy as in Earth history."
+"A thing? I think not, or at least in the way that you think about it," Yoshizawa answered. "Nobody went hungry or lack for shelter. At the same time, nobody can be obscenely wealthy like in Earth history."
 
 "Make sense, given that Sidonia is such a small world," I noted.
 
@@ -117,7 +117,7 @@ That's right, I am sticking it on her tab as much as I could get away with. I am
 *****
 **Diana Rose**
 
-Diana found herself with her boyfriend in front of an old war machine, the mecha named Tsugumori, a legendary Type 17 war machine, piloted by a war hero and ace named Hiroki Saitō, with the family name coming first.
+Diana found herself with her boyfriend in front of an old war machine, the mecha named Tsugumori, a legendary Type 17 war machine, piloted by a war hero and ace named Hiroki Saito, with the family name coming first.
 
 This beautiful machine sat very still, like a statue, almost if it was a scuplture.
 
