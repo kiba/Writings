@@ -1,3 +1,3 @@
 #!/bin/bash
 
-pandoc $1 -f markdown -t panbbcode.lua | pbcopy
+pandoc $1 -f markdown -t xenforo.lua | pbcopy
