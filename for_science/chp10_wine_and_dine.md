@@ -209,12 +209,67 @@ But the mutter of assent poured into the chamber.
 
 The chamber erupted into mad fury as the Kobayashi calmly walked outside of the room. They would immediately vote to relieve her position as the Captain of this ship. They would not be able to carry out their will.
 
-The surprise scream of the council members barely reached beyond the door as Ochiai carried out the assassination of the entire committee. There was no trial, no judge, and no jail. Nothing resembling any process of justice or the protection of rights.
+The noise of gunplays eurpted into the chamber interrupting the council's discussion.
 
-Finally, Ochiai walked out from his surprise ambush.
+The surprised scream of the council members barely reached beyond the door as Ochiai carried out the assassination of the entire committee. There was no trial, no judge, and no jail. Nothing resembling any process of justice or the protection of rights.
+
+Finally, Ochiai walked out from his surprise ambush of the immortals.
 
 "It is done," the cyborg said with finality. "All immortal ship committee are dead. I will carry out the extraction of useful data from their exocortex." The cyborg walked back into the room to carry out his grisy duty of looting from the youthful bodies of the dead.
 
-"Finally, those wretched fools are gone," she said to no one in particular. Feeling that her coup was finished at last, she phoned Lala Hiyama.
+"Finally, those wretched fools are gone," she said to no one in particular. Feeling that her coup was finished at last, she phoned Hiyama Lala.
 
-"Kobayashi? Why are you calling so late," Lala greeted.
+"Kobayashi? Why are you calling so late?" Lala asked.
+
+"Hiroki Saito and his clo-, *son* will no longer be threatened."
+
+Next was a long silence between the two of them on the phone.
+
+"What do you mean by that?" the bear woman demanded. "Just what did they told you?"
+
+"The Immortal Ship Committee council is dead. I ordered their assassination."
+
+"KOBAYASHI" the bear roared the captain's name with utter fury.
+
+The deed was done, and Kobayashi smeared her hand forever with the blood of her enemy, having orchestrated the first and only coup in Sidonia's history, a bloody and brief affair in which she had deliberately through Orchiai as her instrument, murdered her fellow humans.
+
+The bear continued to scream invectives of bodily excrement, invoking the names of ancestors, the gods of various religions, threat of murder, defenestration, bodily harm.
+
+It lasted an impressive five minutes. She never seen her friend acted this way before.
+
+"You're done?" Kobayashi said. "It was a long time coming. It was either us, or them. Not only I saved Hiroki from an ever present danger, I also saved you from the possibility of assassination from them. You knew too much."
+
+"But...but, this is wrong!"
+
+"If it's so wrong, you would had hung up, stormed to the Sidonian parliament, and hung me to dry, while risking yourself to prosecution as well. But we know that is not going to happen."
+
+"I hate your methods..."
+
+"On the contrary, I am perfectly well in my right to eliminate them. They are a shadow cabal that cared nothing but for their own survival and power. And now I had taken control."
+
+"I'll be watching you!"
+
+"Thanks, that's all I need in a friend. There's something that I need to discuss with you. Will you come to my chamber first thing in the morning?"
+
+"Yes," the bear answered.
+
+The conversation's over, so the two old friends hung up their phone, and the captain reflected once more on her coup. She eliminated virtually all the immortals, and only six of them were left on this ship, one's a child, and not counting Hiroki, who had ceased to take any medicine for the last hundred of year or so.
+
+That was one topic among many she will be discussing with Hiyama Lala.
+
+
+*****
+
+**James Archer**
+
+Diana and I both dismissed the mecha design. Our escort was however, insisted on correcting our dated and misconceived views. So she dragged us to a simulator room and a redhead engineer.
+
+Said redhead engineer stood to lecture and answered our questions on the fluff on why the mecha was the most sensible design in space combat despite the immense complexity and the disadvantages that entailed.
+
+It's all perfectly logical of course, addressing any and all objections we both had on mechs.
+
+"I am done," the redhead said. "Any more questions?"
+
+"But come on! This is complete and utter bullshit. Bullock!" I complained. I got elbowed by Diana.
+
+"Any specific objections?" Sasaki said with a furious glare at me.
