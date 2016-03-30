@@ -2,8 +2,9 @@
 
 *****
 
-**Mayumi Yoshizawa
-Shopping Distract 9, Sidonia**
+**Mayumi Yoshizawa**
+
+**Shopping Distract 9, Sidonia**
 
 
 For Security Police agent Yoshizawa Mayumi, this street was...just like any other shopping district. There was absolutely nothing special about it, for it was part of her life for as long she remembered.
@@ -45,6 +46,7 @@ Of course, there's no way that the two will eat and talk without being bugged th
 Nothing about the couple will escape the eyes and ears of the security service.
 
 *****
+
 **James Archer**
 
 
@@ -113,6 +115,7 @@ I thought about correcting her, but to their perspective, we were time travelers
 That's right, I am sticking it on her tab as much as I could get away with. I am pretty sure it's carte blanche within reason.
 
 *****
+
 **Diana Rose**
 
 Diana found herself with her boyfriend in front of an old war machine, the mecha named Tsugumori, a legendary Type 17 war machine, piloted by a war hero and ace named Hiroki Saito, or Saito Hiroki if you went by the western naming order.
@@ -148,6 +151,7 @@ The agent blinked several times, before answering, "not at all."
 "Fine," he pouted.
 
 *****
+
 **Captain Kobayashi**
 
 Kobayashi entered a dark and cool room, with a large screen in the back. Life support units lined up the hallway of the committee, supporting a shadow council who influenced Sidonia from the dark.
@@ -168,7 +172,7 @@ A female spoken up, "I don't believe that this is a prelude to an invasion. It s
 
 "As a matter of fact, I do have a contingency in mind," Kobayashi replied. "This ship won't be all that useful to them if it is destroyed in ship-to-ship combat. Boarding operations are the most likely course of action. The best we could do in the short term is to step up the production of small arms and combat equipment. In the long term, we'll want to set up an infantry school, regardless of the actual outcome."
 
-*They may live, for now.*
+[i]They may live, for now.[/i]
 
 For a moment, the entire council forgot their selfish desire for power and simply thought on it.
 
@@ -178,13 +182,13 @@ Finally, number three spoke, "we have zero institutional experience of any kind 
 
 "As long as they are not threat to the immortal council," number four warned.
 
-*Then again, maybe not.*
+[i]Then again, maybe not.[/i]
 
 "High on our list are of course, Generals," Kobayashi said. "preferably from Japan if possible for the cultural compatibility, but I am open to generals from other culture. There's other expertise we need to import as well, such as the ancestral couple's engineering expertise. We can get them up to speed on our education system."
 
 "So many changes in so many short time," number one commented. "Too fast."
 
-*Maybe I should just murder them all?*
+[i]Maybe I should just murder them all?[/i]
 
 "The gauna may return," Kobayashi reminded the council.
 
@@ -198,7 +202,7 @@ The immortal captain sneered at the sheer arrogance. The people of this ship can
 
 But the mutter of assent poured into the chamber. It was the last straw for her, as they schemed on how to extract themselves without any consideration for the rest of the crew.
 
-*Congratulation. You just signed your own death warrant.*
+[i]Congratulation. You just signed your own death warrant.[/i]
 
 "I have other priorities in mind than our own survival," the captain said. "Sidonia's survival is more important than any single individual in this room. Humanity demanded nothing more than our dedication to this cause. The request in change in priority is denied."
 
@@ -217,6 +221,8 @@ Finally, Ochiai walked out from his surprise ambush of the immortals.
 "Kobayashi? Why are you calling so late?" Lala asked.
 
 "We need to meet at the cafe, tomorrow," Kobayashi answered. They weren't going to meet at the cafe, but in Kobayashi's chamber. It was a code between them, and only between the two and no one else.
+
+Afterward, she hung up the phone.
 
 Tomorrow, there will be a reckoning with the dorm mother of the Academy. Her friend likely won't approve of her action to kill off the committee.
 
@@ -258,11 +264,11 @@ Sure enough, once I entered the cockpit, it was even more confusing, with the co
 
 "Let me try without the tutorial," I answered.
 
-"You're going to screw up," she exaspperated.
+"You're going to screw up," she exasperated.
 
 "No problem! It's only a simulation."
 
-As soon as the robot was ready to launched. I experimentaly pushed the joystick ahead, only for nothing to happen.
+As soon as the robot was ready to launched. I experimentally pushed the joystick ahead, only for nothing to happen.
 
 "Damn, it. What did I wrong?"
 
