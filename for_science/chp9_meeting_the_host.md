@@ -174,41 +174,42 @@ And I am walking with my escorts to my temporary housing, they said. But I wasn'
 
 No, I had to waltz into the territory of nations and powers I do not even understand. First, killer bots, now scary masked ninjas.
 
-First, they had compounded my machine, probably studying it with their brand of mad scientists and engineers. Next, they 'interviewed' me to death, in which I spoke anything and everything, without any concern for secrecy. First, it was in incomprehensible Japanese, then broken English.
+First, they had compounded my machine, probably studying it with their brand of mad scientists and engineers. Next, they 'interviewed' me to death, in which I spoke almost anything and everything, without any concern for secrecy. First, it was in incomprehensible Japanese, then broken English, and finally native English.
 
 No god damn handy universal translator.
 
-I shouldn't had done that. I may had jeopardize the safety of my Cylon helper and the lives of Earthlings in the process.
+I shouldn't done what I did. I may just jeopardized the safety of my Cylon helper and the lives of my fellow Earthlings in the process.
 
-For all they know, they could be an xenophobic people looking for their next conquest. That didn't seem to be the case at all, at least so far.
+For all I know, they could be an xenophobic people looking for their next conquest. That didn't seem to be the case at all, at least so far.
 
-Anyway, it was god damn good thing that they knew English and the fact that I am American, though most references were beyond me. With the knowledge I had, I was able to confirm for that I am from the early 21st century.
+Anyway, it was god damn good thing that they knew English and the fact that I am American, though most references were beyond me. With the information that they received from me, they were able to confirm that I was really from the twenty-first century.
 
 We stopped.
 
-Rapid sounds of Japanese were exchanged between four individuals. Finally, the door opened up to reveal my girlfriend.
+Rapid sounds of Japanese were exchanged between the four individuals. Finally, the door opened up to reveal my girlfriend.
 
-"Here we are, a surprise," one of them said. "Your girlfriend."
+"Your girlfriend," one of them announced.
 
-She immediately hugged me.
----
-[B]Captain Kobayashi[/B]
+Diana rushed out and hugged me.
+
+***
+**Captain Kobayashi**
 
 "Well? Let see what you have to say, Chief Sasaki," Kobayashi said.
 
 The trio of females in this meeting were without the masks. The other two women both knew each other for hundred of years. But to an Earthling, they looked far too young to be the senior leadership of this arkship.
 
-On the right of Kobayashi facing her was the chief of engineering, Sasaki, the other woman on the left was Doctor Yure Shinatose, chief of genetic engineering.
+On the right of Kobayashi facing her was the chief of engineering, Sasaki, the other woman on the left was Doctor Yure Shinatose, chief of genetic engineering and medicine.
 
-"The trans-dimensional machine, the part that I can examine at least, was very crude," Sasaki began bluntly. "There's not much to say other than there were effort to build a self-contained environment for survival in dangerous environmental condition. Everything else was 21st technologies as far as we can examine. Their phones and tablets matched up our historical record perfectly to a 't', all the way down to the micrometer."
+"The trans-dimensional machine, the parts that I can examine at least, were very crude," Sasaki began bluntly. "There's not much to say other than that there were effort to build a self-contained vessel for survival in dangerous environmental condition. Everything else was early twenty-first century technologies as far as we can examine. Their phones and tablets matched up our historical record perfectly to a 't', all the way down to the micrometer."
 
-"So, we're dealing with 21st century humans after all."
+"So, we're dealing with twenty-first century humans after all."
 
 "Based on the evidence shown to me, yes."
 
-"And, Doctor Sinatose?"
+"And Doctor Sinatose?"
 
-"Ah. I sequence their genome, and using the databank, we're able to trace it all the way back to the early 21st century. As expected, there's imperfection and bugs in their genome. In particular, patient James Archer is expected to die of skin cancer in about thrity years, give or take a few years. However, the redhead natural-born, Diana Rose, is expected to live to her eighties, if there's no accident. My group detected no artificial DNA sequences in both of them, or any other bioengineering modification, not even Higg photosynthesis which had been made standard for the entire Sidonian population. They're both one hundred percent natural-born. I would recommend immediate gene therapy to remove most if not all gene-related health problems exhibited by both."
+"Ah. I sequenced their genome, and using the databank, we were able to trace it all the way back to the early 21st century. As expected, there's imperfection and bugs in their genome. In particular, patient James Archer is expected to die of skin cancer in about thirty years, give or take a few years. However, the redhead natural-born, Diana Rose, is expected to live to her eighties, if there's no accident. My group detected no artificial DNA sequences in both of them, or any other bioengineering modification, not even Higg photosynthesis which had been made standard for the entire Sidonian population. They're both one hundred percent natural-born. I would recommend immediate gene therapy to remove most if not all gene-related health problems exhibited by both."
 
 "Spoken like a true medical doctor, Shinatose, but I think you're forgetting something."
 
@@ -218,4 +219,4 @@ On the right of Kobayashi facing her was the chief of engineering, Sasaki, the o
 
 "I don't see how that's relevant."
 
-"it is a bargaining chip, and that's all I cared about. If we expect to acquire their trans-dimensional travel technology and gain their cooperation, then we need to give something that they would want."
+"It is a bargaining chip, and that's all I cared about. If we expect to acquire their trans-dimensional travel technology and gain their cooperation, then we need a strong hand."
