@@ -1,30 +1,28 @@
-[B]Chp9_Meeting_the_Host[/B]
----
-[B]James Archer[/B]
+**Chp9_Meeting_the_Host**
 
-It was a good thing that we had the barf bags handy. Because we immediately started to gag from the side effect of the jump drive.
+***
 
-The various upgrades to trans-dimensional machine was only a marginal improvement in term of reducing nausea.
+**James Archer**
 
-We lost our lunches in short order.
+It was a good thing that we had the barf bags handy. Predictably, we barfed from the side effect of the jump drive. It turned out that the various upgrades to the trans-dimensional machine was only a marginal improvement in term of reducing nausea.
 
-And as soon as my girlfriend and I finished barfing, we saw lights shining from our window.
+In short order, an unpleasant smell filled the brown bags. Since, we were feeling nauseous, it was rather difficult to focus on the task of sealing those bags inside a plastic container.
 
-Needless to say. It didn't look good. There were men outside in white clothes and they were all masked. It reminded me of a certain manga.
+We didn't know how long, but lights started shining into our window.
+
+Needless to say. It didn't look good. There were men outside in white clothes and they were all masked like they were special ops ninjas from a manga.
 
 "Intruders, get out of the vehicle and put your hands up in the air," one of them shouted in Sidonian Japanese.
 
-Neither of us understood what they were saying.
+Neither of us understood what they were saying. It was just moonspeaks to us.
 
 I sighed in annoyance at having to learn yet another language.
 
-"We should get out," she said. "Make no sudden movement."
+"We should get out," she said. "And make no sudden movement."
 
-I nodded.
+I nodded in agreement.
 
-I opened the door and walked out slowly with my hands up in the air.
-
-I was fricking tired, yet I had to make no sudden movement.
+I opened the door and walked out slowly with my hands up in the air, in the midst of my tiredness.
 
 "Who are you? State your business!" the man to the side of me said.
 
@@ -32,28 +30,31 @@ I was fricking tired, yet I had to make no sudden movement.
 
 Slowly, my lover came outside. She too, held her hands up.
 
-"They're not Sidonian," one of them said.
+"They're not Sidonians," one of them said.
 
-"Quiet," the commander in charge warned.
+"Quiet," the commander in charge warned his subordinate.
 
-Suddenly, I drifted into unconsciousness and fell down to the floor.
----
-[B]Diana Rose[/B]
+Suddenly, I drifted into unconsciousness and fell down to the floor, my face striking the metallic floor quite hard.
+
+***
+
+**Diana Rose**
+
 Diana groaned from the hit of tranquilizer darts aimed at her face, which had dosed her to sleep.
 
-She stirred from the sleep, opening up her eyes to a bland metal ceiling and light.
+She stirred from the sleep, opening up her eyes to a bland metal ceiling with built-in lighting fixture.
 
-"Where the hell am I?" she said, not quite remembering the event that led up to her ending here.
+"Where the hell am I?" she said, not quite remembering the event that led her to this state and place.
 
 She sat up, taking in the view of her surrounding.
 
-It was a room, of a sort. There were no visible doors, actually, and only the barest of accommodation. Almost everything seemed to be made of stainless steel, and every single furniture present were welded to the floor.
+It was a room, of a sort. There were no visible doors, actually, and only the barest of accommodations. Almost everything seemed to be made of stainless steel, with the least amount visible weldings, rivets, or cuts they can get away with.
 
-There was a sink with a mirror, toilet, a table and a chair, a flat top that obviously meant to be a bed.
+There was a sink with a mirror, toilet, a table and a chair, a flat top that obviously meant to be a bed. All seemly were not to be yanked.
 
-And it was extremely clean, as it had never been lived in.
+And it was extremely clean with absolutely no dust as far as the eye can see. There was no evidence that anybody ever lived here.
 
-It was absolutely clear that she was here not as a guest, but a prisoner. Possibly in a room for a prisoner that someone would want to throw away the key forever for.
+It was absolutely clear to her that she was here not as a guest, but a prisoner. Possibly in a room for a prisoner that someone would want to throw away the key forever for.
 
 But who?
 
@@ -63,17 +64,17 @@ What the hell she had gotten herself in?
 
 In hindsight, doing trans-dimensional travel with her significant other will get her into significant trouble. But at the same time, she loved the idiot too much not to abandon him.
 
-She was scared for his life, especially against the force that had turned her boyfriend's life upside down.
+She was scared for his life, especially against the forces that had turned her boyfriend's life upside down.
 
-Diana could had gotten help, but like Delta, she was afraid of the consequence. So long as they keep this thing a secret, he wouldn't get any help from anybody, but at the same time, she was afraid of what might happen.
+Diana could had gotten help, but like Delta, she was afraid of the consequence. But on the other hand, so long as they keep this thing a secret, he wouldn't get any help from anybody. So the status quo was preserved.
 
-And now, she was paying the consequence of traveling into the unknown with her loved one to ensure his safety, since she didn't think much of anything else, trusting that everything was going to be alright somehow.
+And now, she was paying the consequence of doing nothing, and to travel blindly. She should had thought more than preparing for travel rather than trusting that everything was going to be alright somehow.
 
-Clearly, not everything was going right.
+Clearly, not everything was alright.
 
 Without any warning, a gap in the wall was created, leading to a hallway outside. A person was already present in that hallway.
 
-This person and one more of the masked security agents moved inside the room.
+This person and one more of the masked security agents walked inside.
 
 "We are sorry for this accommodation," a security agent said in accented English, with the voice of a female. "You must understand, the area you entered in was restricted to anybody without the proper security clearance. Now, if you follow us, you will receive a new accommodation that should be more amicable to you, but you will still be restricted in your freedom of movement until we can verify your story."
 
@@ -81,23 +82,21 @@ This person and one more of the masked security agents moved inside the room.
 
 "If you cooperate with us, you will see him," the male security agent said. "Please don't make it more difficult than it needed to be."
 
-Diana wasn't going to lash out. As far as she was concerned, she had no leverage and no way in hell that she was going to escape this place, whatever this place was.
+Diana wasn't going to lash out. As far as she was concerned, she was at their absolute mercy. No way in hell that she was going to escape this place, whatever this place was. This was not a movie, or a manga, or some novel. This was real life, however surreal it had become.
 
 "Alright, I'll cooperate, for now," Diana said.
 
-"Great. Please follow me, miss," the masked female figure said.
+"Thank you. Please follow me, miss," the masked female figure said.
 
 As the agent moved, Rose followed her lead.
 
 Meanwhile, the male followed behind.
 
-Immediately, she noticed the sword scabbard and gun hostler on the person she's following.
+Immediately, she noticed the sword scabbard and gun hostler on the person she's following. There was no escaping this. She would most definitely be dead or worse if she tried anything.
 
-There was no escaping this. She would most definitely be dead or worse if she tried anything.
+Time passed as she went up in an elevator with them, to god knows where. But it felt like an eternity.
 
-Time passed as she went up in an elevator with them, to god knows where. But it felt like an agony.
-
-Eventually, the wayward traveler and her escorted arrived at a more inviting abode, complete with actual bedsheet, shelves, pillows, cup remen, and other creature comfort, including a shower. However, nowhere had she gone outside the whole time.
+Eventually, the wayward traveler and her escorted arrived at a more inviting abode, complete with actual bedsheet, shelves, pillows, cup remen, and other creature comforts, including an actual restroom. However, nowhere had she gone outside the whole time.
 
 And she had kept track the entire time, estimating the distance travel, and it wasn't inconsiderable. Somewhere around three kilometers.
 
@@ -111,27 +110,27 @@ This place was big. Very big.
 
 "Yes. Rose is my last name, and Diana is my first name."
 
-"Well, then, Miss Rose, someone will be there shortly to ask you questions. Answer the question truthfully, and if it all goes well, you'll get to see your beloved."
+"Well, then, Miss Rose, or Rose-san in our culture, someone will be there shortly to ask you questions. Answer the question truthfully, and if it all goes well, you'll get to see your loved one."
 
 "Got it."
 
-"Good. We'll be right outside if you need us."
+"We're pleased that you understand. We'll be right outside if you need us."
 
 The two security agents went outside.
 
-Instead of being trapped in an uninviting place, Diana was now trapped in what resembled an apartment, sans electronics.
+Instead of being trapped in an uninviting place, Diana was now trapped in what resembled an apartment, sans electronics of any kind.
 
 Great, just great.
 
-Uncertainly inevitably continued to occupied her mind.
+Uncertainly inevitably continued to occupy her mind.
 
-What were they're doing to her boyfriend? Is he OK? What about the machine? Are they planning to mount an invasion?
-
-Why are the security agents wearing ivory masks? If anything, it made them even more sinister, as opposed to having a visible face.
+What were they're doing to her boyfriend? Is he OK? What about the machine? Are they planning something nefarious? Why are the security agents wearing ivory masks? If anything, it made them even more sinister, as opposed to being more welcoming.
 
 But as she waited, there were no answers forthcoming.
----
-[B]Captain Kobayashi[/B]
+
+***
+
+**Captain Kobayashi**
 
 It had been thousand of years since humanity left the solar system after the destruction of Earth by a terrifying transforming alien race known only as the [I]Gauna[/I].
 
