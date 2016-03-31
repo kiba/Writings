@@ -1,32 +1,38 @@
-Dust was all kind of bullshit. It was so much bullshit that Remnans cannot think without using dusts in some form or another.
+# **Chp5 Chemcial Hijinks**
 
-That wasn't to say that chemistry didn't exist. They do, but they are strangled by dust. Almost any chemical process apart from the most basic required dusts of some kind to do the job.
+Dust was all kind of bullshit. It was so much bullshit that Remnan engineers cannot think without using dusts in some form or another. That wasn't to say that chemistry didn't exist. They do, but they are strangled by dust. Almost any chemical process apart from the most basic required dusts of some kind to do the job.
 
-So Sam was forced to reinvent everything from scratch, without Dust. He had a lot of help from his photographic memory of the Alchemy books he read, but his memories apparently didn't include any information from wikipedia on how to do chemistry.
+So Sam was forced to reinvent chemistry from scratch. He had a lot of help from his photographic memory of the dust chemistry books he read, but his memories apparently didn't include any information from wikipedia on how to do chemistry. Worse, Sam wasn't a chemist at all.
 
-Not that wikipedia was actually suited to that kind of things.
+Not that wikipedia was actually suited to that kind of things. By the way, what the hell was wikipedia? It must be an encyclopedia of some kind.
 
-By the way, what the hell was wikipedia? It must be an encyclopedia of some kind.
+In any case, Sam Xiao Long was apparently a walking and talking Earth historical database, of which wikipedia was only one source among many, and only as a starting point. There were concepts hidden and embedded into his knowledge, but they weren't exactly recipes.
 
-In any case, Sam Xiao Long was apparently a historical database, of which wikipedia was only one source among many, and only as a starting point. There were concepts hidden and embedded into his knowledge, but they weren't exactly recipes.
+He knew what was important, but not how those inventions work in details. Despite the photographic memories, it did not actually mean that he understood what he was supposed to do.
 
-He knew what was important, but now how to actually make one.
+Nonetheless, Sam found himself in a dusty shed working out a chemical process to synthesize rocket fuel.
 
 "What ya doing, bro?" Ruby asked.
 
-"Making rocket fuels," Sam answered.
+"Wha!?" Sam shouted. "Rube, you almost scared me!"
 
-"Really? What dust you're using?"
+"Sorry!" she sincerely apologized.
 
-"I am not using any dusts."
+"Anyway, for your information, I am making rocket fuels."
 
-"Wha? How can that be?"
+"Really? What dust forumulation you're using?"
 
-"Tree burns. And they don't require dust. Same thing here. I am synthesizing methane. At least I think I am?"
+"Silly Ruby, I am not using any dust."
+
+"That's impossible! You can't do anything without dust!"
+
+"That's where you're wrong, Ruby. Have you ever notice how firewoods and trees burn? They don't require dust. Same principle apply here. You can do things without dust."
+
+"I think you're baloony."
 
 Then something ignited.
 
-"FUCK!" I yelled. "Get out of here!"
+"FUCK!" Sam yelled. "Get out of here!"
 
 Ruby pulled Sam out of the shed, using her semblance, pushing both away at a safe distance.
 
