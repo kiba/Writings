@@ -1,7 +1,6 @@
-**Chp9_Meeting_the_Host**
+# **Chp9 Meeting the Host**
 
 ***
-
 **James Archer**
 
 It was a good thing that we had the barf bags handy. Predictably, we barfed from the side effect of the jump drive. It turned out that the various upgrades to the trans-dimensional machine was only a marginal improvement in term of reducing nausea.
@@ -37,7 +36,6 @@ Slowly, my lover came outside. She too, held her hands up.
 Suddenly, I drifted into unconsciousness and fell down to the floor, my face striking the metallic floor quite hard.
 
 ***
-
 **Diana Rose**
 
 Diana groaned from the hit of tranquilizer darts aimed at her face, which had dosed her to sleep.
@@ -129,56 +127,52 @@ What were they're doing to her boyfriend? Is he OK? What about the machine? Are 
 But as she waited, there were no answers forthcoming.
 
 ***
-
 **Captain Kobayashi**
 
-It had been thousand of years since humanity left the solar system after the destruction of Earth by a terrifying transforming alien race known only as the [I]Gauna[/I].
+Thousand of years ago, a race of aliens known only as the [I]Gauna[/I], split the Earth in half. Since then, humanity left the solar system in massive arkships designed to carry them across the void to other solar systems, in the hope of outrunning the Gauna and finding a new home amongst the stars.
 
-Since then, humanity had lived in massive arkships designed to carry them across the void to new world, in the hope of outrunning the Gauna and finding a new home among the stars, but [I]Sidonia[/I] was now the only known human settlement still standing in the known universe. Consequently, she may be the last bastion of humanity.
+But Sidonia was now the only known human settlement still standing in the known universe, and she may be the last bastion of humanity.
 
-But today, Captain Kobayashi, commander and leader of the ship, was confronted by two anomalous individuals, seemly from the arachic early twenty-first century. At first, she held hope that they were from another seedship.
+But today, Captain Kobayashi, commander and leader of the ship, was confronted by two anomalous individuals, seemly from the archaic early twenty-first century. At first, she held hope that they were from another seedship.
 
-However, interrogation revealed that either James Archer was insane, or was really from the twenty-first century, an American.
+However, interrogation of the individual named James Archer failed to reveal the location of another seedship. Instead, he may be a bona-fide twenty-first century human, hailing from an old empire named the United States of America. The other option was insanity.
 
-Time travel was emphatically denied by this gentleman, though trans-dimensional travel was affirmed as the method of travel, the implication being that he could travel across realities.
+He emphatically denied the use of time travel, saying that it violated causality, though he affirmed trans-dimensional travel as the method of travel. That wasn't prohibited by the law of physics as anybody knew, but there was no theories on how to travel between realities.
 
-Currently, the captain was overlooking an interrogation of James' alleged girlfriend, Diana Rose from a bugged abode. It took a short while to prepare, but the apartment was now bugged with all sort of equipment to record the interaction for Sidonia's knowledge. Normally, that wasn't done except in a criminal investigation, but this was simply unprecedented. There was no other nation-state actor to spy on or do intelligence works. Such notion had disappeared thousand of years ago, remaining alive only in stories and historical document, until now.
+Currently, the captain was monitoring an interrogation of this gentleman's alleged girlfriend, Diana Rose, who was answering questions in a bugged abode. It took a short while to prepare, but the apartment was now bugged with all sort of equipment to record the interaction for Sidonia's knowledge. Normally, that wasn't done except in a criminal investigation, but this was simply unprecedented. There had never been any human aliens to spy on, until now. Intelligence work and espionage as an enterprise had disappeared since the destruction of the solar system, such notions only remaining alive in stories and historical records, until now.
 
-The interview continued smoothly so far, and there were no inconsistency to be detected in the female answer.
+The interview continued smoothly so far, and there were little to no inconsistency in the female's answer.
 
 "Fascinating," the captain said. "Don't you think?" She asked her assistant and confidant, the cyborg, Ochiai.
 
-"Yes, it appeared that they acted like our ancestors, in what recording and anthropological knowledge we have left of our 'American' side of the family."
+"Yes. It appeared that they were very much like our ancestors, in what recording and anthropological knowledge we have left of the ancient United States."
 
-To the duo, it was like interacting with ancient Japanese, before the dawn of the 'modern' era on Earth.
+"I am more interested in this trans-dimensional travel capability than examining the progenitor members of ancient Earth civilization, fascinating as they are. We must have it." she said it with hunger. Left unsaid was if this was a trick or a prelude to an invasion, or something worse.
 
-"Still, this trans-dimensional travel capability, we must have it," she said it with hunger. Left unsaid was if this was a trick or a prelude to an invasion, or something worse.
-
-But if they were able to fake it that well, then there may be absolutely no hope for Sidonia in term of survival.
-
-One do not plan for a sudden blackhole singularity appearing inside of the arkship at all. An instant death meant that no plan will achieve any sort of success.
+But if they were able to fake it that well, then there may be absolutely no hope for Sidonia in term of survival. One do not plan for a sudden blackhole singularity appearing inside of the arkship at all. An instant death meant that no plan will achieve any sort of success.
 
 "If we can adapt the technology to our purpose, we may be able to find a safe haven for Sidonian," Ochiai deduced.
 
-"Yes. A safe haven should anything went wrong, and a new colony. We will accomplish the goal and purpose of this arkship, though in a way that was unimagined.
+"Yes. A safe haven should anything went wrong, and a new colony. We will accomplish the goal and purpose of this arkship, though in a way that would be unimaginable to the founder of this ship."
 
 If that was the new destiny, she would take it, regardless of the actual consequence, because it would ensure humanity's survival.
 
 "Though, the survival of the human race was never really in doubt now that I think about it," Kobayashi remarked.
 
-"Yes, proof of the multiverse," Ochiai said. "But our dream and wishes are still the same. We are still working to preserve what's left of this branch of humanity."
+"If this turned out to be the real deal, then it is proof of the multiverse," Ochiai said. "But our dream and wishes are still the same. We are still working to preserve our heritage and our civilization, not anybody else."
 
 "Indeed."
----
-[B]James Archer[/B]
+
+***
+**James Archer**
 
 Once again, I had no idea of where I am, who they are, or what year it was, if it was even applicable.
 
-I came across a Japanese society, or something resembling one. At least, I am fairly sure that was.
+I came across a Japanese society, or something resembling one. At least, I am fairly sure that it was.
 
 And I am walking with my escorts to my temporary housing, they said. But I wasn't exactly trusting of them, even if their actions are pretty damn understandable. Can't I go somewhere nice instead?
 
-No, I had to waltz into the territory of nations and powers I do not even understand.
+No, I had to waltz into the territory of nations and powers I do not even understand. First, killer bots, now scary masked ninjas.
 
 First, they had compounded my machine, probably studying it with their brand of mad scientists and engineers. Next, they 'interviewed' me to death, in which I spoke anything and everything, without any concern for secrecy. First, it was in incomprehensible Japanese, then broken English.
 
