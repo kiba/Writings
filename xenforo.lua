@@ -124,6 +124,10 @@ function LineBreak()
   return '\n'
 end
 
+function SoftBreak()
+  return '\n'
+end
+
 function Emph(s)
   return enclose('em', s)
 end
