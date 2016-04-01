@@ -20,7 +20,7 @@ Nonetheless, Sam found himself in a dusty shed working out a chemical process to
 
 "Anyway, for your information, I am making rocket fuels."
 
-"Really? What dust forumulation you're using?"
+"Really? What dust formulation you're using?"
 
 "Silly Ruby, I am not using any dust."
 
@@ -28,36 +28,36 @@ Nonetheless, Sam found himself in a dusty shed working out a chemical process to
 
 "That's where you're wrong, Ruby. Have you ever notice how firewoods and trees burn? They don't require dust. Same principle apply here. You can do things without dust."
 
-"I think you're baloony."
+"I think that's baloney."
+
+"You'll see, Ruby. You'll see," Sam promised her.
 
 Then something ignited.
 
 "FUCK!" Sam yelled. "Get out of here!"
 
-Ruby pulled Sam out of the shed, using her semblance, pushing both away at a safe distance.
+By then Ruby had already activated her semblance. She yanked Sam hard, away from the shed at a safe distance.
 
-It didn't take long before the shed unceremoniously lit on fire.
+It didn't take long before the shed unceremoniously lit on fire. Thanks god it was an explosion. But on the other hand....
 
 "We're so in trouble," Ruby commented.
 
-"Yep."
+"Nah. We weren't anywhere near here in the first place. Yang was there playing with fire dusts and it just so happened to blow up," Sam said in a conspiratorial tone.
 
----
-[B]A Week later[/B]
+***
+**A Week later**
 
-Taiyang was not happy that he found out that Sam was doing dangerous things and that Ruby was accomplice to her sibling's shenanigan.
+Suffice to say, the scam didn't work on Taiyang. Ruby wasn't a very good liar. So, Sam got chewed out for doing dangerous experiments and concocting a bullshit story to pin on Yang. Ruby got in trouble for being an accomplice to her silbing's shenangian.
 
-Nonetheless, Sam from banned from experimenting with alchemy, among short term punishments such as network restriction, and no video games.
+Taiyang temporarily banned computer games and a network connection and both of them were grounded for the duration of two weeks. Yang was forced to do her schoolwork at her friend's house.
 
-He didn't know what caused the fire in the first place, but father told him if he wanted to learn alchemy, Sam would need to enroll in university where it would be safe to do it.
+Sam didn't know what had caused the fire in the first place, but it was a moot point. He was told that if he wanted to learn dust chemistry, he would need to enroll in a university where it would be safe to do it.
 
-Not that Sam planned to. Away from home, at his favorite cafe, he was planning something different.
+By then, the author realized that chemistry would be a whole different ballgame than simply being a historian and a writer. The knowledge simply wasn't built-in.
 
-It was a plan that doesn't rely entirely on him reinventing Earth concepts to enable the spaceflight capability, or worse, running an entire organization and pushing it every day.
+After the grounding, he was back in his favorite cafe again, planning an entirely different strategy for achieving spaceflight, one that didn't rely on Sam pioneering an entirely new field of scientific research, amongst other things.
 
-Sam wrote out a few lines on his notebook, outlining the names of historical personalities and projects, like 'Elon Musk', "SpaceX", and 'Apollo'.
-
-He estimated that it would take ten years from initiation to launch a rocket into low earth orbit using Remnant's technological and scientific know-how.
+Sam wrote out a few lines on his notebook, outlining the names of historical personalities and projects, like 'Elon Musk', "SpaceX", and 'Apollo'. He estimated that it would take ten years from initiation to launch a rocket into low earth orbit using Remnant's technological and scientific know-how.
 
 It wasn't like they lacked physics or engineering knowledge. Sam checked, and it was more than enough to do the job. It still will push the boundary of their science and engineering, especially since they will have to reinvent chemistry without the use of dust if they want to make it beyond the planet's atmosphere, since dusts as an energy source stopped working above a certain altitude.
 
