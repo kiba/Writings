@@ -1,11 +1,8 @@
-**chp10_wine_and_dine**
+# **Chp10 Wine and Dine**
 
-*****
-
+***
 **Mayumi Yoshizawa**
-
 **Shopping Distract 9, Sidonia**
-
 
 For Security Police agent Yoshizawa Mayumi, this street was...just like any other shopping district. There was absolutely nothing special about it, for it was part of her life for as long she remembered.
 
