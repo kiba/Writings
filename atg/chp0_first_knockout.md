@@ -6,13 +6,13 @@
 
 He could had lost all his money, most likely either during the financial crisis, or during the dot-com crash. At age thirty five, John Swift became a self-made billionaire.
 
-Swift first made his fortune when Bitpal, an internet payment company, was sold to eBUY, an online auction marketplace. From there, he could had played it safe. But he wasn't satisfied to that end.
+Swift first made his fortune when Bitpal, an internet payment company, was sold to eBUY, an online auction marketplace. From there, he could have had play it safe. But he wasn't satisfied to that end.
 
-Among other things, he decided to invest in Eli Berkovitz's enterprises. He was a billionaire looking to become a millionaire or worse, by tackling some of the most difficult product categories one could think of; electric cars and rockets. Which was why everybody at at the time thought Berkovitz was crazy. By extension, everybody also thought Swift was crazy for going along with the aspiring industrialist.
+Among other things, he decided to invest in Eli Berkovitz's enterprises. He was a billionaire looking to turn his billions into millions by tackling some of the most difficult product categories one could think of; electric cars and rockets. Which was why everybody at the time thought Berkovitz was crazy. By extension, everybody also thought Swift was crazy for going along with the aspiring industrialist.
 
 Far from being overconfident and delusional, Swift knew that he would most likely lose his shirt, and would be forced to start all over again. That was OK with him.
 
-But when the financial crisis strike in the closing years of the last decade, suddenly, Berkovitz's companies were in deep trouble, and the duo's dream of routine spaceflight and the colonization of Mars was in jeopardy. At that time, the Israeli-American entrepreneur has yet to successfully launch a rocket into low earth orbit, having failed three times in a row. When Berkovitz came looking for further investment, Swift, a romantic, went all in, saving the former's companies from bankruptcy. After an almost catastrophic two thousand eight, there was still nothing like euphoria, only uncertainty about success.
+But when the financial crisis strike in the closing years of the last decade, suddenly, Berkovitz's companies were in deep trouble, and the duo's dream of routine spaceflight and the colonization of Mars was in jeopardy. At that time, the Israeli-American entrepreneur had yet to successfully launch a rocket into low earth orbit, having failed three times in a row. When Berkovitz came looking for further investment, Swift, a romantic, went all in, saving the former's companies from bankruptcy. After an almost catastrophic two thousand eight, there was still nothing like euphoria, only uncertainty about success.
 
 Since then, Berkovitz delivered on his promise, and coupled with Swift's unicorn investments, Swift had became wealthier than he ever thought possible. He became celebrated in Silicon Valley and in the media at large as the Bitpal mafioso who saved Christmas. His face was splattered all over business magazines all spinning a tale about how shrewd and visionary he was.
 
@@ -119,8 +119,8 @@ Finally, after the last chevron activated, a wormhole activated to the brief sur
 "The fuck?" Swift can only answer.
 
 The billionaire and the writer were then pelted with eighty kilogram of flesh, knocking them out cold.
-***
 
+***
 **Colonel Frank Cromwell**
 **A Matter of Time, 1998**
 
