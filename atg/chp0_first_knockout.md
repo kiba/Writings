@@ -4,11 +4,11 @@
 **John Swift**
 **January, 16, 2015**
 
-He could had lost all his money, most likely either during the financial crisis, or during the dot-com crash. At age thirty five, John Swift is a self-made billionaire.
+He could had lost all his money, most likely either during the financial crisis, or during the dot-com crash. At age thirty five, John Swift became a self-made billionaire.
 
-Swift first made his fortune when Bitpal, an internet payment company was sold to eBUY, an online auction marketplace. From there, he could had played it safe. But he wasn't satisfied to that end.
+Swift first made his fortune when Bitpal, an internet payment company, was sold to eBUY, an online auction marketplace. From there, he could had played it safe. But he wasn't satisfied to that end.
 
-Among other things, he decided to invest in Eli Berkovitz's enterprises. He was a billionaire looking to become a millionaire or worse, by tackling the most difficult product categories one could think of, electric cars and rockets. Which was why everybody at at the time thought Berkovitz was crazy. By extension, everybody also thought Swift was crazy for going along with the aspiring industrialist.
+Among other things, he decided to invest in Eli Berkovitz's enterprises. He was a billionaire looking to become a millionaire or worse, by tackling some of the most difficult product categories one could think of; electric cars and rockets. Which was why everybody at at the time thought Berkovitz was crazy. By extension, everybody also thought Swift was crazy for going along with the aspiring industrialist.
 
 Far from being overconfident and delusional, Swift knew that he would most likely lose his shirt, and would be forced to start all over again. That was OK with him.
 
@@ -62,13 +62,13 @@ The billionaire and amateur TV producer pointed to the stargate prop sitting in 
 
 "Well-made, like everything else."
 
-"It's a bit special. Not only I got it for cheap, something like five thousand dollars, but also a high quality prop. It even weighed twenty-nine metric tons."
+"It's a bit special. Not only I got it for cheap, something like five thousand dollars, but also a high quality prop. It even weigh twenty-nine metric tons."
 
 "You're serious?"
 
 "I am absolutely serious. Let walk there, shall we?"
 
-As the two men closed in on the television set, they noticed the incredible details that went into the set. There were detailed warnings, working lights, security cameras, pipes that seemed connected to each other.
+As the two men closed in on the television set, they noticed the incredible details that went into the set. There were detailed warnings, working lights, security cameras, and pipes that seemed connected to each other.
 
 "Those security cameras, are they operational?" the author asked.
 
