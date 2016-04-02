@@ -18,7 +18,7 @@ Since then, Berkovitz delivered on his promise, and coupled with Swift's unicorn
 
 The truth was the opposite in many ways. Swift, the billionaire, wasn't the super-rational person the media made him out to be. He was a dreamer and a romantic, and he trusted Berkovitz to make it out alive. In retrospect, any number of things could had derailed his friend's ability to rescue his companies from death. All it took was one more launch failure, or perhaps worsening financial condition, or a failure to win a contract from NASA.
 
-Today, in two thousand sixteen, that uncertainty had largely given way to a less stressful present, and an optimistic and bright future.
+Today, in two thousand fifteen, that uncertainty had largely given way to a less stressful present, and an optimistic and bright future.
 
 He drove a luxury electric sedan, a fruit of his investment, from Berkovitz Electric. He wasn't the only person in the car. Next to him was an up and incoming science fiction novelist, by the name of Vincent Sinclair, whose work Swift he had been reading as of late. The author was busily gawking at the fact that he was beside a visionary billionaire.
 
