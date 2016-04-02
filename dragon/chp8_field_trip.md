@@ -81,7 +81,7 @@ Finally, they arrived at a particular classroom, selected at random. There would
 
 *****
 
-What did Silene do kids her 'mental' age.
+What activities Silene did with kids her 'mental' age?
 
 [X] - Silene read out a story with Baum. Some audience interactions.
 - Pick a story to read, preferably a fairy tale or something simple.
