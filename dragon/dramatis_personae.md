@@ -4,15 +4,25 @@
 
 * **Doctor Emily Baum** - Female biologist and de-facto mother to Silene.
 * **Arthur Robinson** - Male biologist and colleague to Emily. Also a doctor.
-* **Kelly Knox** - Elementary school teacher hosting Silene-kindergartener interaction.
+* **Kelly Knox** - Elementary school teacher hosting the Silene-kindergartener interaction.
 
 ## Silene
 
-The protagonist of the story, a female baby dragon conceived elsewhere in the multiverse, then hatched in a university lab in front of the biologist Emily Baum. Named in chapter five. Possessed ancestral memories, which gifted the newborn with a wide variety of knowledge, including behavioral patterns on how to act around humans.
+The protagonist of the story. She was found on the roof of Emily Baum's neighbor. The neighbor knew that Doctor Baum is a biologist, so he took the dragon egg to the doctor. It was then promptly brought to her university lab for care and research.
 
-After a few months or so, she forged a strong bond with Emily Baum as mother and daughter.
+The dragon hatched in the lab. In the first few hours of life was a stream of people coming in to take a look at the dragon.
 
-Her race is at least as intelligent as humans, as she demonstrated feats to the people around her that normally only humans are capable of.
+She acquired her name in chapter five, taking on Silene. The name came from a story in which the princess Silene was kidnapped by a dragon.
+
+From birth, she possessed **ancestral memories**, which helped us navigate the world and learn in the absence of a dragon parent to guide her through. She also quickly forged a strong bond with Doctor Baum.
+
+In chapter four, she was moved to the sanctuary.
+
+Readers named the dragon in chapter five.
+
+In chapter eight, she dreamt of **human shapeshifting** which was an ability that her ancestral line came to possess at one time or another.
+
+Her race is at least as intelligent as humans, as she demonstrated feats to the people around her that normally only humans are capable of. Dragons love meat and treasures. They especially valued well crafted objects.
 
 ### ABILITIES
 
