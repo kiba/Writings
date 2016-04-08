@@ -46,13 +46,13 @@ Finally after an impasse of about a minute, Cromwell finally answered. "I am Col
 
 The fat man turned to the thin man, "I thought you told me that this stargate is just a prop!"
 
-"I swear! I thought it was just a prop too! Look, there's no fucking way that a stargate can possibly be real anyway! It's fucking fiction! You of all people should know that faster than light travel violate the laws of physics. Frank Cromwell is fiction! FICTION! None of all that should be possible!"
+"I swear! I thought it was just a prop too!" the thin man said. "Look, there's no fucking way that a stargate can possibly be real anyway! It's fucking fiction! You of all people should know that faster than light travel violate the laws of physics. Frank Cromwell is fiction! FICTION! None of all that should be possible!"
 
 "Wait? I am fiction?" Cromwell challenged as he stepped closer.
 
 "If he isn't a trespasser," the fat man reasoned, "Then he's Frank Cromwell. In the flesh."
 
-"And so what if I am? I have half a mind to restrain the both of you and call for my superior for possession of federal properties."
+"And so what if I am? I have half a mind to restrain the both of you and call for my superior for possession of federal property."
 
 The thin man put his hand up, gesturing for Cromwell to stop. "Look man, what if we show you irrefutable truth that you're fiction!?"
 
@@ -82,7 +82,7 @@ With that the trio made their trek across the pristine flooring toward the exit 
 
 [i]What is Berkovitz Electric?[/i] The colonel asked himself, but then decided that line of thought wasn't important right now.
 
-The billionaire fished out a slab of metal with the bitten apple logo on it. It looked sleek and slab, completely contrary to his expectation. In his experience, laptops were bulky portable computers usually made with grey plastics, not the thin slab of metal.
+The billionaire fished out a slab of metal with the bitten apple logo on it. It looked sleek and smooth, completely contrary to his expectation. In his experience, laptops were bulky portable computers usually made with grey plastics, not the thin slab of metal.
 
 "What the hell is that?" Cromwell asked again.
 
