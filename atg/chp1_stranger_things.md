@@ -1,4 +1,4 @@
-Chp1: Stranger Things
+# **Chp1: Stranger Things**
 
 When Colonel Frank Cromwell first joined the Stargate program, he at first thought it was an extremely elaborate joke, or an exercise in lateral thinking. It turned out that the Stargate program did involve a whole lot of lateral thinking, and not only that. The Stargate was an absolutely real piece of machinery.
 
@@ -103,3 +103,107 @@ The billionaire quickly navigated to a folder and load an episode for viewing, "
 "This is the episode when you die in a black hole. You won't have any trouble watching it?" the billionaire questioned.
 
 "No, not at all," Cromwell said. "When I let go of that rope, I thought I was going to die anyway."
+
+Immediately, however, the television version of his stargate command wasn't clearly the same as his. For example, the Stargate lacked all the symbols needed and the addresses were too short. He realized that this is a science fiction series designed to entertain people, not a documentary of Stargate Command. Even so, he can't help but be jarred by some of the difference.
+
+What didn't change was the people. Everyone looked pretty much the same. He can't help but feel sorry for the men who were trapped by the black hole. And he was reminded constantly of his interactions with Colonel O'Neil throughout the episode. Even his death was basically on spot.
+
+"What do you think of it, Colonel?" Sinclair wondered.
+
+Cromwell sniffed a little before answering, "obviously entertainment, but the gist of the story is preserved. First of all, this episode was not the first time we met. My job required me to understand the layout and to partly understand the operation of the Stargate and how SGC operate."
+
+"So the television series can't fully be relied on as the gospel truth, then," Swift reasoned out.
+
+"Well, I am convinced that you think I am fiction," Cromwell moved on. "But I want to go home."
+
+Swift sighed as he rubbed his forehead. "Of course you do. But I have no idea how to get you home. Or how I acquired this stargate. Or if you're a simply a figment of my imagination! It's a dream come true that you're real. You're not my childhood dream but you're close to it. I was in my twenties when the first startgate episode aired...I don't know."
+
+"Relax, he's not your figment of your imagination. I am here," the fat man tried to assure the billionaire.
+
+"Thanks. But you could be a figment of my imagination too. Right now, I just realized the horrible implication of my favorite science fiction series coming true."
+
+"And what's that?" the airmen wondered.
+
+"The System Lords. Replicators. The Ori. The Wraith. A good story needs a villain, and a series like stargate required a villain on a galactic scale." Swift shook his head. "This is not an adventure, but a nightmare."
+
+"I never thought of it that way. This was just the world we live in. Though I never heard of those villains that you mentioned."
+
+"They only get more terrifying as the series progressed. Replicators, are for example, self-replicating von neumnan machines. They like to eat technologies and they are practically unstoppable. The Ori are an ascended race of people with fanatical desire for more worshippers. The Wraith, well, they are space vampires."
+
+The Colonel arched his right eyebrow. "Space vampire?"
+
+"Yep. Space vampire. They suck the very youth and vitality out of you, allowing them to live indefinitely."
+
+"Sounds terrifying. But are you going to assist me in getting home?"
+
+"Does it have to be now?"
+
+"As soon as possible."
+
+"Do you know the address to your Earth?"
+
+"No. Why would I need to know that?"
+
+"Damn, this is going to be harder than I thought. Follow me to the operation room."
+
+The operation room that hung over the stargate below did not disappoint, the set very much resembling Stargate Command's operation room, and yet modernized for two thousand fifteen. He assumed that it was, given the big flat screens displays that dominated the workstations.
+
+"Well, the monitor said that the fake protocol was overridden," Swift said as he sat down. The monitor was showing a whole lot of texts on a black background, but nothing else, unlike Swift's laptop, which would have a desktop and a recognizable graphical user interface. Strangely, it seemed that this obscenely wealthy man was very comfortable in this environment. "And....not good. It recorded a connection, but not an address."
+
+"How are we going to get Cromwell home if we don't know the address? Assuming that we can actually dial it, of course," Sinclair said.
+
+"We don't," Swift responded. "Not until I figure this out." The billionaire typed in a couple of command into the console. "And viola! Apparently, there's already addresses that were 'explored', but I am not betting them on their safety. None of them are designated as Earth or an off-world bases."
+
+Cromwell frown. He wasn't going to get home.
+
+"I saw a rover. Maybe you can use that to explore the gate address," Sinclair suggested.
+
+"Sure. There's a panel made specifically for sending in a MALP," Swift said, before turning to the airman. "Colonel, there should be a rover in the garage situated next to the gateroom. Let go retrieve it."
+
+Being a security conscious man, it didn't take long for him to grasp the implication of everything he heard and seen so far. "Wait!" Cromwell suddenly shouted. "Are you sure it's a good idea?"
+
+"How is it not a good idea?" Swift inquired. "We're going to get you home, and to do that, we need to explore the galaxy for clues."
+
+"You said that my universe is a dangerous place. We're not going to just waltz around without precaution and a proper backup."
+
+"Oh," Swift caught on. "I see what you mean. But what do we need now?"
+
+"We're going to need to talk to your government, particularly the commander-in-chief. They're gonig to take possession of your stargate here."
+
+"Wait? What!" Swift shouted indignantly.
+
+"Must I remind you of the national importance of this alien device right here."
+
+"You mean, planetary importance," the science fiction author corrected pendantry. Cromwell ignored that remark.
+
+"But I paid...like five thousand dollars for it! You can't take it away from me."
+
+"You got to be kidding me. Do you know what nat-" Sinclair briefly interrupted with, "planetary!" before Cromwell continued, "security mean? Your ownership of the most valuable engineering and scientific marvel pale to the importance to the lives of the people on Earth."
+
+Swift backed down. "Got it. You know, it's still so much to take in. The implication slipped my mind."
+
+Without warning, the gate started rotating again.
+
+"What now?!" Cromwell said in alarm as Swift's eyes scanned the console for the pertaining message. "We need to get the iris online, now!"
+
+Swift rapidly typed in a series of command futilely to try to shut down the connection. "We don't have the iris installed! I am trying to shut down the stargate!"
+
+"Well? Do we have guns?"
+
+"No," Swift replied.
+
+"I do not have a gun," Sinclair said.
+
+"GOD DAMN IT!"
+
+Cromwell, took out his pistol and went down the stairs before the gate connected.
+
+"I CAN'T SHUT IT DOWN!" Swift shouted at the top of his lung.
+
+With final chevron locked, the gate connected and the whirlpool splashed out. Moment laters, an old styled MALP rolled into view. The Colonel still did not lower his gun down.
+
+Then, nothing happened.
+
+"We're getting a signal from the rover!" the billionaire reported. "And it's looking at you, colonel!"
+
+For the second time in his very short stay, the Colonel once again felt puzzled as he stared at a vehicle that can only come from Stargate Command.
