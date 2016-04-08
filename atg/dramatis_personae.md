@@ -1,13 +1,13 @@
 ## John Swift
 
-First made his fortune during the hey-days of the dot-com boom, raking in million of dollars in the Bitpal Mafia. He faithfully invest in his friend's companies, Eli Berkovitz, an Israeli-American entrepreneur and industrialist.
+First made his fortune during the hey-days of the dot-com boom, raking in million of dollars in the Bitpal Mafia, before leveraging it into a fortune, making him one of the richest man in the world. He faithfully invest in his friend's companies, Eli Berkovitz, an Israeli-American entrepreneur and industrialist.
 
 * DOB: March 12, 1975.
 * Gender: Male
 
 ## Eli Berkovitz
 
-An Israeli-American industrialist and entrepreneur whose business interest lie in solar energy, electric cars, and space cargo delivery. Self-taught aerospace engineer with master degrees in both physics and economic, he not only understood business, but also the engineering side as well.
+An Israeli-American industrialist and entrepreneur whose business interest lie in solar energy, electric cars, and space cargo delivery. Self-taught aerospace engineer with master degrees in both physics and economic, he not only understood business, but also the engineering side as well. His dream is to colonize Mars and set humanity on a sustainable energy future.
 
 * DOB: July 13, 1970.
 * Gender: Male
