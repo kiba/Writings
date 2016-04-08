@@ -6,7 +6,7 @@
 
 He could have lost all his money, most likely either during the financial crisis, or during the dot-com crash. At age thirty five, John Swift became a self-made billionaire.
 
-Swift first made his fortune when Bitpal, an internet payment company, was sold to eBUY, an online auction marketplace. From there, he could have play it safe. But he wasn't satisfied to that end.
+Swift first made his fortune when Bitpal, an internet payment company, was sold to eBUY, an online auction marketplace. From there, he could have played it safe. But he wasn't satisfied to that end.
 
 Among other things, he decided to invest in Eli Berkovitz's enterprises. He was a billionaire looking to turn his billions into millions by tackling some of the most difficult product categories one could think of: electric cars and rockets. Which was why everybody at the time thought Berkovitz was crazy. By extension, everybody also thought Swift was crazy for going along with the aspiring industrialist.
 
