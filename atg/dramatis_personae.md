@@ -7,7 +7,21 @@ First made his fortune during the hey-days of the dot-com boom, raking in millio
 
 ## Eli Berkovitz
 
-An Israeli-American industrialist and entrepreneur whose business interest lie in solar energy, electric cars, and space cargo delivery. Self-taught aerospace engineer with master degree in physics and economics.
+An Israeli-American industrialist and entrepreneur whose business interest lie in solar energy, electric cars, and space cargo delivery. Self-taught aerospace engineer with master degrees in both physics and economic, he not only understood business, but also the engineering side as well.
 
 * DOB: July 13, 1970.
+* Gender: Male
+
+## Colonel Frank Cromwell
+
+A special operator in the United States Air Force, he has decade of experience in wide variety of environment, conducting special operations and highly sensitive missions against America's adversaries. He was tapped to lead the quick reaction force at Stargate Command after some unfortunate incidents inside the base.
+
+* DOB: September 8, 1955.
+* Gender: Male
+
+## Vincent Sinclair
+
+A renown hard science fiction author that accompanied Swift to the warehouse that housed the television set for the stargate reboot. His quirks and phobia are famous among fans, and he was known to engage in counter-productive OCD behaviors that caused him grief.
+
+* DOB: January 3, 1978.
 * Gender: Male
