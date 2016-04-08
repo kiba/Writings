@@ -1,3 +1,5 @@
+# Dramatis Personae
+
 ## John Swift
 
 First made his fortune during the hey-days of the dot-com boom, raking in million of dollars in the Bitpal Mafia, before leveraging it into a fortune, making him one of the richest man in the world. He faithfully invest in his friend's companies, Eli Berkovitz, an Israeli-American entrepreneur and industrialist.
