@@ -22,4 +22,28 @@ Diana scoffed.
 
 Oops. Truth to be told, we were not master of negotiation, among other things.
 
-"I believed you do understand the gravity of our situation," the captain continued. 
+"I believed you do understand the gravity of our situation," the captain continued. "And I would appreciate it if you do not waste both of our time."
+
+If this was drama, the audience would be visibly cringing at our strategy and execution.
+
+I grimaced. "Fine, we'll cut the bullshit."
+
+Diana looked at me. "But..."
+
+"Babe, we're gamed and way of our depth," I argued. Then I looked at the masked woman. "At the very least I want the full anti-aging suite, including immortality if you have it."
+
+"We don't have such capabiliti-" the captain argued back.
+
+"Don't waste both of our time," I parroted back to her. "There's something strange about this society and its absolute acceptance of masked leaders with enormous power."
+
+"Are you a conspiracy theorist?"
+
+"I admit, it's not an ordinary conspiracy, given that this society offered their opinions freely on anything and everything. "
+
+"It's very casual, and there's no evidence of a secret police or a totalitarian society," Diana thought out loud.
+
+The captain scoffed. "You have no evidence that we have such fountain of youth."
+
+"If there's a conspiracy, it's a very smart one," I continued my line of thought. "But thousand of years later, it should already be a done deal. The Sidonians here have no such high opinion of death."
+
+"Why are you continuing this line of thought? Contrary to your view, we do not have such amazing medical technology regardless of your allegation."
