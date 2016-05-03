@@ -85,3 +85,5 @@ By then, the Tau'ri were used to this display of skills from a century old warri
 "Anyone would like to try?" he asked the audience.
 
 Several hands rose. Teal'c picked at individuals he hadn't seen recently. Several more bouts to go before he would proceed to showing a new kata.
+
+Two hours had passed and Teal'c was finally done with the class. 
