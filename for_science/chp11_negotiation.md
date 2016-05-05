@@ -1,4 +1,6 @@
-**James Archer**
+#chapter 11: Negotiation
+
+## **James Archer**
 
 Diana and I finally found myself seated in a meeting room the opposite side of Captain Kobayashi, the commander-in-chief of Sidonia. Naturally, there were butterflies in my stomach as our freedom were on the lines.
 
@@ -30,20 +32,111 @@ I grimaced. "Fine, we'll cut the bullshit."
 
 Diana looked at me. "But..."
 
-"Babe, we're gamed and way of our depth," I argued. Then I looked at the masked woman. "At the very least I want the full anti-aging suite, including immortality if you have it."
+"Babe, we're gamed and way of our depth," I argued. Then I looked at the masked woman. "At the very least I want the full medical care package, including immortality if you have it."
 
 "We don't have such capabiliti-" the captain argued back.
 
-"Don't waste both of our time," I parroted back to her. "There's something strange about this society and its absolute acceptance of masked leaders with enormous power."
+"You can do photosynthesis but not defeat aging?"
 
-"Are you a conspiracy theorist?"
+"Those two are completely orthogonal."
 
-"I admit, it's not an ordinary conspiracy, given that this society offered their opinions freely on anything and everything. "
+"Yet, the ability to photosynthesis demonstrated a mastery of bioengineering and the medical science. One of your scientist described as one of the greatest and most complicated feat ever attempted on the human body."
 
-"It's very casual, and there's no evidence of a secret police or a totalitarian society," Diana thought out loud.
+"Believe what you will, we do not a fountain of youth despite your allegation, despite our most fervent wishes."
 
-The captain scoffed. "You have no evidence that we have such fountain of youth."
+"Right..."
 
-"If there's a conspiracy, it's a very smart one," I continued my line of thought. "But thousand of years later, it should already be a done deal. The Sidonians here have no such high opinion of death."
+Diana pulled on my shoulder. "What're you doing? They made it clear that they're not going to give us immortality, -if- they have it. We saw that they use fucking mecha for space battles."
 
-"Why are you continuing this line of thought? Contrary to your view, we do not have such amazing medical technology regardless of your allegation."
+"It's an obviously flawed design!"
+
+"Saski convinced me beyond a shred of doubt-"
+
+"It could be Sidonia's reality distortion field!"
+
+She sighed in frustration.
+
+"We're getting a bit off-topic, " the captain said. "Perhaps we should take a break."
+
+"Yes," my girlfriend replied, before the both of us headed into a private room for our own use.
+
+I think we fucked up royally.
+
+## **Captain Kobayashi**
+**Hours ago.**
+
+Lala Hiyama wasn't the least happy when she was finally told the news. Not after Kobayashi murdered the council in cold blooded. The bear's roar was absolutely clamorous in its fury, though it was confined to her chamber.
+
+Still, Kobayashi stood her ground as the dorm mother bear cussed her out.
+
+"Why the fuck you do that?" Hiyama finally asked.
+
+"You know as well as I do that they are a threat to our lives. One wrong move, we could end up dead."
+
+"That doesn't make it right, and you know it."
+
+"It's for the good of Sidonia."
+
+"If they are a threat, you could have arranged for a trial of some kind."
+
+"Somehow I doubt that would be a good idea in the first place. Explaining to the court that we need to arrest the immortal committee could easily alert them to my intention, and it could easily went the other way around. They may be senile and corrupt, but they were no fools."
+
+The bear glanced away, staying silent on that particular issue.
+
+"Regardless, the future is changing."
+
+"Yes, because you-"
+
+"Their assassination was catalyzed by something else entirely unrelated, actually. Somebody discovered a way to travel between the multiverse."
+
+"Excuse me?"
+
+"You heard me correctly. Somebody made a breakthrough to make what was previously science fiction into a physical possibility. Sasaki and Shinatose can fill you on it. Anyway, that changed things. If we could travel to an alternate reality, it's possible that we may face military conflict. I want to prepare for that eventuality. That means finding Hiroki and his clone-, son."
+
+"The immortal committee members are dead, right?"
+
+"Yes, those who were supported by life equipment in the council chambers were killed," the captain said, before saying something else completely. "Sidonia is my soul and life."
+
+"That's the safe phrase," the bear noted. "So, we're free after all." It was one of the duress phrase established by the two immortals, one that indicated that no hostilities was coercing Kobayashi and that it was safe to talk. In this case, it was more of a remainder and reassurance.
+
+The bear sighed in relief. "I'll go and retrieve Hiroki and his son."
+
+"Thank you."
+
+# **James Archer**
+
+"You want me to explain everything with regard to trans-dimensional travel?" I asked.
+
+"Yes," Kobayashi replied.
+
+"Do you have any idea how long that will take? I still haven't explained much if any to my girlfriend."
+
+"I am sure that it will take a lifetime to understand..."
+
+"No, you don't understand. I got a life back here."
+
+"And so do I" Rose concurred.
+
+"We're homesick and we want to go home."
+
+"I supposed we could arrange visitation and consultation period, but we have no assurance that you will go back."
+
+"If you provide us with technological assistance and knowledge, I am sure we'll go back," Rose said.
+
+"Yeah, what she said."
+
+"Sorry, I am not predisposed to just trusting you, even with our assistance to you. "
+
+"What do you propose then?"
+
+"A citizenship, perhaps marriage with one of my people here, or that one of you stay here."
+
+I looked at Rose, not sure if I wanted to be separated a reality away. Then I looked at Kobayashi again and scoffed, crossing my arms.
+
+"I am sorry, but I am loyal to America only," I said rather proudly. If nothing else, I believe in the dream and promises of America, in spite of the many mistakes and atrocity that had been committed in its name.
+
+"Ah, I forget sometime. This is before the unification of ancient Earth. I think you could do better than that. How about loyalty to humanity? That was the apotheosis of Earth civilization."
+
+Damn...I didn't really think of that. I always thought of myself as American first.
+
+"We're loyal to Sidonia, because that's all there is of humanity as far as we know," Kobayashi carried on. 
