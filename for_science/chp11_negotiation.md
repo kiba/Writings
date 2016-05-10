@@ -50,7 +50,7 @@ Diana pulled on my shoulder. "What're you doing? They made it clear that they're
 
 "It's an obviously flawed design!"
 
-"Saski convinced me beyond a shred of doubt-"
+"Sasaki convinced me beyond a shred of doubt-"
 
 "It could be Sidonia's reality distortion field!"
 
@@ -119,7 +119,7 @@ The bear sighed in relief. "I'll go and retrieve Hiroki and his son."
 
 "We're homesick and we want to go home."
 
-"I supposed we could arrange visitation and consultation period, but we have no assurance that you will go back."
+"I supposed we could arrange a visitation and consultation period, but we have no assurance that you will go back."
 
 "If you provide us with technological assistance and knowledge, I am sure we'll go back," Rose said.
 
@@ -133,10 +133,64 @@ The bear sighed in relief. "I'll go and retrieve Hiroki and his son."
 
 I looked at Rose, not sure if I wanted to be separated a reality away. Then I looked at Kobayashi again and scoffed, crossing my arms.
 
-"I am sorry, but I am loyal to America only," I said rather proudly. If nothing else, I believe in the dream and promises of America, in spite of the many mistakes and atrocity that had been committed in its name.
+"I am sorry, but I am loyal to America only," I said rather proudly.
 
-"Ah, I forget sometime. This is before the unification of ancient Earth. I think you could do better than that. How about loyalty to humanity? That was the apotheosis of Earth civilization."
+"And yet you keep your travel and technology a secret from the government."
 
-Damn...I didn't really think of that. I always thought of myself as American first.
+Shit, she got me there.
 
-"We're loyal to Sidonia, because that's all there is of humanity as far as we know," Kobayashi carried on. 
+"About that, in due time."
+
+"I don't believe you're in the least sincere. Nonetheless, we do have carrots on our hands. Engineering assistance, access to both of our technology and knowledge base, non-classified of course. But some loyalty and trust may allow you greater access, especially for classified materials."
+
+I got to admit, that does sound tantalizing.
+
+"But first, how do we know that you will come back?" The captain came back to this question once again.
+
+I pursed my lips.
+
+"I'll stay," Rose offered.
+
+"Wha-" I responded.
+
+"We need to get somewhere, James. Anyway, I am not about to offer myself as a hostage for nothing, as long as he has a hostage to take away."
+
+"And who would that be?" Kobayashi asked.
+
+"Your chief of engineering, Sasaki."
+
+For several seconds, there was no talking inside the meeting room.
+
+"Consider it done," Kobayashi finally answered.
+
+With that, my girlfriend sealed the deal.
+
+# **Chief Engineer Sasaki**
+
+Chief engineer of Toha Heavy Industries groaned in frustration at the obstinate half of the American couple, James Archer. The other half marched to their room after an especially bitter argument.
+
+"What do you mean, no?" she grilled.
+
+"No, mean no. I am not trusting anything you put on it."
+
+"Why?"
+
+"Because....your captain coerced us into the whole deal. So I am going to be fucking annoying as possible." He immediately crossed his arms in defiance.
+
+It took all Saskai's willpower to not punch him in the face. Doing so was not worth the trouble, especially since ancient humans wasn't engineered to withstand that kind of strike, not until Shinatose finally convinced the couples to go under gene therapy. "Not my decision. And I am going to be your guest in your home, remember?"
+
+"Hostage."
+
+"Whatever." If anything, she would have him at his mercy with her strength.
+
+"Look, I'll let you install something if I completely understand what it is you're looking to add on to my travel machine."
+
+Ah ha! There's an opening. She's taking it. "Really?" She smirked.
+
+"Yes, really."
+
+"Then let get started as soon as possible." The abnormally strong engineer gripped Archer's hand and dragged him to a testing facility against his will, all the while along the way explaining the armor that she wanted to install on it, which was gardes-grade, which was more than good enough to withstand any anti-armor round of the early twenty-first century.
+
+Sasaki's life was going to be on her life, and she preferred if the trans-dimensional machine was supported with all the latest technology that can be brought to increase its survivability no matter where she was in the multiverse.
+
+Of course, the captain considered the machine valuable enough to send an immortal into the unknown spoke volume. Not that Archer knew or care.
