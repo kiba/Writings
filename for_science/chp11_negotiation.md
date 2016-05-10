@@ -1,10 +1,11 @@
 #chapter 11: Negotiation
 
-## **James Archer**
+***
+**James Archer**
 
 Diana and I finally found myself seated in a meeting room the opposite side of Captain Kobayashi, the commander-in-chief of Sidonia. Naturally, there were butterflies in my stomach as our freedom were on the lines.
 
-The captain was pretty mysterious. Her masks helped, no doubt, as nobody knew her face. Moreover, her biography was entirely empty saved a record of her activities as executive, which weren't always looked upon positively by the citizenry. Turned out that there's a couple of independent poll organization and the approval was never ninety-nine percent.
+The captain was pretty mysterious. Her mask did a great job of hiding her face, that was not in doubt, and nobody credible actually claimed to know her face. Moreover, her biography was entirely empty saved a record of her activities as executive, which weren't always looked upon positively by the citizenry. Turned out that there's a couple of independent poll organizations and the approval was never ninety-nine percent, which would be a deeply suspicious number.
 
 Anyway, we were at a severe disadvantage in term of information. The negotiation weren't certainly between two co-equal force.
 
@@ -22,7 +23,7 @@ Diana scoffed.
 
 "Moreover, I am not impressed by your fake outrage."
 
-Oops. Truth to be told, we were not master of negotiation, among other things.
+Oops. Truth to be told, we were not master of negotiation.
 
 "I believed you do understand the gravity of our situation," the captain continued. "And I would appreciate it if you do not waste both of our time."
 
@@ -62,7 +63,8 @@ She sighed in frustration.
 
 I think we fucked up royally.
 
-## **Captain Kobayashi**
+***
+**Captain Kobayashi**
 **Hours ago.**
 
 Lala Hiyama wasn't the least happy when she was finally told the news. Not after Kobayashi murdered the council in cold blooded. The bear's roar was absolutely clamorous in its fury, though it was confined to her chamber.
@@ -79,7 +81,7 @@ Still, Kobayashi stood her ground as the dorm mother bear cussed her out.
 
 "If they are a threat, you could have arranged for a trial of some kind."
 
-"Somehow I doubt that would be a good idea in the first place. Explaining to the court that we need to arrest the immortal committee could easily alert them to my intention, and it could easily went the other way around. They may be senile and corrupt, but they were no fools."
+"Somehow I doubt that would be a good idea in the first place. Explaining to the court that we need to arrest the immortal committee could easily alert them to my intention, and it could easily backfire with parliament. They may be senile and corrupt, but they were no fools."
 
 The bear glanced away, staying silent on that particular issue.
 
@@ -103,7 +105,8 @@ The bear sighed in relief. "I'll go and retrieve Hiroki and his son."
 
 "Thank you."
 
-# **James Archer**
+***
+**James Archer**
 
 "You want me to explain everything with regard to trans-dimensional travel?" I asked.
 
@@ -165,9 +168,10 @@ For several seconds, there was no talking inside the meeting room.
 
 With that, my girlfriend sealed the deal.
 
-# **Chief Engineer Sasaki**
+***
+**Chief Engineer Sasaki**
 
-Chief engineer of Toha Heavy Industries groaned in frustration at the obstinate half of the American couple, James Archer. The other half marched to their room after an especially bitter argument.
+The Chief engineer of Toha Heavy Industries groaned in frustration at the obstinate half of the American couple, James Archer. The other half marched to their room after an especially bitter argument.
 
 "What do you mean, no?" she grilled.
 
