@@ -108,4 +108,35 @@ This was supposed to be a quick stop-gap to make the machine safer for their occ
 ***
 ## **Chief Engineer Sasaki**
 
-"These are old extra-vehicular suits," Sasaki said, explaining to her ancestors from a parallel dimension. "Family heirloom. I expect you two to take good care of it."
+"These are old extra-vehicular suits," Sasaki said, explaining to her ancestors from a parallel dimension. "They are family heirlooms, passed from one generation to the next. I expect you two to take good care of it."
+
+The trio were in Sasaki's home, and for a senior engineer, it was surprising modest.
+
+"So...I am going to bring that suit?" the electrical engineer asked.
+
+"Yep, every crewmember is required to know how to wear and operate one. I won't let you go home without the suit."
+
+"It's clean, right?" Diana inquired.
+
+"Of course, it's clean," Sasaki assured. I put them through the washing machine before you two came.
+
+"Astronaut suits take forever to wear," James stated. "Not to mention that it's hard to move your hands."
+
+"Oh, we have thousand of years to develop extra-vehicular suit. It's much more comfortable and easier to wear. However, the one single exception is the urinary catheter."
+
+"Which is?"
+
+"All you need to know is that it's going to hurt." Which is to say that the urinary catheter was how astronauts go to the restroom in space, but the insertion will be a painful affair for their users.
+
+Archer did an involuntary wince.
+
+***
+## **Diana Rose**
+
+The excursion into zero-g was the most fun she ever had. Experiencing microgravity was quite a novel experience, though most of the time was focused on Sasaki's rapid instructions, noting that this sort of stuff was taught to Sidonian children and wasn't touched on after that. However, the couple wasn't going to have enough time to learn all of this before James was scheduled to depart for Earth, just enough to know how to make real use of the suits that are now their own.
+
+Now, she was back on solid ground, just walking and holding hand with her boyfriend.
+
+"You know, if this is a story, then it's a pretty uneventful so far" her boyfriend said.
+
+"That's not true," she said, recalling the tranquilizer knockout delivered by Sidonian security.
