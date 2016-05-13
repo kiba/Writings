@@ -19,7 +19,7 @@ No problem there. Attracting the authority's attention would be unwise to my psy
 Besides, there's no way I am letting the Cylons get dissected by amoral humans for the technological secrets embodied in his body.[/I]
 
 ***
-## **Cylon Delta Zero Three**
+## **Cylon Delta Zero Three* One*
 **8 AM in the morning.**
 
 
