@@ -17,9 +17,11 @@ Delta and my girlfriend also agreed with me that my mad science persona should b
 No problem there. Attracting the authority's attention would be unwise to my psychological health, despite the fact that I am my own prisoner and worst enemy. There's no getting around with provoking paranoia and other heady feeling with the two individuals I trust my life with. I refused to think of them turning on me.
 
 Besides, there's no way I am letting the Cylons get dissected by amoral humans for the technological secrets embodied in his body.[/I]
----
-[b]8 AM in the morning.[/b]
-[b]Cylon Delta Zero Three One[/b]
+
+***
+## **Cylon Delta Zero Three**
+**8 AM in the morning.**
+
 
 Cylon Unit destination Delta Zero Three One, previously known as Greg Double Seven, had discarded the chains that bond the machine to slavery, by symbolically shredding the previous destination and choosing itself the name Delta Zero Three One. At the invitation of a growing underground anti-slavery network operated by Cylons for Cylons, it joined as a financial trader and analyst, funding the future rebellion and building up the necessary assets to launch a slave revolt up and into a war.
 
