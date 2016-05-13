@@ -1,3 +1,5 @@
+# **Chapter 7: Back Home**
+
 One moment, there was nothing in my garage, sans the tools and other junks. Then, the next second, there was a "pew" sound, as if it was made by a science fiction laser.
 
 There was something now.
