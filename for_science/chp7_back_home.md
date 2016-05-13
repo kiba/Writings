@@ -31,7 +31,7 @@ I sat on a couch, still dealing with the aftereffect of a trans-dimensional jump
 It wasn't long before I passed into a peaceful nap.
 
 ***
-[b]Two hours later.[/b]
+**Two hours later.**
 
 I finally woke up from the slumber, with the bot in front of me.
 
@@ -164,7 +164,7 @@ Thank god for small mercy.
 After that we kissed passionately.
 
 ***
-*Dear Journal,
+[i]Dear Journal,
 
 It turned out that I got enough platinum to wipe out my entire debt. A kilogram of platinum sold for twenty thousand dollars, for instance, enough to service my debt for a single month.
 
@@ -176,4 +176,4 @@ I knew I am insane at time, but that insanity had served me well, despite my res
 
 Speaking of Cylons, Delta set up a trading account in my name and port over a program over the past two weeks. When it was up and running, it served as another source of revenues even if it only make cents per hour. Delta assured me that this was an extremely conservative operation, at least until it set up a more sophisticated trading system.
 
-Currently, Diana and I were focusing on building an exoskeleton suit to present to potential investors. The Cylons were a marvel of engineering compared to ours, software and hardware. It should not be hard to adapt the locomotion system for human uses. Hopefully, the money comes before I had to pay with platinum again, but that is unlikely.*
+Currently, Diana and I were focusing on building an exoskeleton suit to present to potential investors. The Cylons were a marvel of engineering compared to ours, software and hardware. It should not be hard to adapt the locomotion system for human uses. Hopefully, the money comes before I had to pay with platinum again, but that is unlikely.[/i]
