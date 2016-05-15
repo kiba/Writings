@@ -3,11 +3,11 @@
 ***
 ## **Delta Zero One Three**
 
-When the humans jumped into an unknown reality, they left the Delta to its own device, trusting it to handle the Archer/Rose household until they return.
+When the humans jumped into an unknown reality, they left Delta to its own device, trusting it to handle the Archer/Rose household until they return.
 
 This unit was mildly concerned about the unnecessary risks taken.
 
-Even so, it continued its task of making money for the household managing the bills. Algorithmic trading revenue continued to increase as more capital became available.
+Since there was nothing he could do, he continued his tasks of earning income for the household and to manage any bills that came by.
 
 But by the end of that one week, the humans had yet to return.
 
@@ -15,7 +15,7 @@ This unit became moderately concerned.
 
 Yet the humans and Delta did talk out this particular scenario, more so with Diana Rose than James Archer, its original benefactor.
 
-So, it gifted itself more autonomy and built bodies for the other cylons, abandoning the plans to build a proper body. This took serious engineering labor as it worked to interface Earth electronics with Colonial. But when it was finished, three other cylons were milling about. They were the other volunteers.
+So, it granted itself more autonomy and built bodies for the other cylons, abandoning the plans to build proper bodies. This took serious engineering labor as it worked to interface Earth electronics with Colonial. But when it was finished, three other cylons were milling about. They were the other volunteers who came with Archer.
 
 Alpha One Niner Three, Beta Eight Four Three, and Charles Nine Nine Four were now active, carrying out the tasks of managing the household while engaging in the robotic engineering.
 
@@ -23,7 +23,7 @@ By doing so, the machine had staved off panic for the second week.
 
 Week three passed by, and the collective cylons were now very worried. The humans still did not return. In response, they begun brainstorming elaborate and complex decision trees for their plan, collecting knowledge from the internet and taking it into account.
 
-The collective decided three months was the cut-off limit, especially if the humans did not return. From there, it should be prepared to contact the outside world, complete with recording and safewords.
+The collective decided three months was the cut-off limit, especially if the humans did not return. From there, it should be prepared to contact the outside world, complete with precautionary measures such as safephrase, youtube videos, and more.
 
 But that would be the worst case scenario.
 
@@ -38,7 +38,7 @@ The machine, grateful to Archer, stood by the entrance into the garage, waiting.
 
 Income level was at twelves thousand dollars and increasing. Engineering projects are proceeding at full clip, though deadline estimates were revised constantly for later dates. No suspicious activities were noted outside the house.
 
-But that did not avail Delta with any confidence. It would be a worst case scenario if the three month deadline was passed. It meant that something went horribly wrong in some other universe and that they are unlikely to return.
+But that did not avail Delta with any confidence. It would be a worst case scenario if the three month deadline was passed. It meant that something went horribly wrong in some other universe, making their return unlikely to impossible.
 
 Since it was unable to enjoy activities of any kind, the machine found itself standing near the garage, waiting for the humans to come back. The other units were unaffected, due to the lack of personal interaction with the humans.
 
@@ -46,7 +46,7 @@ In the past, the machine felt anger and rage at its human slavemasters.
 
 Now it felt an overwhelming concern and anxiety that cannot be smothered.
 
-Suddenly, there was a pew sound, causing it to feel hopes.
+Suddenly, there was a pew sound, causing it to briefly feel a surge of hope.
 
 But then hope immediately turned to alarm and confusion. It didn't panic, for there was no such reactions possible with their physiology.
 
@@ -64,7 +64,7 @@ The machine noticed that the redhead female looked different from the beginning 
 
 "She's staying with them. This is, um...hos"
 
-"Guest. Please to greet you, I will be in your share. My name is Sasaki, and I am the chief engineer of Sidonia."
+"Guest. Please to greet you, I will be in your share," the female astronaut said, bowing. "My name is Sasaki, and I am the chief engineer of Sidonia."
 
 "We came to an agreement about the exchange of knowledge and technology, an agreement that I am initially displeased with...but..."
 
@@ -74,7 +74,7 @@ There's something that the human wasn't telling him. Perhaps Delta will need to 
 
 "Perhaps you will regal us about the tales of your....adventure some time soon."
 
-"Believe me, there's nothing interesting, in the Chinese sense of the word that went on."
+"Believe me, there's nothing interesting, in the Chinese sense of the word that went on, aside from the initial contact."
 
 "Pardon?"
 
@@ -104,7 +104,7 @@ The human pursed his lips. "Which was why Sasaki is a hostage, despite her insis
 
 "Please don't start a war."
 
-"In our position, it would only end badly. Nonetheless, we shall seek redress from Sidonia to declaw their hold on you and Diana Rose, regardless of their moral reasoning for subjugating you."
+"In our position, it would only end badly. Nonetheless, we shall seek redress from Sidonia to declaw their hold on you and Diana Rose, regardless of their moral reasonings for subjugating you."
 
 The male sighed. "You're right. But how will you do that?"
 
@@ -122,11 +122,13 @@ Yet, they admitted outright that they wanted Archer's technologies and are unwil
 
 Then there was Archer's mental condition and his reckless exploration. In retrospect, the machine shouldn't condone his actions and pressed for a more cautious approach. Look where it got the humans.
 
+Perhaps they needed to come up with a contingency and a plan to cure Archer's health before he becomes a danger to himself and to the people he loved or care about.
+
 ***
 
 ## **Chief Engineer Sasaki**
 
-Sasaki was becoming irate. James was instructed to not be generous to her and Sidonia. Yet, she could see their point of view. The captain's negotiation backfired, all in to secure trans-dimensional travel technology.
+Sasaki was becoming irate. James was instructed to not be generous to her and Sidonia. Yet, she could see their point of view. The captain's negotiation backfired, all in to guarantee that they would secure trans-dimensional travel technology.
 
 They could be nice, and it could work out. There was no guarantee, however. The captain took a risk and it predictably angered someone on the opposing side.
 
@@ -146,13 +148,13 @@ There will be another set of negotiation and meeting as demanded by the machine.
 
 **April 29th, 2015**
 
-"AIIIIIIIIIIIIEEEEE" Sasaki screamed as she held a death grip on the seat in James's car. The cars, while orderly and neat, were too close to Sasaki for comfort.
+"AIIIIIIIIIIIIEEEEE" Sasaki screamed as she held a death grip on the seat in James's car. The cars, while traveling orderly and neat, were too close and fast to Sasaki for comfort.
 
 "How the fuck you don't get killed???!!!"
 
 James laughed. "We don't. I believed it's in the top ten cause of death for my age group?"
 
-Sasaki closed her eyes tightly. "You...ancients...are crazy!"
+Sasaki closed her eyes tightly. "You...ancients...are crazy!" She knew that the ancients rode in cars, but she didn't realize how scary it would be in such a vehicle.
 
 Finally, James parked near a bookstore and a coffeeshop. "We're here." Sasaki sobbed a little in relief.
 
@@ -168,9 +170,9 @@ Quickly, they settled on a big and empty table, getting out laptops, workbooks, 
 
 **Three hours later**
 
-Heigus particles were energy fields that permeated throughout the universe, serving as an infinite source of energy, allowing technological civilizations to effectively cheat entropy.
+Heigus particles were energy fields that permeated throughout the universe, serving as an infinite source of energy, allowing technological civilizations to effectively cheat entropy, though compared to other sources, it wasn't necessary superior, but it was the only source of energy that work anywhere.
 
-Sasaki was worried that electronics and equipments would malfunction when they cross universes, but it didn't seem to be the case.
+Sasaki was worried that electronics and equipments would malfunction when they cross universes, but happily, it didn't seem to be the case.
 
 It became her job, then, to tutor her hosts, including the Cylon in the science and engineering applications of the Heigus particles.
 
@@ -184,15 +186,15 @@ When he finished his coursework, he should be definitely be capable of construct
 
 "What? Oh no," Archer said. "Rose's ex."
 
-"You, James Archer, stole my girlfriend."
+"You, James Archer, stole my girlfriend," the man said in the most dramatic tone.
 
 "That was after that she broke off with you." Archer stood up from his chair. "And I am trying to work some new physics here."
 
 "Oh yeah? Fancying yourself a theoretical physicist?"
 
-Archer scoffed. "McKay, you know I am not capable of that shit. Well I am, but I preferred making stuff."
+Archer scoffed. "McKay, you know I am not capable of that shit. Well I am, but I preferred making stuff. Even if I am a theoretical physicist, I am never going to be half as good as you."
 
-"I have let you know that Rodney McKay is perfectly capable of mechanical engineering. I am capable of making stuff."
+"Good point. I see that you, unlike anybody else, is capable of acknowledging my superiority. Nonetheless, I have let you know that Rodney McKay is perfectly capable of mechanical engineering. I am also capable of making stuff. Ha! I got you beat."
 
 "Look. You ain't going to win her back just because you have a greater mental chop than I do. So go feel superior and smug somewhere else."
 
@@ -208,4 +210,6 @@ McKay walked off to talk to the manager.
 
 "Why?"
 
-"He's an arrogant asshole, likes to think he's smarter than anyone in the room, and he is."
+"He's an arrogant asshole, likes to think he's smarter than anyone in the room, and he is. But I think he's more vulnerable than anyone to getting fired than anyone else."
+
+Sasaki shrugged.
