@@ -91,6 +91,7 @@ Of course, Colonial FTL travel required no such beacons, without the need to sur
 "And of course, you could also jam trans-dimensional travel," I said, mentioning one other limitation.
 
 Chou nodded at that. It was one of the first things the Sidonian realized in conjunction with the Cylons when they made their initial study in trans-dimensional theory.
+
 ***
 ## **Captain Kobayashi**
 
@@ -123,6 +124,7 @@ At least, the rocket was launched into deep space.
 "And we're done for now," Sasaki spoke up. "We'll know the result when the shuttle activate and send back videos."
 
 Kobayashi nodded. "I'll leave you to your duties."
+
 ***
 ## **James Archer**
 **May 26, 2015**
