@@ -1,4 +1,4 @@
-# **Chapter 2: Survival Failure**
+# **Chapter Three: Survival Failure**
 
 There was a fucking planet in the sky!
 
