@@ -1,4 +1,4 @@
-# **Chapter 1: A Planet in the Sky**
+# **Chapter Two: A Planet in the Sky**
 
 At first, I can only see pure white. Then the distortion began, twisting every part of my body, but not actually twisting. Finally, the endless white reformed into an actual image of something, a forest. Scratch that, there was also the scent and smell of the forest.
 
