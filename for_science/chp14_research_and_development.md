@@ -36,7 +36,7 @@ I was sure that they weren't going to harm me, but the Cylons disagreed. Even af
 
 "Trust will come, eventually. It had to be earned."
 
-Daichi Chou was one of the few Sidonians who was sent to my reality, exchanging place every few days with Sasaki, given that she was still the head honcho of the Sidonian engineering department, thus posessing responsiblity from back home. He's a really smart fellow, though he suffered from the desire to use Sidonians technologies in everything, given that it was indeed superior to Earthling tech.
+Daichi Chou was one of the few Sidonians who was sent to my reality, exchanging place every few days with Sasaki, given that she was still the head honcho of the Sidonian engineering department, thus posessing responsibility from back home. He's a really smart fellow, though he suffered from the desire to use Sidonians technologies in everything, given that it was indeed superior to Earthling tech.
 
 That didn't mesh with well with the Cylon policy of not being too reliant on technologies they and I don't understand, not until we were able to understand and replicate their tech base, which was an annoyingly slow going process.
 
