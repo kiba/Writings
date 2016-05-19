@@ -1,4 +1,4 @@
-# **Chapter Four: Enslaved Minds**
+# **Chapter Five: Enslaved Minds**
 
 They are slaves. I was able to tell you that much within nine days of being stuck and stranded here, and having nothing better to do but learn whatever language they spoken.
 
