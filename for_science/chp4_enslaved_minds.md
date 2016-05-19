@@ -1,3 +1,5 @@
+# **Chapter Four: Enslaved Minds**
+
 They are slaves. I was able to tell you that much within nine days of being stuck and stranded here, and having nothing better to do but learn whatever language they spoken.
 
 At least, I think they are slaves. It's difficult to tell anyway, even with lot of pictures to convey meanings.
