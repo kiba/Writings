@@ -1,4 +1,5 @@
 # **Chapter Four: Meeting Killerbots**
+**February 5, 2015**
 
 I stirred from my sleep.
 
@@ -10,7 +11,7 @@ I was also in a comfy bed, covered by blankets, in what appeared to be a wooden 
 
 "You appear to be awake..." a monotonous voice said.
 
-I turned my head, confused. "What?" I asked, not understanding.
+I turned my head, confused. "What?" I asked, not understanding the speech.
 
 "Do you understand me?" it asked.
 
@@ -38,7 +39,7 @@ It was a hamburger, or this Earth's version of the hamburger.
 
 I experimentally reached out and grabbed it, then with reluctance, I took a bite.
 
-It was good. It had an unfamiliar texture, but still tasty all the same. I could say that this is a different version of Earth's hamburger. I wasn't going to throw up, I hoped.
+It was good. It had an unfamiliar texture, but still tasty all the same. I could say that this really is a different version of Earth's hamburger. I wasn't going to throw up, I hoped.
 
 But I was in a room filled with machines. I think they are androids or robots, maybe owned by somebody?
 
@@ -48,7 +49,7 @@ Once I finished, I asked, "got any more?"
 
 It just stood there, rolling its eye back and forth, saying nothing.
 
-"Communication failure," it said. "Communication not possible. Language not in database."
+"Communication failure," it said. "Communication not possible. Language is not in database."
 
 I sighed. Maybe there wasn't any seconds. Anyway, I stayed quiet, saying nothing, and waiting for the robot to take the lead.
 
@@ -56,7 +57,7 @@ After staying motionless for sometime, it approached me and extended my hand. I 
 
 I was led to the outside world.
 
-Immediately, I noticed seven more robots, all with the same identical make and model, surrounded by nature. If this was a set, then it's a incredible well hidden one.
+Immediately, I noticed seven more robots, all with the same identical make and model, surrounded by nature. If this was a tv show or movie set, then it's a incredible well hidden one.
 
 I noticed something else. there's no way a human could fit inside any of those bodies, unless they were midgets. That narrowed it down to remote control bots or actual bots.
 
