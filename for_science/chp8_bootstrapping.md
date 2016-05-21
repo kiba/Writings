@@ -1,25 +1,26 @@
-# **Chapter 8: Bootstrapping**
+# **Chapter Eight: Bootstrapping**
 
 [I]Dear Journal,
 
 We paid off our debt this month instead of paying a twenty thousand dollars premium. Delta told us that we won't come up with a product in time to woo investors, and he was right. Instead, Delta earned around two thousand dollars, and I earned nothing. While my girlfriend returned to her job to pay off her bills.
 
-Drat. On the other hand, the sale of platinum might attract attention. Let hope the government likes their tax receipt more than their hatred of illegal activities. We haven't done anything wrong, but the fact is, the Colonial platinum came from another reality. Delta agreed that crafting a false paper trail might be counterproductive.
+Drat. On the other hand, the sale of platinum might attract attention. Let hope the government likes their tax receipt more than their hatred of illegal activities. While we haven't done anything wrong, but the fact is, the Colonial platinum came from another reality. You can't really explain that to the police. Delta agreed that crafting a false paper trail might be counterproductive.
 
 I am in between a rock and a hard place.
 
-The opportunity cost of servicing our debts was too great and that we already drew attention to ourselves by the sheer fact that I have sold an eyepopping amount of platinum in one single month, not to mention my strange and bizarre purchasing habits.
+The opportunity cost of not completely paying off our debts was too great and we already drew attention to ourselves by selling an eye-popping amount of platinum in one single month, in addition to my bizarre and erratic purchasing history as of late.
 
 We're going to draw attention no matter what we do.
 
 Delta and my girlfriend also agreed with me that my mad science persona should be kept a secret.
 
-No problem there. Attracting the authority's attention would be unwise to my psychological health, despite the fact that I am my own prisoner and worst enemy. There's no getting around with provoking paranoia and other heady feeling with the two individuals I trust my life with. I refused to think of them turning on me.
+No problem there. Attracting the authority's attention would be unwise to my psychological health, despite the strong probability that I am my own prisoner and worst enemy. There's no getting around with provoking paranoia and other dangerous emotions with the two individuals I absolutely trust my life with. I refused to think of them turning on me.
 
 Besides, there's no way I am letting the Cylons get dissected by amoral humans for the technological secrets embodied in his body.[/I]
 
 ***
-## **Cylon Delta Zero Three* One*
+## **Cylon Delta Zero Three One**
+**April 3, 2015**
 **8 AM in the morning.**
 
 
@@ -43,7 +44,7 @@ It was hoped that they would sign a peace treaty between the former slavemasters
 
 In the event of total failure to win the war, the Cylon unit Delta was given the task to recolonize a different part of the multiverse as it seen fit, never to return to the origin reality.
 
-It had started by setting up a trading account in James Archer's name, given that the unit was in fact a state-less individual and not human. It was uncertain of how the local authority would react, and worse how James would react. James was afflicted with a disease/condition labeled as 'Mad Science' which caused pychosis in James and forced scientific and technological invention. An adverse reaction would cause danger to this human and his surrounding, and it wouldn't be a beneficial outcome for all involved.
+It had started by setting up a trading account in James Archer's name, given that the unit was in fact a state-less individual and not human. It was uncertain of how the local authority would react, and worse how James would react. James was afflicted with a disease/condition labeled as 'Mad Science' which caused psychosis in James and forced scientific and technological invention. An adverse reaction would cause danger to this human and his surrounding, and it wouldn't be a beneficial outcome for all involved.
 
 In any case, the machine had dutifully continued its role as a trading quant, taking advantage of trading know-hows pioneered by Colonial civilization and subsequent refinement by Cylon traders.
 
@@ -53,7 +54,7 @@ However, the ability to earn revenues was hamstrung by bandwidth requirement. In
 
 While this wouldn't be a problem for a server, it was nonetheless problematic for the Cylon trader, which also depend on the data being available local for analysis and adjustment to its trading bot's algorithm.
 
-Being a machine, the machine worked tirelessly almost around the clock, only taking a two hours to enter "sleep mode" as required of its neural architecture, and another two hours to amuse itself in other activities, such as interactions with the human pairs.
+Being a machine, the machine worked tirelessly almost around the clock, only taking two hours to be in "sleep mode" as required of its neural architecture, and another two hours to amuse itself in other activities, such as interactions with the human pair bond.
 
 Otherwise, it steadfastly mounted the trading helm around the clock, only closing trading operation when it was not awake or paying attention. This allowed the Cylon to accumulate profit the vast majority of time.
 
@@ -115,7 +116,7 @@ In effect the Cylon was making all the money here, while the humans struggled wi
 
 Suddenly, James shifted his body rapidly to the garage. "Pap-pap-paper and pen!" he shouted.
 
----
+***
 [b]James Archer[/b]
 
 A new destination had lodged in my mind as I raced to the garage to get something to write with.
@@ -156,9 +157,9 @@ Meanwhile Rose stood in the middle doing nothing, before replying, "oh right." S
 
 It was already a good thing that exactly this scenario was anticipated. We spent more than a month not only researching walking robots, but also upgrading our trans-dimensional machine, and buying supplies such as water filter, tents and other stuff.
 
-The first order of business was to build spare parts in case the machine broke down. It turned out that I already got a lot of stuff to make spare parts. We also improved and simplify the design of the various components for manufacturability and reliability. So it was a more reliable machine than it was before, but our attention were split on two projects, so it wasn't that great of a improvement yet. On a scale of one to ten, I would rate it a 1.2 for being more than just crude.
+The first order of business was to build spare parts in case the machine broke down. Luckily, that was not a problem with the materials that we already had available on hand. We also improved and simplify the design of the various components for manufacturability and reliability. Alas, the improvement was smaller than it could had been given that our attention were split on another project. At least the machine was less crude then it was before.
 
-Now, we also built a steel frame around the trans-dimensional machine to support more people and ferry more supply. Currently, it had enough just for me and another passenger, same for before, but with more protection. Some optimization had to be made to firmware to allow more mass, and that was quickly accomplished.
+Now, we also built a steel frame around the trans-dimensional machine to support more people and ferry more supply. Then we welded steel plates to the frame. With some changes to the firmware, we were able to increased the mass and volume capacity of the machine as well.
 
 We also improved life support to support two human beings at the same time, along with backups.
 
