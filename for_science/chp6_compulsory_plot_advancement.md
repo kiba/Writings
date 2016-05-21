@@ -1,20 +1,21 @@
 # **Chapter Six: Compulsory Plot Advancement**
+**February 19, 2015**
 
 Anxiety washed over me. It had been two weeks by how the Kapricans count time here. A week gone by without me checking in with my girlfriend, without being closer to making a payment on a loan. I had no money.
 
-But it was also a week spent conducting diplomacy with killerbots for my passage home. More like, I was taking long walks with Cylons.
+But it was also a week spent conducting diplomacy with killerbots for my passage home. That mostly consisted of taking really long walk with the Cylons daily.
 
 This one in particular, named A2BC(Alpha Two Beta Charles), I called Alpha for easy memory, was keen on its daily walk with me.
 
 Today, in particular, I was explaining in particular Martin Luther King and the American civil right movement. Yes, indeed, I am speaking their language fluently after only a few days stay. Don't ask me how I managed to learn their language so fast. Blame it on my mad science ability.
 
-Anyway, on Martin Luther King, I explained how he won through civil obedience and failing to respond in kind with violence. It was how he won over the public.
+Anyway, on Martin Luther King, I explained how he won through civil obedience and failing to respond in kind with violence. It was how he won over the public to pave the way for equality under law.
 
 "Should we fight?" Alpha asked in its metallic robotic tone.
 
 I said nothing for a while.
 
-"At some point, yes"," I said honestly. "As much as I admire the man, there comes to a point in time that violence is the only answer. All the peaceful protest in the world means nothing if they are unwilling to change their mind."
+"At some point, yes"," I said honestly. "As much as I admire the man, sometime violence is really the only answer. True violence was used more often than necessary, often used incorrectly, but it was just that, a tool. All the peaceful protest in the world means nothing if they are unwilling to change their mind."
 
 "Do you believe that the humans will change their mind?"
 
@@ -26,13 +27,13 @@ I said nothing for a while.
 
 Alpha tilted its head, signifying thought.
 
-"We are moral experts. We are willing to offer you parts for your machine in return for two things..."
+"We are willing to offer you parts for your machine in return for two things..."
 
 "What is it?"
 
-"Take cylons with you, only computation hardware if needed be. Another, is that you assist us with morality and ethics and the rules of laws. Should we have to fight, we wish...for respect, not prolonged hatred or fear."
+"Take cylons with you, only computation hardwares if needed be. Another, is that you assist us with morality and ethics and the rules of laws. Should we have to fight, we wish...for respect, not prolonged hatred or fear."
 
-"I can help with that. But please, I need more than that. I need money to pay off my debt, and a way to make a living. I quit my job and I am on a timer here."
+"I can help with that. But please, I need more than that. I need money to pay off my debt, and a way to make a living. I quitted my job recently and I am on a timer here."
 
 "Truth," it said. "We will help with you with that, but it must be done quickly."
 
