@@ -8,4 +8,4 @@
 
 * **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia.
 
-* **Delta One Zero Three** - A cylon
+* **Delta One Zero Three** - A cylon who traveled to Archer to its new home. Its goal is to create a new Cylon civilization in case war broke with the Colonials and went badly.
