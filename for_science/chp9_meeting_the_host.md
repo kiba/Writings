@@ -1,4 +1,4 @@
-# **Chp9 Meeting the Host**
+# **Chapter Nine: Meeting the Host**
 
 ***
 **James Archer**
@@ -7,13 +7,13 @@ It was a good thing that we had the barf bags handy. Predictably, we barfed from
 
 In short order, an unpleasant smell filled the brown bags. Since, we were feeling nauseous, it was rather difficult to focus on the task of sealing those bags inside a plastic container.
 
-We didn't know how long, but lights started shining into our window.
+We didn't know how long, but lights started shining into the one window we installed on this machine.
 
-Needless to say. It didn't look good. There were men outside in white clothes and they were all masked like they were special ops ninjas from a manga.
+Needless to say. It didn't look good. There were men outside in white clothes and they were all masked, giving off a sinister vibe.
 
 "Intruders, get out of the vehicle and put your hands up in the air," one of them shouted in Sidonian Japanese.
 
-Neither of us understood what they were saying. It was just moonspeaks to us.
+Neither of us understood what they were saying. It was just moonspeech to us.
 
 I sighed in annoyance at having to learn yet another language.
 
@@ -21,7 +21,7 @@ I sighed in annoyance at having to learn yet another language.
 
 I nodded in agreement.
 
-I opened the door and walked out slowly with my hands up in the air, in the midst of my tiredness.
+I opened the door and walked out slowly with my hands up in the air, fighting against my tiredness and desire for a quick nap.
 
 "Who are you? State your business!" the man to the side of me said.
 
@@ -40,7 +40,7 @@ Suddenly, I drifted into unconsciousness and fell down to the floor, my face str
 
 Diana groaned from the hit of tranquilizer darts aimed at her face, which had dosed her to sleep.
 
-She stirred from the sleep, opening up her eyes to a bland metal ceiling with built-in lighting fixture.
+She stirred from her sleep, opening up her eyes to a bland metal ceiling with built-in lighting fixture.
 
 "Where the hell am I?" she said, not quite remembering the event that led her to this state and place.
 
@@ -48,7 +48,7 @@ She sat up, taking in the view of her surrounding.
 
 It was a room, of a sort. There were no visible doors, actually, and only the barest of accommodations. Almost everything seemed to be made of stainless steel, with the least amount visible weldings, rivets, or cuts they can get away with.
 
-There was a sink with a mirror, toilet, a table and a chair, a flat top that obviously meant to be a bed. All seemly were not to be yanked.
+There was a sink with a mirror, toilet, a table and a chair, a flat top that obviously meant to be a bed. They all were designed to be unyankable, not without significant force.
 
 And it was extremely clean with absolutely no dust as far as the eye can see. There was no evidence that anybody ever lived here.
 
@@ -94,7 +94,7 @@ Immediately, she noticed the sword scabbard and gun hostler on the person she's 
 
 Time passed as she went up in an elevator with them, to god knows where. But it felt like an eternity.
 
-Eventually, the wayward traveler and her escorted arrived at a more inviting abode, complete with actual bedsheet, shelves, pillows, cup remen, and other creature comforts, including an actual restroom. However, nowhere had she gone outside the whole time.
+Eventually, the wayward traveler and her escorted arrived at a more inviting abode, complete with actual bedsheet, shelves, pillows, cup ramen, and other creature comforts, including an actual restroom. However, nowhere had she gone outside the whole time.
 
 And she had kept track the entire time, estimating the distance travel, and it wasn't inconsiderable. Somewhere around three kilometers.
 
