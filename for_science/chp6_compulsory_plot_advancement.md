@@ -4,9 +4,9 @@ Anxiety washed over me. It had been two weeks by how the Kapricans count time he
 
 But it was also a week spent conducting diplomacy with killerbots for my passage home. More like, I was taking long walks with Cylons.
 
-This one in particular, named A2BC, I called Alpha for easy memory, was keen on its daily walk with me.
+This one in particular, named A2BC(Alpha Two Beta Charles), I called Alpha for easy memory, was keen on its daily walk with me.
 
-Today, in particular, I was explaining in particular Martin Luther King and the American civil right movement. Yes, don't ask me how I managed to speak fluently in their language so fast. Blame it on my mad science ability.
+Today, in particular, I was explaining in particular Martin Luther King and the American civil right movement. Yes, indeed, I am speaking their language fluently after only a few days stay. Don't ask me how I managed to learn their language so fast. Blame it on my mad science ability.
 
 Anyway, on Martin Luther King, I explained how he won through civil obedience and failing to respond in kind with violence. It was how he won over the public.
 
