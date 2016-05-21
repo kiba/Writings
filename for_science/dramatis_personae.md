@@ -1,6 +1,6 @@
 # **Dramatis Personae**
 
-* **James Archer** - Electrical engineer who discovered and invent trans-dimensional travel. He is also afflicated with what he called the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering.
+* **James Archer** - First Appearance: Chapter 1. Electrical engineer who discovered and invent trans-dimensional travel. He is also afflicated with what he called the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering.
 
 * **Diana Rose** - A mechanical engineer who became a live-in girlfriend after her discovery of Archer's secrets.
 
