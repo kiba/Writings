@@ -72,4 +72,33 @@ Then the gentleman named his price.
 
 "LUDICROUS!" he roared. "Look man, I am never ever going to buy it any price. It would bankrupt me."
 
-After a couple of haggling, the siblings and the pawn shop owner finally agreed to a prize. It was a great deal, all considering, even if he needed to contact a friend to take a good look at it. No doubt it would reap a healthy profit.
+After a couple of rounds of haggling back and forth, the siblings and the pawn shop owner finally agreed to a price. The jewelries were exchanged for liens and receipt. Then the duo disappeared into the rain, leaving behind wet tracks in the highly organized pawnshop.
+
+It was a good deal, he thought. However, he will need to contact a friend to take a good look at it. He knew a lot about diamonds and jewelries but a jeweler would of course know more. The only other thing of note was the rather unusual exchange with the customers, but he thought nothing further of it.
+
+***
+**Lieutenant Akeno Noguchi**
+
+"Let look for a cheap motel," the lieutenant said.
+
+"You think they required identification?" the anthropologist asked.
+
+"No? The pawnshop keeper didn't ask for it."
+
+"Right."
+
+Thievery was virtually unheard of in Sidonia. Nobody went hungry, and everybody has a place and role in society. It was more common to see thieves in the realm of fiction and from studying the historical records. But this isn't what plague the lieutenant.
+
+"The shopkeeper we met was very perceptive," he noted.
+
+"Maybe we stand out?"
+
+"Of course. But he felt that it was the worth of doing business with us. It was very informative." The primary objective back at the shop wasn't to sell diamonds for local currency, though it was one of their goal, but to learn the basic process for buying and selling goods in this society.
+
+Sure enough, after looking through two or three business place and ascertaining the price, they were able to get a room with no identification necessary, given that liens seemed to function as cash. If they were to use something like a debit card, they would required identification.
+
+The motel room was rather dildated and basic as expected, but full of colors.
+
+"Ugh. What is with the locals' love for gnarly colors? Subdued looks better," he complained.
+
+"I did conclude that they seemed to have a strong fondness for colors, especially for the names of individuals."
