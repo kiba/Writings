@@ -10,4 +10,8 @@
 
 * **Delta One Zero Three** - A cylon who traveled to Archer to its new home. Its goal is to create a new Cylon civilization in case war broke with the Colonials and went badly.
 
-* **Sil Silver** - Faunus pawn shopkeeper.
+* **Sil Silver** - First Appearance: Chapter 15. Faunus pawn shopkeeper.
+
+* **Lieutenant Akeno Noguchi** - First Appearance: Chapter 15. Part of newly formed infantry corp. Sent with an anthropologist Keiko Toma to gather basic information and set up operation.
+
+* **Doctor Keiko Toma** - First Appearance: Chapter 15. An anthropologist sent with lieutenant Akeno Noguchi on an intelligence mission.
