@@ -15,3 +15,5 @@
 * **Lieutenant Akeno Noguchi** - First Appearance: Chapter 15. Part of newly formed infantry corp. Sent with an anthropologist Keiko Toma to gather basic information and set up operation.
 
 * **Doctor Keiko Toma** - First Appearance: Chapter 15. An anthropologist sent with lieutenant Akeno Noguchi on an intelligence mission.
+
+* **Ruby Rose** - First Appearance: Chapter 15. Fifteen years old Huntress-in-training involved in an altercation with armed robbers at a dust shop.
