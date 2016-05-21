@@ -120,5 +120,28 @@ The soldier took out a tablet from his backpack and begun composing a journal lo
 He smiled and went back to work on his report.
 
 ***
-**Ruby Rose**
-**From Dust Till Dawn, Vale**
+**Doctor Keiko Toma**
+
+Books were very useful, Keiko decided, and potentially very cheap. After entering a bookstore called Tukson's Book Trade, she went on a spending spree buying all the clearance items. Which was how she learned the word for humans with furry features, 'faunus', after mistakenly calling the owner a 'human'.
+
+Of course, they had taken half of the day just scanning the contents of books, reading, and recording annotation.
+
+"Those Grimm...You think they're real?" the lieutenant said, uncertainly.
+
+"It does fit in what we know," Keiko said. "A broken moon, and a world called Remnant, mostly infested by the creatures of darkness. Does that seems natural to you?"
+
+"No. Not in the least. And the planet isn't certainly Earth, unless Earth has a huge geographic divergence."
+
+There was a stomach growl coming from the lieutenant.
+
+"You're confident enough to try ordering food?"
+
+"Sure."
+
+***
+
+It was already nightime when the duo went around sightseeing after dinner. One could see the clear glow of the shattered moon. Holographic lamp lighted the street, and there appeared to be nothing happening.
+
+"One last thing before we go home," Noguchi said, pointing to a shop called Dust Till Dawn. "Sample acquisition of dust."
+
+Dust appeared to be how the locals powered their technology and civilization, and there's nothing like it in the Sidonian knowledge database. So, it naturally became a priority for Sidonia to acquire a sample for study.
