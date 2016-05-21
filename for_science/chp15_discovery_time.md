@@ -2,6 +2,7 @@
 
 **Forest 19, Vale**
 **Lieutenant Akeno Noguchi**
+**June 5, 2015**
 
 Transiting was still an unpleasant affair as Akeno contemplated his growing nausea and his partner in this operation, Toma Keiko. They just arrived in the middle of a forest in a raging storm, with heavy rain and rolling thunders.
 
@@ -121,6 +122,7 @@ He smiled and went back to work on his report.
 
 ***
 **Doctor Keiko Toma**
+**June 6, 2015**
 
 Books were very useful, Keiko decided, and potentially very cheap. After entering a bookstore called Tukson's Book Trade, she went on a spending spree buying all the clearance items. Which was how she learned the word for humans with furry features, 'faunus', after mistakenly calling the owner a 'human'.
 
@@ -145,3 +147,17 @@ It was already nightime when the duo went around sightseeing after dinner. One c
 "One last thing before we go home," Noguchi said, pointing to a shop called Dust Till Dawn. "Sample acquisition of dust."
 
 Dust appeared to be how the locals powered their technology and civilization, and there's nothing like it in the Sidonian knowledge database. So, it naturally became a priority for Sidonia to acquire a sample for study.
+
+Suddenly, the window of the shop shattered and out came a girl with red cape in black skirt, and a large metal object.
+
+"What in the world?" the anthropologist asked as the duo froze themselves at the worst seconds in the middle of an encountered.
+
+"Let get-" the lieutanant shouted before he was soaked in bullets from the cross-fire moments later.
+
+"Noguchi-san!" the doctor shouted as she tried to help her partner.
+
+The fight continued, and more bullets rung out, striking the doctor as well, before falling down herself.
+
+There were plenty more explosion before the sounds of jet arrived.
+
+What was going on? Was she's going to die here on a foreign planet in a foreign universe. That can't be...possible.
