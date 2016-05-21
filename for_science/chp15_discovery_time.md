@@ -97,8 +97,28 @@ Thievery was virtually unheard of in Sidonia. Nobody went hungry, and everybody 
 
 Sure enough, after looking through two or three business place and ascertaining the price, they were able to get a room with no identification necessary, given that liens seemed to function as cash. If they were to use something like a debit card, they would required identification.
 
-The motel room was rather dildated and basic as expected, but full of colors.
+The motel room was clean, though the decor left a lot to be desired. However, it seemed that there were a level of solidness in the locals' architecture that Earth and even Sidonian buildings lack.
 
-"Ugh. What is with the locals' love for gnarly colors? Subdued looks better," he complained.
+"Surveillance footage revealed the local's fondness for strong primary colors, though I didn't expect it to extend to its decor," the lieutenant said, commenting on the choices made for this motel room, which made the room an eyesore to look at.
 
-"I did conclude that they seemed to have a strong fondness for colors, especially for the names of individuals."
+"There's probably a reason for why the locals are choosing such colors and all the names are apparently related to colors. I heard about this 'great war' or simply the 'war'," the anthropologist commented.
+
+"Which is why we're hitting the bookstore tomorrow."
+
+"Agreed."
+
+The soldier took out a tablet from his backpack and begun composing a journal log for the mission. Meanwhile, the anthropologist took out her phone and begun photographing every centimeter of the space.
+
+"What you're doing?"
+
+"You can infer a lot of information from just this room. We can compare it to our database ancient Earth hotels."
+
+"We're going to be doing that a lot, aren't we? Looking at the most ordinary of details."
+
+"How else are we going to gather useful intelligence without being noticed by the locals?"
+
+He smiled and went back to work on his report.
+
+***
+**Ruby Rose**
+**From Dust Till Dawn, Vale**
