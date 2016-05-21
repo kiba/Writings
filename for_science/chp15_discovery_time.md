@@ -1,9 +1,9 @@
 # **Chapter Fifteen: Discovery Time**
 
 **Forest 19, Vale**
-**Akeno Noguchi**
+**Lieutenant Akeno Noguchi**
 
-Transiting was still an unpleasant affair as Akeno contemplated his growing nausea and his companion, Toma Keiko. They just arrived in the middle of a forest in a raging storm, with heavy rain and rolling thunders.
+Transiting was still an unpleasant affair as Akeno contemplated his growing nausea and his partner in this operation, Toma Keiko. They just arrived in the middle of a forest in a raging storm, with heavy rain and rolling thunders.
 
 "You're going to be alright, Keiko-sensei?" he asked the anthropologist.
 
@@ -54,4 +54,22 @@ Sil scrutinized the jewelry quickly before looking up. Some were unfamiliar, but
 
 "They were my grandmother's heirloom, unfortunately." It was a bare-naked lie. That raised a red flag for Silver. If he brought stolen merchandise, there would be a strong possibility of police coming to take back the merchandise and he'll be out of the money that he brought.
 
-"Oh, I got a lot of those stories. People sell them because of desperate financial stride they're in, sometime of their own making, sometime not. They're definitely real tragedies. But I also know when someone is lying to me. Did you steal them?"
+"Oh, I got a lot of those stories. People sell them because of the desperate financial stride they're often in, sometime of their own making, sometime not. They're definitely real tragedies. But I also know when someone is lying to me. Did you steal them?" The shop owner schooled his expression and concentrated sharply on both of his customers' face.
+
+There was a strong reaction from both of them. He could feel the sheer fury and outrage from the man, with his sibling stepping back quickly. In just a second, the humans quickly recomposed themselves.
+
+"No," the female spoken with strong resolution. "We did not steal them."
+
+"Your story is full of shit, but you did not steal them. I presume that you didn't come into possession using somewhat shady means."
+
+There was no trepidation or enmity he can detect, but it seemed that they were hiding something. What in the world are those two hiding?
+
+"Are you still considering buying them from us?"
+
+"Yes."
+
+Then the gentleman named his price.
+
+"LUDICROUS!" he roared. "Look man, I am never ever going to buy it any price. It would bankrupt me."
+
+After a couple of haggling, the siblings and the pawn shop owner finally agreed to a prize. It was a great deal, all considering, even if he needed to contact a friend to take a good look at it. No doubt it would reap a healthy profit.
