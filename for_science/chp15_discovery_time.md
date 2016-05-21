@@ -24,13 +24,13 @@ What was out there? The local radio broadcasting station naturally leave out a l
 Sidonia elected to send Lieutenant Noguchi and Doctor Toma on a short term infiltration mission to gather information discretely up close and personal.
 
 ***
-**Sill**
+**Sill Silvers**
 
-When the weather was bad, customers were dissuaded from visiting, and therefore today's a slow business day. Still pawn shop owner Sill didn't close today, nor would he close on any day of the week, not even on a holiday. He hadn't have a vacation for close to five years.
+When the weather was bad, customers were dissuaded from visiting, and therefore today's a slow business day. Still pawn shop owner Sill Silver didn't close today, nor would he close on any day of the week, not even on a holiday. He hadn't have a vacation for close to five years since he opened his shop.
 
-Truth be told, a lot of potential customers held still grudges against Faunus, and just decided to not patronize his business. So much for the Faunus Rights Revolution, and the ever improving equality between fanus and humans.
+Truth be told, a lot of potential customers still held grudges against Faunus, and invisibly decided to not patronize his business. So much for the Faunus Rights Revolution, and the ever improving equality between faunus and humans. It wasn't surprising in the least that a significant percentage of his customers are faunus, though the majority are still humans.
 
-There's just nothing he could do about it.
+For his part, Sil didn't gouge or favor any of them. Why should he made the effort for integration, however slow going, more difficult than it is?
 
 A door bell rung.
 
@@ -38,6 +38,20 @@ The shopkeeper was alerted out of his thought process to the presence of two hum
 
 They pulled down their hoods, and immediately he noticed the similarity between two individuals, with their pale skin, black hair, and almond eyes. They must be related to each other then.
 
-"Good evening," the male said with a noticible accent as he pulled out a bag of diamonds. The shopkeeper couldn't place the accent. Was it's Mistral, Atlas, or Vacuos? "How much do they sell for?"
+"Good evening," the male said with a noticeable accent as he pulled out a bag of diamond encrusted jewelries. The shopkeeper couldn't place the accent. Was it's Mistral, Atlas, or Vacuo? "How much do they sell for?"
 
-Ah, a classic mistake. 
+Ah, a classic mistake.
+
+He lowballed the number to his customers, hoping that they took in the bait. The humans glanced each other and muttered a few words.
+
+The shopkeeper was stumped. They were inscrutable. In his line of work, being able to read body languages and faces was how he makes a living. Getting a good deal was a necessary requirement if he wants to make a profit and keep himself in business.
+
+"We think that they not good prices," the male said.
+
+Sil scrutinized the jewelry quickly before looking up. Some were unfamiliar, but a lot wasn't. He been through a lot of them, and he knew how to recognize the bad from the good ones.
+
+"Well, look here...those are unknown jewelries," Sil said. "Contrary to popular beliefs, unpopular jewelries don't sell well. Where did you get these?"
+
+"They were my grandmother's heirloom, unfortunately." It was a bare-naked lie. That raised a red flag for Silver. If he brought stolen merchandise, there would be a strong possibility of police coming to take back the merchandise and he'll be out of the money that he brought.
+
+"Oh, I got a lot of those stories. People sell them because of desperate financial stride they're in, sometime of their own making, sometime not. They're definitely real tragedies. But I also know when someone is lying to me. Did you steal them?"
