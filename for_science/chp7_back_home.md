@@ -1,4 +1,5 @@
 # **Chapter Seven: Back Home**
+**February 24, 2015**
 
 One moment, there was nothing in my garage, sans the tools and other junks. Then, the next second, there was a "pew" sound, as if it was made by a science fiction laser.
 
@@ -16,7 +17,7 @@ Finally, I staggered toward the garage again.
 
 "God, must be the garbage I forgot to take out!" I said.
 
-"if I may, I could take out the trash," Delta Three Zero, the name of the functioning Cylon, said.
+"if I may, I could take out the trash," Delta Zero Three One, the name of the functioning Cylon, said.
 
 "No, don't. I don't want the world to know of your existence. Come into the living room."
 
@@ -53,7 +54,7 @@ In other words, I was in deep shit. Nothing like getting a loan, maxing out my c
 
 The machine responded by listing assets.
 
-Ten Colonial kilogram of pure platinum, three Cylon computation engines, Delta Three Zero, me, the trans-dimensional machine, two tablets with technical details on Colonial engineering, a whole bunch of machines.
+Ten Colonial kilogram of pure platinum, three Cylon computation engines, Delta Three Zero One, me, the trans-dimensional machine, two tablets with technical details on Colonial engineering, a whole bunch of machines.
 
 "And we have random shit in my house," I said. "Tools and parts. I don't know exactly how useful they are right now."
 
