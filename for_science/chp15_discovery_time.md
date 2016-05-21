@@ -10,13 +10,13 @@ Transiting was still an unpleasant affair as Akeno contemplated his growing naus
 
 "Yeah..." she said.
 
-Thanks to the pill both took earlier, the nausea rapidly faded away.  The lieutenant then handed out Keiko her raincoat. Luckily they weren't in their EVA. For this mission, the higher ups had decided that it would be unnecessary and that the two-person crew will have to blend in using the local stylings.
+Thanks to the pill both took earlier, the nausea rapidly faded away.  The lieutenant then handed out Keiko her raincoat. Luckily they weren't in their EVA. For this mission, the higher ups had decided that it would be unnecessary and that the two-person crew will have to blend in using the local fashion.
 
 The rain didn't subsided a bit when they left the TDM and entered the side of a road. Once they were a few meters away, the TDM machine disappeared into thin air, making that characteristic transition sound.
 
 "It's going to be a long walk," the lieutenant said as they trekked across a muddy road toward the city near the coast.
 
-They were in a forested area inside the heavily guarded border of this city-state, so far as the reconnaissance video and radio recording were able to tell.
+They were in a forested area inside the heavily guarded border of this city-state, according to the analysis of the reconnaissance video and radio recordings captured by the probes.
 
 What didn't make sense was that there was almost nothing outside the city border, just a virtually endless pristine wilderness and sparse roads leading to the outside world.
 
@@ -35,11 +35,11 @@ For his part, Sil didn't gouge or favor any of them. Why should he made the effo
 
 A door bell rung.
 
-The shopkeeper was alerted out of his thought process to the presence of two human beings in raincoat. He can hear the wet squishing sound of their boot as the rainwater dripped away from their coat.
+The shopkeeper was alerted out of his thought process to the presence of two human beings in blue raincoats. He can hear the wet squishing sound of their boot as the rainwater dripped away from their coat.
 
 They pulled down their hoods, and immediately he noticed the similarity between two individuals, with their pale skin, black hair, and almond eyes. They must be related to each other then.
 
-"Good evening," the male said with a noticeable accent as he pulled out a bag of diamond encrusted jewelries. The shopkeeper couldn't place the accent. Was it's Mistral, Atlas, or Vacuo? "How much do they sell for?"
+"Good evening," the male said with a noticeable accent as he pulled out a bag of diamond encrusted jewelries. The shopkeeper couldn't place the accent. Was it's Mistral, Atlas, or Vacuo? Does it matters at all? "How much do they sell for?"
 
 Ah, a classic mistake.
 
@@ -47,40 +47,40 @@ He lowballed the number to his customers, hoping that they took in the bait. The
 
 The shopkeeper was stumped. They were inscrutable. In his line of work, being able to read body languages and faces was how he makes a living. Getting a good deal was a necessary requirement if he wants to make a profit and keep himself in business.
 
-"We think that they not good prices," the male said.
+"We think that they not good prices," the male said in slightly broken Valeish before correcting himself. "Sorry, we think it's not a good price."
 
 Sil scrutinized the jewelry quickly before looking up. Some were unfamiliar, but a lot wasn't. He been through a lot of them, and he knew how to recognize the bad from the good ones.
 
-"Well, look here...those are unknown jewelries," Sil said. "Contrary to popular beliefs, unpopular jewelries don't sell well. Where did you get these?"
+"Well, look here...those are unknown jewelries," Sil said. "Contrary to popular beliefs, unpopular or unique one of a kind jewelries don't sell well. Where did you get these?"
 
-"They were my grandmother's heirloom, unfortunately." It was a bare-naked lie. That raised a red flag for Silver. If he brought stolen merchandise, there would be a strong possibility of police coming to take back the merchandise and he'll be out of the money that he brought.
+"They were my grandmother's heirloom, unfortunately." It was a bare-naked lie. That raised a red flag for Silver. If he brought stolen merchandise, there would be a strong possibility of police coming to take back the merchandise and he'll be out of whatever the price he will bought the goods for.
 
-"Oh, I got a lot of those stories. People sell them because of the desperate financial stride they're often in, sometime of their own making, sometime not. They're definitely real tragedies. But I also know when someone is lying to me. Did you steal them?" The shop owner schooled his expression and concentrated sharply on both of his customers' face.
+"Oh, I got a lot of those stories. People sell them because of the desperate financial stride they're often in, sometime of their own making, sometime not. They're definitely real tragedies. This is how I make my money. But I also know when someone is lying to me. Did you steal them?" The shop owner schooled his expression and concentrated sharply on both of his customers' face.
 
-There was a strong reaction from both of them. He could feel the sheer fury and outrage from the man, with his sibling stepping back quickly. In just a second, the humans quickly recomposed themselves.
+There was a strong reaction from both of them. He could feel the sheer fury and outrage from the man, with his sibling stepping back quickly. In just a second however, the humans quickly recomposed themselves.
 
-"No," the female spoken with strong resolution. "We did not steal them."
+"No," the female spoke with strong resolution. "We did not steal them."
 
-"Your story is full of shit, but you did not steal them. I presume that you didn't come into possession using somewhat shady means."
+"Your story is full of shit, but you did not steal them. I presume that you didn't come into possession using somewhat shady means?"
 
-There was no trepidation or enmity he can detect, but it seemed that they were hiding something. What in the world are those two hiding?
+There was no trepidation or enmity he can detect, but it seemed that they were hiding something from him, but what in the world could they possibly be hiding?
 
 "Are you still considering buying them from us?"
 
-"Yes."
+"Yes." In the ended, the shopkeeper decided that it was worth the risk.
 
 Then the gentleman named his price.
 
 "LUDICROUS!" he roared. "Look man, I am never ever going to buy it any price. It would bankrupt me."
 
-After a couple of rounds of haggling back and forth, the siblings and the pawn shop owner finally agreed to a price. The jewelries were exchanged for liens and receipt. Then the duo disappeared into the rain, leaving behind wet tracks in the highly organized pawnshop.
+After a couple of rounds of haggling back and forth, the siblings and the pawn shop owner finally agreed to a price. The jewelries were exchanged for a sizable amount of liens and a receipt. Then the duo disappeared into the rain, leaving behind wet tracks in the highly organized pawnshop.
 
 It was a good deal, he thought. However, he will need to contact a friend to take a good look at it. He knew a lot about diamonds and jewelries but a jeweler would of course know more. The only other thing of note was the rather unusual exchange with the customers, but he thought nothing further of it.
 
 ***
 **Lieutenant Akeno Noguchi**
 
-"Let look for a cheap motel," the lieutenant said.
+"Let's look for a cheap motel," the lieutenant said.
 
 "You think they required identification?" the anthropologist asked.
 
@@ -88,17 +88,17 @@ It was a good deal, he thought. However, he will need to contact a friend to tak
 
 "Right."
 
-Thievery was virtually unheard of in Sidonia. Nobody went hungry, and everybody has a place and role in society. It was more common to see thieves in the realm of fiction and from studying the historical records. But this isn't what plague the lieutenant.
+Thievery was virtually unheard of in Sidonia. Nobody went hungry, and everybody has a place and role in society. It was more common to see thieves in the realm of fiction and from studying the historical records. But this isn't what plagued the lieutenant.
 
 "The shopkeeper we met was very perceptive," he noted.
 
 "Maybe we stand out?"
 
-"Of course. But he felt that it was the worth of doing business with us. It was very informative." The primary objective back at the shop wasn't to sell diamonds for local currency, though it was one of their goal, but to learn the basic process for buying and selling goods in this society.
+"Of course. But whatever he felt, he decided that he would continue doing business with us. It was very informative." The primary objective back at the shop wasn't to sell diamonds for local currency, though it was one of their goal, but to learn the basic process for buying and selling goods in this society.
 
-Sure enough, after looking through two or three business place and ascertaining the price, they were able to get a room with no identification necessary, given that liens seemed to function as cash. If they were to use something like a debit card, they would required identification.
+Sure enough, after looking through two or three business place and ascertaining the price, they were able to get a room with no identification necessary, given that liens seemed to function as cash. If they were to use something like a debit card, that would more likely require identification.
 
-The motel room was clean, though the decor left a lot to be desired. However, it seemed that there were a level of solidness in the locals' architecture that Earth and even Sidonian buildings lack.
+The motel room was clean, though the decor left a lot to be desired. However, it seemed that there were a level of solidness in the locals' architecture that Earth and even some Sidonian buildings lack.
 
 "Surveillance footage revealed the local's fondness for strong primary colors, though I didn't expect it to extend to its decor," the lieutenant said, commenting on the choices made for this motel room, which made the room an eyesore to look at.
 
@@ -124,9 +124,9 @@ He smiled and went back to work on his report.
 **Doctor Keiko Toma**
 **June 6, 2015**
 
-Books were very useful, Keiko decided, and potentially very cheap. After entering a bookstore called Tukson's Book Trade, she went on a spending spree buying all the clearance items. Which was how she learned the word for humans with furry features, 'faunus', after mistakenly calling the owner a 'human'.
+Books were very useful, Keiko decided, and with some need to move inventory, can be very cheap for the buyers. After entering a bookstore called [i]Tukson's Book Trade[/i], she went on a spending spree buying all the clearance items. Which was how she learned the word for humans with furry features, 'faunus', after mistakenly calling the owner a 'human'. Though even after the correction of terminology, to her, they weren't different races or species.
 
-Of course, they had taken half of the day just scanning the contents of books, reading, and recording annotation.
+Afterward, they had taken all day just scanning the contents of books, reading, and recording annotations.
 
 "Those Grimm...You think they're real?" the lieutenant said, uncertainly.
 
@@ -161,3 +161,27 @@ The fight continued, and more bullets rung out, striking the doctor as well, bef
 There were plenty more explosion before the sounds of jet arrived.
 
 What was going on? Was she's going to die here on a foreign planet in a foreign universe. That can't be...possible.
+
+Soon, she was drifting out and in of consciousness, listening to frantic voices and sound of sirens. She couldn't think anymore.
+
+Then, there was nothing but a deep sleep.
+
+***
+
+**Glynda Goodwitch**
+
+Goodwitch was drenched in blood as she calmly assess the civilians for injuries. She had already ripped off the clothes to take a look at the injuries, and it wasn't good, but not fatal either. They hadn't hit any vital location, but they were losing a significant amount of blood quickly.
+
+She could already hear distress of the young huntress-in-training. "Stay calm," she said. "This is what you were trained to do so."
+
+"I am going to need your cape as tourniquet," the professor said. Once she was handed the girl's cape, the huntress tore it in pieces so that she could tie it in multiple places.
+
+There was a wail of siren coming from the ambulance. Good. The huntress was trained in first aid care as part of her profession, but she was not a doctor or a paramedic.
+
+"You're coming with me, young lady," she ordered. "Be ready to help them as needed."
+
+This was getting to be a long night.
+
+"Why..why are they like that?" the red tinted girl said. "Is..is..it my fault?"
+
+"I don't know," Goodwitch admitted. "This should not had happened, not with the bullets that were used."
