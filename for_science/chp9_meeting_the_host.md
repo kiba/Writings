@@ -139,7 +139,7 @@ However, interrogation of the individual named James Archer failed to reveal the
 
 He emphatically denied the use of time travel, saying that it violated causality, though he affirmed trans-dimensional travel as the method of travel. That wasn't prohibited by the law of physics as anybody knew, but there was no theories on how to travel between realities.
 
-Currently, the captain was monitoring an interrogation of this gentleman's alleged girlfriend, Diana Rose, who was answering questions in a bugged abode. It took a short while to prepare, but the apartment was now bugged with all sort of equipment to record the interaction for Sidonia's knowledge. Normally, that wasn't done except in a criminal investigation, but this was simply unprecedented. There had never been any human aliens to spy on, until now. Intelligence work and espionage as an enterprise had disappeared since the destruction of the solar system, such notions only remaining alive in stories and historical records, until now.
+Currently, the captain was monitoring an interrogation of this gentleman's alleged girlfriend, Diana Rose, who was answering questions in a bugged abode, which had taken some time to prepare. Normally, this wasn't allowed in all but the most extreme circumstance, such as a criminal investigation. There had never been any human aliens to spy on until now. Intelligence work and espionage as an enterprise had disappeared since the destruction of the solar system, such notions only remaining alive in stories and historical records.
 
 The interview continued smoothly so far, and there were little to no inconsistency in the female's answer.
 
@@ -147,7 +147,7 @@ The interview continued smoothly so far, and there were little to no inconsisten
 
 "Yes. It appeared that they were very much like our ancestors, in what recording and anthropological knowledge we have left of the ancient United States."
 
-"I am more interested in this trans-dimensional travel capability than examining the progenitor members of ancient Earth civilization, fascinating as they are. We must have it." she said it with hunger. Left unsaid was if this was a trick or a prelude to an invasion, or something worse.
+"I am more interested in this trans-dimensional travel capability than examining the progenitor members of ancient Earth civilizations, fascinating as they are. We must have it." she said it with hunger. Left unsaid was if this was a trick or a prelude to an invasion, or something far worse.
 
 But if they were able to fake it that well, then there may be absolutely no hope for Sidonia in term of survival. One do not plan for a sudden blackhole singularity appearing inside of the arkship at all. An instant death meant that no plan will achieve any sort of success.
 
@@ -155,7 +155,7 @@ But if they were able to fake it that well, then there may be absolutely no hope
 
 "Yes. A safe haven should anything went wrong, and a new colony. We will accomplish the goal and purpose of this arkship, though in a way that would be unimaginable to the founder of this ship."
 
-If that was the new destiny, she would take it, regardless of the actual consequence, because it would ensure humanity's survival.
+If that was the new destiny, she would take it, despite not knowing much about what's out there.
 
 "Though, the survival of the human race was never really in doubt now that I think about it," Kobayashi remarked.
 
@@ -178,7 +178,7 @@ First, they had compounded my machine, probably studying it with their brand of 
 
 No god damn handy universal translator.
 
-I shouldn't done what I did. I may just jeopardized the safety of my Cylon helper and the lives of my fellow Earthlings in the process.
+I shouldn't done what I did. I may had unwittingly jeopardized the safety of my Cylon helper and the lives of my fellow Earthlings in the process.
 
 For all I know, they could be an xenophobic people looking for their next conquest. That didn't seem to be the case at all, at least so far.
 
@@ -195,13 +195,11 @@ Diana rushed out and hugged me.
 ***
 **Captain Kobayashi**
 
-"Well? Let see what you have to say, Chief Sasaki," Kobayashi said.
-
-The trio of females in this meeting were without the masks. The other two women both knew each other for hundred of years. But to an Earthling, they looked far too young to be the senior leadership of this arkship.
+"Well? Let see what you have to say, Chief Sasaki," Kobayashi said. She was the only woman in the room without a mask. The other two women were both good friends who knew each other for a long time.
 
 On the right of Kobayashi facing her was the chief of engineering, Sasaki, the other woman on the left was Doctor Yure Shinatose, chief of genetic engineering and medicine.
 
-"The trans-dimensional machine, the parts that I can examine at least, were very crude," Sasaki began bluntly. "There's not much to say other than that there were effort to build a self-contained vessel for survival in dangerous environmental condition. Everything else was early twenty-first century technologies as far as we can examine. Their phones and tablets matched up our historical record perfectly to a 't', all the way down to the micrometer."
+"The trans-dimensional machine, the parts that I can examine at least, was very crude," Sasaki began bluntly. "There's not much to say other than that there were effort to build a self-contained vessel for survival in dangerous environmental condition. Everything else was early twenty-first century technologies as far as we can examine. Their phones and tablets matched up our historical record perfectly to a 't', all the way down to the micrometer."
 
 "So, we're dealing with twenty-first century humans after all."
 
@@ -209,7 +207,7 @@ On the right of Kobayashi facing her was the chief of engineering, Sasaki, the o
 
 "And Doctor Sinatose?"
 
-"Ah. I sequenced their genome, and using the databank, we were able to trace it all the way back to the early 21st century. As expected, there's imperfection and bugs in their genome. In particular, patient James Archer is expected to die of skin cancer in about thirty years, give or take a few years. However, the redhead natural-born, Diana Rose, is expected to live to her eighties, if there's no accident. My group detected no artificial DNA sequences in both of them, or any other bioengineering modification, not even Higg photosynthesis which had been made standard for the entire Sidonian population. They're both one hundred percent natural-born. I would recommend immediate gene therapy to remove most if not all gene-related health problems exhibited by both."
+"Ah. I sequenced their genome, and using the databank, we were able to trace it all the way back to the early 21st century. As expected, there's imperfection and bugs in their genome. In particular, patient James Archer is expected to die of skin cancer in about thirty years, give or take a few years. However, the redhead natural-born, Diana Rose, is expected to live to her eighties. My group detected no artificial DNA sequences in both of them, or any other bioengineering modification, not even Higeus photosynthesis which had been made standard for the entire Sidonian population. They're both one hundred percent natural-born. I would recommend immediate gene therapy to remove most if not all gene-related health problems exhibited by both."
 
 "Spoken like a true medical doctor, Shinatose, but I think you're forgetting something."
 
@@ -219,4 +217,4 @@ On the right of Kobayashi facing her was the chief of engineering, Sasaki, the o
 
 "I don't see how that's relevant."
 
-"It is a bargaining chip, and that's all I cared about. If we expect to acquire their trans-dimensional travel technology and gain their cooperation, then we need a strong hand."
+"It is a bargaining chip, and that's all I cared about. If we expect to acquire their trans-dimensional travel technology and gain their cooperation, then we'll need a strong hand."
