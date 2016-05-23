@@ -168,7 +168,7 @@ Then, there was nothing but a deep sleep.
 
 ***
 
-**Glynda Goodwitch**
+**Professor Glynda Goodwitch**
 
 Goodwitch was drenched in blood as she calmly assess the civilians for injuries. She had already ripped off the clothes to take a look at the injuries, and it wasn't good, but not fatal either. They hadn't hit any vital location, but they were losing a significant amount of blood quickly.
 
