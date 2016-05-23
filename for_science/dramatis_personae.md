@@ -23,3 +23,7 @@
 * **Delta Zero Three One** - First Appearance: Chapter 7. Arrived with James Archer back on his Earth.
 
 * **Glynda Goodwitch** - First Appearance: Chapter 15. After driving off the robbers, she, along with Ruby Rose, applied first aid until the ambulance arrived.
+
+* **Headmaster Ozpin** - First Appearance: Chapter 16. Talked to everyone involved with the incident from chapter 15.
+
+* **Doctor Ross Steff** - First Appearance: Chapter 16. Informed Ozpin on the medical conditions of two Sidonians.
