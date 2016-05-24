@@ -3,28 +3,27 @@
 ***
 **Mayumi Yoshizawa**
 **Shopping Distract 9, Sidonia**
+**April 4, 2015**
 
-For Security Police agent Yoshizawa Mayumi, this street was...just like any other shopping district. There was absolutely nothing special about it, for it was part of her life for as long she remembered.
+For Security Police agent Yoshizawa Mayumi, this street was...just like any other shopping districts. There was absolutely nothing special about it, for it was part of her life for as long she remembered.
 
 But for the ancestral couple, it was the same yet different. In some way, it might as well not be on a seed ship traveling between star systems.
 
 There were barber shop, beauty saloons, restaurants, clothing stores, law offices, cafes, video game arcades, teahouses. The same as it was on Earth.
 
-At the same time, there were difference. Everyone, for instance, everyone virtually wore the same clothes, white pants, white shirts, and a belt.
+At the same time, there were differences. Everyone, for instance, everyone virtually wore the same clothes, white pant or skirt, white shirt, and an emergency belt.
 
-No one, not even the ancestral pairs, was unique to this. It was just the fact of life on the last known bastion of humanity.
+Even the ancestor couples she was currently escorting were not exemt from the uniforms. It was just the fact of life on the last known bastion of humanity.
 
-But for officer Yoshizawa, she wasn't thinking much, other than what she had witnessed and took part in yesterday. Simply put, her team were ordered to conduct 'espionage' against citizens of a foreign power, for the purpose of 'national security' and 'security of humanity'.
+But for officer Yoshizawa, she wasn't thinking much, other than what she had witnessed and took part in yesterday. Simply put, her team were ordered to conduct 'espionage' against 'citizens of a foreign power', for the purpose of 'national security' and 'security of humanity'.
 
-Behind all that nice-sound justification was the fact that she invaded someone's privacy last night without a warrant or a court hearing, a virtually unprecedented activity.
+Behind all that nice-sound justification was the undenible invasion of someone's privacy last night without a warrant or a court hearing, unprecedented in the history of Sidonia.
 
-Yet, this was what nation-state actors did. They spy, steal, blackmail, coerce, and tempt to protect their self-interest.
-
-And now, for the first time in thousand of years, Sidonia was doing the same thing.
+Yet, this was what nation-state actors used to do. They spy, steal, blackmail, coerce, and tempt to protect their self-interest, and Sidonia was doing the very same dirty deeds.
 
 The Sidonians were complete amateur in tradecraft. The couples, even more so. Their flimsy information security measures were no match for Sidonian technologies, refined after thousand of years of technological evolution.
 
-Through all of this, she felt dirty, ashamed, and guilty. But it was necessary, she told herself.
+Through all of this, she felt dirty, ashamed, and guilty even as she tried to tell herself how very necessary it was.
 
 And if it all went according to plan, one day there will be a real intelligence service conducting operations, with real spies situated in the territory of foreign power across realities.
 
@@ -42,7 +41,7 @@ Of course, there's no way that the two will eat and talk without being bugged th
 
 Nothing about the couple will escape the eyes and ears of the security service.
 
-*****
+***
 
 **James Archer**
 
@@ -53,25 +52,25 @@ The hostility posed by the secret police had faded into hospitality once they re
 
 My era was the 'dawn' of the modern age, following a series of unprecedented rights revolution in the later half of the 20th century and into the early 21st century, culminating into the Sophant Right Revolution starting in the 2020s.
 
-So it was not unsurprising that they considered us barbaric while at the same time hailing us as the moral heroes who overcame the demon of our nature. Eventually, we would came to colonize Space. I learned that the Elon Musk of this timeline did remarkably well and achieved his dream before dying peacefully on Mars.
+So it was not unsurprising that they considered us barbaric while at the same time hailing us heroes who overcame the prejudices of our time. Eventually, we would came to colonize Space. I learned that the Elon Musk of this timeline did remarkably well and achieved his dream before dying peacefully on Mars.
 
 Which was strange since the Sidonians looked and sounded like Japanese, and in some way acted like Japanese. Though I learned to the contrary that the Sidonia was an artificial culture, shaped to induce the greatest level of cooperation in their society.
 
-Which explained the Illuminati nature of the highest level of leadership. They all wore masks, and their identity were never revealed to the public. Conspiracy theories circulated that the Captain was an immortal who controlled the ship the whole time, and there was a secret immortal committee.
+This explained the Illuminati nature of the highest level of leadership. They all wore masks, and their identities were never revealed to the public. Conspiracy theories circulated that the Captain was an immortal who controlled the ship the whole time, and there was a secret immortal committee.
 
-Honestly, it didn't seem farfetched in some way.
+Honestly, it didn't seem all that farstretched.
 
 In the future, why wouldn't you had developed immortality, especially for a long journey that required social stability all the way to the next star and then some?
 
-The question to me was why not everybody was given access to immortality? I suspected that this was social engineering of the highest level, though I cannot sustain my suspicion.
+The question to me was why not everybody was given access to immortality? I suspected that this was part of the social engineering of their culture, though I cannot sustain my suspicion.
 
-Historical details on immortality back when Earth wasn't destroyed in half was very sketchy. Yes, there was a wizardly biologist and doctor named Aubrey de Grey. No, he did not achieve his bioengineering goal, even though his research became the base of Sidonian genetic engineering.
+Historical details on immortality back when Earth wasn't destroyed in half was very sketchy. Yes, there was a wizardly biologist and doctor named Aubrey de Grey. No, he did not achieve his bioengineering goal, even though his research became the base of Sidonian biological engineering.
 
-On the question of the mask culture, the 'official' reason why they were developed is to prevent the assassination of governmental officials. Though that seemed to be flimsy as hell. Sure enough, there are various theories by Sidonian sociologists, and they all lived happy long life. Unless, of course, you counted the gauna invasion hundred of years ago that wiped out the vast majority of the population.
+On the question of the mask culture, the 'official' reason why they were developed is to prevent the assassination of governmental officials. Though that seemed to be flimsy as hell. Sure enough, there are various theories by Sidonian sociologists, and they all lived happy long life. Unless, of course, you counted the gauna invasion hundred of years ago that wiped out almost the entire population.
 
-I may be nut, but I think that they do have immortality technologies. Apparently my significant other agreed with my assessment even though neither of us were conspiracy theorists. Though, given the expanse of the multiverse, there's bound to be a reality where conspiracy and secret agent men are real.
+I may be nut, but I think that they do have immortality technology. My significant other agreed with my assessment even though neither of us were conspiracy theorists. Though, given the expanse of the multiverse, there's bound to be a reality where conspiracy and secret agent men are real.
 
-The captain might be one. She might be the same person. Or she might be controlled by the shadow council.[/i]
+The captain might be one. She might be the same person. Or she might be controlled by a shadowy cabal.[/i]
 
 Our escort, a beautiful woman who looked to be in her mid-twenties, looked somewhat antsy and nervous. I swore that I must had seen her blushes at least one time, though I wouldn't know what was it about.
 
@@ -99,7 +98,7 @@ There was an ongoing propensity to prepend everything with the name 'Gravity', s
 
 "I am relieved that our ancestors found our food palatable, even tasty, after all this time," the Sidonian said.
 
-I thought about correcting her, but to their perspective, we were time travelers, albeit from an alternate reality.
+I thought about correcting her, but to their perspective, we were time travelers even if we came from an alternate timeline.
 
 "What are we going to do next?" I asked the escort.
 
@@ -109,7 +108,7 @@ I thought about correcting her, but to their perspective, we were time travelers
 
 "I don't see a problem with that."
 
-That's right, I am sticking it on her tab as much as I could get away with. I am pretty sure it's carte blanche within reason.
+That's right, I am sticking it on her tab as much as I could get away with.
 
 *****
 
@@ -119,9 +118,9 @@ Diana found herself with her boyfriend in front of an old war machine, the mecha
 
 This beautiful machine sat very still, with all its battle damage and scratch marks, like a statue, almost if it was a sculpture.
 
-Of course, it was a very real machine used in a real war against space creepy monsters.
+Of course, it was a very real machine used in a real war against creepy space monsters.
 
-Still, the design set off her alarm bells, recalling her expertise as a mechanical engineer. It shouldn't be a practical machine of war. There were much better alternate design that the Sidonians could use, yet they chose this one. Was it because of the cool factor? If so, there wasn't much of anything in Sidonia that was made for 'coolness'.
+However, the design set off her alarm bells, recalling her expertise as a mechanical engineer. It shouldn't be a practical machine of war. There were much better alternate design that the Sidonians could use, yet they chose this one. Was it because of the cool factor? If so, there wasn't much of anything in Sidonia that was made for 'coolness'.
 
 "Hahahahha" her boyfriend laughed. "So I was right, we're in an anime."
 
@@ -137,7 +136,7 @@ Still, the design set off her alarm bells, recalling her expertise as a mechanic
 
 Diana pulled on her boyfriend's ear, shutting his mouth with her hand.
 
-"I am sorry if we offended you," Diana said, attempting to do damage control. "Sometime my boyfriend didn't really think thing through."
+"I am sorry if we offended you," Diana said, attempting to do damage control. "Sometime my boyfriend don't know when to shut his mouth."
 
 The agent blinked several times, before answering, "not at all."
 
@@ -153,9 +152,9 @@ The agent blinked several times, before answering, "not at all."
 
 Kobayashi entered a dark and cool room, with a large screen in the back. Life support units lined up the hallway of the committee, supporting a shadow council who influenced Sidonia from the dark.
 
-It was also a council that deeply disgusted the Captain. Once they were noble citizens supporting the goal of colonizing a safe star system, now they were fast becoming liabilities. Over the century, corruption and hubris had seeped in as they lied in their support chambers, unwilling to mix in or connect with the mortals. All the while, the Captain worked to implement their policies as they watched afar.
+It was also a council that deeply disgusted the Captain. Once they were noble citizens supporting the goal of colonizing a safe star system, now they were fast becoming liabilities. Over the century, corruption and hubris had seeped in as they lied in their support chambers, unwilling to mix in or connect with the mortals. meanwhile, the Captain worked to implement their policies as they watched afar.
 
-Centuries of living, however, imbued the immortal ship committee members with wisdom, and that cannot be taken lightly. So long they remained useful assets to Sidonia, she would make use of such a valuable resources.
+Centuries of living, however, imbued the immortal ship committee members with wisdom, and that cannot be taken lightly. So long as they remained useful assets to Sidonia, she would make use of such a valuable resources.
 
 "Well, have you gone insane Kobayashi?" number One asked, a male.
 
@@ -167,7 +166,7 @@ One scoffed. "You must be senile to believe that sort of story. They must be som
 
 A female spoken up, "I don't believe that this is a prelude to an invasion. It sounded too bizarre to be the kind of story that some other other ship will make up. Although, I still believe we must have a contingency if my suspicion turned out to be wrong."
 
-"As a matter of fact, I do have a contingency in mind," Kobayashi replied. "This ship won't be all that useful to them if it is destroyed in ship-to-ship combat. Boarding operations are the most likely course of action. The best we could do in the short term is to step up the production of small arms and combat equipment. In the long term, we'll want to set up an infantry school, regardless of the actual outcome."
+"As a matter of fact, I do have a contingency in mind," Kobayashi replied. "This ship won't be all that useful to them if it is destroyed in ship-to-ship combat. Boarding operations are the most likely course of action. The best we could do in the short term is to step up the production of small arms and infantry equipment. In the long term, we'll want to set up an infantry school, regardless of the actual outcome."
 
 [i]They may live, for now.[/i]
 
@@ -181,7 +180,7 @@ Finally, number three spoke, "we have zero institutional experience of any kind 
 
 [i]Then again, maybe not.[/i]
 
-"High on our list are of course, Generals," Kobayashi said. "preferably from Japan if possible for the cultural compatibility, but I am open to generals from other culture. There's other expertise we need to import as well, such as the ancestral couple's engineering expertise. We can get them up to speed on our education system."
+"High on our list are of course, generals," Kobayashi said. "preferably from Japan if possible for the cultural compatibility, but I am open to generals from other culture. There's other expertise we need to import as well, such as the ancestral couple's engineering expertise. We can get them up to speed on our education system."
 
 "So many changes in so many short time," number one commented. "Too fast."
 
@@ -191,7 +190,7 @@ Finally, number three spoke, "we have zero institutional experience of any kind 
 
 "Or not," number two suggested. "They hadn't bothered with us for over a century now."
 
-"Did you not forget what happened a century ago? Almost the entire crew of Sidonia were wiped out."
+"Did you not forget what happened a century ago? Almost the entire crew of Sidonia was wiped out."
 
 "I see that the plans did not include our priority extraction from this place?" Number five butted in. "We are the immortal committee after all. Without us, the Sidonians are nothing."
 
@@ -205,9 +204,9 @@ But the mutter of assent poured into the chamber. It was the last straw for her,
 
 The chamber erupted into mad fury as the Kobayashi calmly walked outside of the room. They would immediately vote to relieve her position as the Captain of this ship. They would not be able to carry out their will. As soon as Kobayashi walked out the door, her assistant, Ochiai walked in.
 
-The noise of gunplay erupted into the chamber interrupting the council's discussion, as the hailstorm of bullets shred into the surprised councilmembers, their screams barely reaching beyond the door.
+The noise of gunplay erupted into the chamber interrupting the council's discussion, as the hailstorm of bullets shred into the surprised council members, their screams barely reaching beyond the door.
 
-Ochiai was carrying out the assassination of the entire committee. There was no trial, no judge, and no jail. Nothing resembling any process of justice or the protection of rights. They ruled from the shadow, and they shall die in the shadow.
+Ochiai carried out the assassination of the entire committee, not even offering a sham trial with judges and lawyers. There was nothing resembling the process of justice, such was the price of ruling only from the shadow.
 
 Finally, Ochiai walked out from his surprise ambush of the immortals.
 
@@ -223,11 +222,11 @@ Afterward, she hung up the phone.
 
 Tomorrow, there will be a reckoning with the dorm mother of the Academy. Her friend likely won't approve of her action to kill off the committee.
 
-The captain brushed away that concern. It was either them, or her cadre of confidants and friends.
+The captain brushed away that concern. Sooner or later, it was either them, or her cadre of confidants and friends.
 
-There were other concerns, such as convincing the two dutchmen to assist the Sidonians with their mission, and looking through the old records for setting up an infantry branch, among other things. The Sidonians had forgotten a lot over the span of thousand of years, but that was more a function of skills and knowledge in a living population. Unfortunately, it was not necessarily easy to build up a proper military organization from records.
+There were other concerns, such as convincing the two washedup dutchmen to assist the Sidonians with their mission, and looking through the old records for setting up an infantry branch. The Sidonians had forgotten a lot over the span of thousand of years, but that was more a function of skills and knowledge in a living population rather than the total disappearance of knowledge. Unfortunately, it wouldn't be easy to build up a proper military organization from records alone.
 
-The ability to travel across realities had opened up new vista of opportunities for Sidonia, but she didn't necessarily expect that it will be a cakewalk.
+The ability to travel across realities had opened up new vista of opportunities for Sidonia, but it would be wrong to assume that it will be a cakewalk.
 
 It pays to be prepared.
 
@@ -251,7 +250,7 @@ It's all perfectly logical of course, addressing any and all objections we both 
 
 "Ah, can we try out the mech now?" I asked.
 
-She smiled before answering, "sure, James-san."
+She smiled before answering, "sure, Archer-san."
 
 I suited up with only a helmet, as the full suit wasn't completely necessary.  I never been in a plane, let alone the mech, so the information was very confusing.
 
