@@ -1,4 +1,4 @@
-# **Chp10 Wine and Dine**
+# **Chapter Ten: Wine and Dine**
 
 ***
 **Mayumi Yoshizawa**
