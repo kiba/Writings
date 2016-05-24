@@ -18,6 +18,10 @@
 
 * **Mayumi Yoshizawa** - First Appearance: Chapter 10. She is a member of the security police, which is responsible for internal state security.
 
+* **Saito Hiroki** - First Appearance: Chapter 10. Mentioned by Diana as the mecha pilot of Tsugumori.
+
+* **Lala Hiyama** - First Appearance: Chapter 10. A woman in bear suit who is the dorm mother of a dormitory for Gardes pilot-trainees.
+
 * **Sil Silver** - First Appearance: Chapter 15. A wolf faunus pawn shopkeeper with a keen ability to detect lies and falsehood, enabling him to make a living and avoid losing money from thieves.
 
 * **Lieutenant Akeno Noguchi** - First Appearance: Chapter 15. Part of newly formed infantry corp. Sent with an anthropologist Keiko Toma to gather basic information and set up operation.
