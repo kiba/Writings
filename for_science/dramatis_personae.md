@@ -22,6 +22,8 @@
 
 * **Lala Hiyama** - First Appearance: Chapter 10. A woman in bear suit who is the dorm mother of a dormitory for Gardes pilot-trainees.
 
+* **Daichi Chou** - First Appearance: Chapter 14. An engineering advisor from Sidonia. 
+
 * **Sil Silver** - First Appearance: Chapter 15. A wolf faunus pawn shopkeeper with a keen ability to detect lies and falsehood, enabling him to make a living and avoid losing money from thieves.
 
 * **Lieutenant Akeno Noguchi** - First Appearance: Chapter 15. Part of newly formed infantry corp. Sent with an anthropologist Keiko Toma to gather basic information and set up operation.
@@ -35,3 +37,7 @@
 * **Headmaster Ozpin** - First Appearance: Chapter 16. He is the Headmaster of the Beacon Academy, a combat school. Talked to everyone involved with the incident from chapter 15.
 
 * **Doctor Ross Steff** - First Appearance: Chapter 16. Informed Ozpin on the medical conditions of two Sidonians.
+
+* **Detective Gole Bane** - First Appearance: Chapter 16. He is the detective, along with his partner Max Blueberry, who are on the case regarding the robbery attempt on Dust until Dawn.
+
+* **Detective Max Blueberry** - First Appearance: Chapter 16. Mentioned by his partner, detective Gole Bane, in a conversation with a motel receptionist where Noguchi and Toma were staying.
