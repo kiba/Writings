@@ -3,7 +3,7 @@
 ***
 **Professor Glynda Goodwitch**
 
-The ambulances blared as it raced through the street of Vale, switching traffic lights from red to greens, shooing vehicular traffics to the sideway.s
+The ambulances blared as it raced through the street of Vale, switching traffic lights from red to greens, shooing vehicular traffics to the sideway.
 
 Goodwitch was in one of those ambulance, alternating between feeling of fury and anxiety. Worried about the two bystanders who got caught in the crossfire, and angry about a very public and dangerous robbery.
 
@@ -44,7 +44,7 @@ How odd. He already sent an email to the detectives about this.
 
 "Yes, that's correct. I was wondering about the unidentified civilians' health."
 
-"Very problematic, in all sort of ways," the doctor said with a weary tone. "We got a medical mystery on our hand. No matter what we do, we are ending up in all too frequent medical emergencies. There's something abnormal about their biology and I am still waiting for genetic screening and biopsies."
+"Troublesome," the doctor said with a weary tone. "We got a medical mystery on our hand. No matter what we do, we are ending up in all too frequent medical emergencies. There's something abnormal about their biology and I am still waiting for genetic screening and biopsies."
 
 Ozpin sipped a cup of coffee as he contemplated the deepening mystery. "I see. I was hoping that we could question them, but that appeared not to be the case?"
 
@@ -119,7 +119,7 @@ Then strange unfamiliar characters began showing up.
 
 "So you expect me that they walked from another kingdom, crossing our border unnoticed, and managing to blend in without anyone noticing?"
 
-"That does seem to be a problematic hypothesis."
+"That does seem to be a questionable hypothesis."
 
 "If they came from another unknown kingdom on this continent, not assuming that they use airships, then they would have encountered villages along the way, learn their customs, and blend in much better when they were finally at the border, pretending to be refugees."
 
@@ -190,7 +190,7 @@ So I told my team Seii's order and tell them to "do it".
 
 After last night's event, Headmaster Ozpin finally returned to his clockwork themed office. He turned on the computer and worked through his email.
 
-When morning came, the almost-deadly robbery made the local news, and then international news. Ozpin already ordered a team of huntsmen to look into Roman Torchwick and apprehend himself if possible, who made himself a bigger target given what just happened last night.
+When morning came, the almost-deadly robbery made the local news, and then international news. Ozpin already ordered a team of huntsmen to search and apprehend Roman Torchwick and his accomplices, who made himself a bigger target given what just happened last night.
 
 News about the victims continued to get stranger and stranger. A kind of transponder of an unknown design were found by surgeons, and DNA testing not only found nobody in the database in any of the kingdoms, but also suggested they were too distant to be related to anybody.
 
