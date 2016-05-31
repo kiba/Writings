@@ -2,6 +2,7 @@
 
 ***
 **James Archer**
+**April 6, 2015**
 
 Diana and I finally found myself seated in a meeting room the opposite side of Captain Kobayashi, the commander-in-chief of Sidonia. Naturally, there were butterflies in my stomach as our freedom were on the lines.
 
