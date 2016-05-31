@@ -9,3 +9,5 @@ April 3, 2015 - Chapter 8 - After spending a month on R&D and raising money, Jam
 April 4, 2015 - Chapter 10 - Diana and Archer were permitted by the Sidonian authority to explore the arkship.
 June 5, 2015 - Chapter 15 - Lieutenant Akeno Noguchi and Doctor Keiko Toma arrived on Remnant in the middle of a forest located within Vale. They later sold jewelries to a local pawn shop in exchange for local currency. They used that money to rent a cheap motel room.
 June 6, 2015 - Chapter 15 - The Sidonian duo went to a bookstore and brought books. They eventually ordered food, among other activities. They were planning to acquired Dust before being caught in a cross-fire between armed robbers and a huntress-in-training.
+June 7, 2015 - Chapter 16 - Investigation into the Sidonians by local authority in Vale, Remnant turned up 'nothing'.
+June 8, 2015 - Chapter 16 - Colonel Seii decided to send an emissary and a doctor.
