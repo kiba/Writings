@@ -2,7 +2,8 @@
 # **Chapter 12: Going home**
 
 ***
-## **Chief Engineer Sasaki**
+**Chief Engineer Sasaki**
+**April 7, 2015**
 
 In the airless vacuum of space, an audience of about three was present on a test site in an inflatable module, next to a test site. An archaic gun was custom built to order for this occasion. Its target was a piece of modern armor downrange.
 
@@ -31,22 +32,8 @@ Finally, the male sighed in defeat. "Fine. But you're going to teach the both of
 Sasaki smiled. "Of course. And you mister, are going to teach me everything about trans-dimensional theory and explain in detail about how to engineer such a device."
 
 ***
-## **James Archer**
-
-*Dear journal,
-
-As a result of Captain Kobayashi, I was determined to be on bad term with Sidonia, to make it clear that I don't like coercion, but that determination didn't last. The people of Sidonia behaved the same as before and Sasaki in particular proved to be particularly good in wearing me down, which led to a demonstration of the armor that they use.
-
-Which then finally led to the mending of my relationship with my significant other.
-
-That woman, along with my girlfriend of course forced me to see reason. It would not be in her interest in laying down traps in the very same vehicle that she will occupy when we travel back to Earth.
-
-On the other hand, I couldn't rule out bugs that Sidonia might have left inside the transit machine itself.
-
-I am looking forward to whatever design that they cooked up. It would be quick and dirty by their standard, but it should be a lot better than the previous iteration. Though, I will miss Rose. That shouldn't be much of a problem since it's a short stomach churning hop away.*
-
-***
-## **Captain Kobayashi**
+**Captain Kobayashi**
+**April 8, 2015**
 
 Kobayashi was without her mask, as that was standard when talking to a fellow immortal. They're all in on the secret anyway. Together, Kobayashi was standing in a discreet hallway with Sasaki, one of the other immortal who had survived the near total destruction of Sidonia a hundred years ago.
 
@@ -71,9 +58,22 @@ Sasaki watched the annotated video, before finally commenting. "Their story wasn
 "I'll make sure of that, Captain."
 
 ***
-## **James Archer**
+**James Archer**
+**April 15, 2015**
 
-It took a little over three days, but they finally done it! Or Sasaki and her team did. I, along with Diana mostly bother them and ask questions. It's a little bit of not trusting them and wanting to be knowledgable about the craft that I am using it to transit between worlds.
+[i]Dear journal,
+
+As a result of Captain Kobayashi, I was determined to be on bad term with Sidonia, to make it clear that I don't like coercion, but that determination didn't last. The people of Sidonia behaved the same as before and Sasaki in particular proved to be particularly good in wearing me down, which led to a demonstration of the armor that they use.
+
+Which then finally led to the mending of my relationship with my significant other.
+
+That woman, along with my girlfriend of course forced me to see reason. It would not be in her interest in laying down traps in the very same vehicle that she will occupy when we travel back to Earth.
+
+On the other hand, I couldn't rule out bugs that Sidonia might have left inside the transit machine itself.
+
+I am looking forward to whatever design that they cooked up. It would be quick and dirty by their standard, but it should be a lot better than the previous iteration. Though, I will miss Rose. That shouldn't be much of a problem since it's a short stomach churning hop away.[/i]
+
+It took a little over a week, but they finally done it! Or Sasaki and her team did. I, along with Diana mostly bother them and ask questions. It's a little bit of not trusting them and wanting to be knowledgable about the craft that I am using it to transit between worlds.
 
 "It didn't look like something out of Mad Max," Diana commented.
 
@@ -106,7 +106,8 @@ I shrugged. "Maybe. Pretty much everything is replaced but the actual electronic
 This was supposed to be a quick stop-gap to make the machine safer for their occupants. I am pretty sure that that they're going to design something proper for themselves.
 
 ***
-## **Chief Engineer Sasaki**
+**Chief Engineer Sasaki**
+**April 16, 2015**
 
 "These are old extra-vehicular suits," Sasaki said, explaining to her ancestors from a parallel dimension. "They are family heirlooms, passed from one generation to the next. I expect you two to take good care of it."
 
@@ -131,7 +132,8 @@ The trio were in Sasaki's home, and for a senior engineer, it was surprising mod
 Archer did an involuntary wince.
 
 ***
-## **Diana Rose**
+**Diana Rose**
+**April 18, 2015**
 
 The excursion into zero-g was the most fun she ever had. Experiencing microgravity was quite a novel experience, though most of the time was focused on Sasaki's rapid instructions, noting that this sort of stuff was taught to Sidonian children and wasn't touched on after that. However, the couple wasn't going to have enough time to learn all of this before James was scheduled to depart for Earth, just enough to know how to make real use of the suits that are now their own.
 
@@ -160,7 +162,8 @@ Nothing bad happened when they did sold their platinum, but it was always back i
 "You're going to be just fine. Everything's going to be alright."
 
 ***
-## **James Archer**
+**James Archer**
+**April 27, 2015**
 
 Sasaki forcefully made me wore her heirloom suit for the jump back home. Actually it's mine now, never mind that Sasaki will kill me if I dared mess with it. It's probably bugged.
 
