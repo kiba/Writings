@@ -1,7 +1,7 @@
-# **Chapter 13: Return**
+# **Chapter Thirteen: Return**
 
 ***
-## **Delta Zero One Three**
+**Delta Zero One Three**
 
 When the humans jumped into an unknown reality, they left Delta to its own device, trusting it to handle the Archer/Rose household until they return.
 
@@ -125,8 +125,7 @@ Then there was Archer's mental condition and his reckless exploration. In retros
 Perhaps they needed to come up with a contingency and a plan to cure Archer's health before he becomes a danger to himself and to the people he loved or care about.
 
 ***
-
-## **Chief Engineer Sasaki**
+**Chief Engineer Sasaki**
 
 Sasaki was becoming irate. James was instructed to not be generous to her and Sidonia. Yet, she could see their point of view. The captain's negotiation backfired, all in to guarantee that they would secure trans-dimensional travel technology.
 
@@ -145,8 +144,7 @@ There will be another set of negotiation and meeting as demanded by the machine.
 "I'll keep teaching, because it's in my interest to do so."
 
 ***
-
-**April 29th, 2015**
+**April 29, 2015**
 
 "AIIIIIIIIIIIIEEEEE" Sasaki screamed as she held a death grip on the seat in James's car. The cars, while traveling orderly and neat, were too close and fast to Sasaki for comfort.
 
