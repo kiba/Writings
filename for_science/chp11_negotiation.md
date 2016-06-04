@@ -1,4 +1,4 @@
-#chapter 11: Negotiation
+# **Chapter Eleven: Negotiation**
 
 ***
 **James Archer**
