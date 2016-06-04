@@ -15,6 +15,8 @@ April 16, 2015 - Chapter 12 - Sasaki gifted James and Diana EVA suits.
 April 18, 2015 - Chapter 12 - James and Diana talked about the events of the past two weeks.
 April 27, 2015 - Chapter 12 - Sasaki and James depart for Earth while Diana stay behind on Sidonia.
 April 29, 2015 - Chapter 13 - Sasaki and James visited a coffeeshop and encountered Doctor Rodney McKay.
+May 12, 2015 - Chapter 14 - James Archer set up a secret lab in the beginning of May, collaborating with the Sidonians and Cylons on trans-dimensional research. On this date, the Cylons were adding their finishing touch on a new trans-dimensional machine for Archer.
+May 26, 2015 - Chapter 14 - James Archer and collaborators discovered Remnant.
 June 5, 2015 - Chapter 15 - Lieutenant Akeno Noguchi and Doctor Keiko Toma arrived on Remnant in the middle of a forest located within Vale. They later sold jewelries to a local pawn shop in exchange for local currency. They used that money to rent a cheap motel room.
 June 6, 2015 - Chapter 15 - The Sidonian duo went to a bookstore and brought books. They eventually ordered food, among other activities. They were planning to acquired Dust before being caught in a cross-fire between armed robbers and a huntress-in-training.
 June 7, 2015 - Chapter 16 - Investigation into the Sidonians by local authority in Vale, Remnant turned up 'nothing'.
