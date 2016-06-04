@@ -1,4 +1,4 @@
-# **Chapter 14: Research & Development**
+# **Chapter Fourteen: Research & Development**
 
 ## **James Archer**
 **May 12, 2015**
@@ -93,7 +93,7 @@ Of course, Colonial FTL travel required no such beacons, without the need to sur
 Chou nodded at that. It was one of the first things the Sidonian realized in conjunction with the Cylons when they made their initial study in trans-dimensional theory.
 
 ***
-## **Captain Kobayashi**
+**Captain Kobayashi**
 
 Even after all the bitter negotiation with the Cylons, Kobayashi still found it in herself to be excited, because today was to be the demonstration of a prototype using Colonial style artificial gravity, which was very cheap compared to Sidonia's artificial gravity furnace. The side effect of the technology, anti-gravity, should allow greater performance of both Sidonia and the gardes mecha that were the mainstay defenders against the gauna.
 
@@ -126,7 +126,7 @@ At least, the rocket was launched into deep space.
 Kobayashi nodded. "I'll leave you to your duties."
 
 ***
-## **James Archer**
+**James Archer**
 **May 26, 2015**
 
 I thought that the surveying tech will be ready many time this month, but usually there's always problem that pop up. 'Today's finally the day' I would say, only to be proven wrong in the next few hours or so.
