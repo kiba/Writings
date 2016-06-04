@@ -1,6 +1,6 @@
 # **Timeline**
 
-February 4, 2015 - Chapter 1 -  James Archer made the first successful jump to another universe.
+February 4, 2015 - Chapter 1 -  James Archer made the first successful jump to another universe, crossing over to the nuBattlestar Universe.
 Feburary 5, 2015 - Chapter 4 - James Archer woke up in a Cylon rebel cabin. Chapter 4.
 February 14, 2015 - Chapter 5 - James Archer became acquainted with the Cylons.
 February 19, 2015 - chapter 6 - James Archer negotiated a deal with the Cylons. In exchange for repair of his device, a few cylons will go home with him and that he will assists the Cylons in developing their moral strategy.
