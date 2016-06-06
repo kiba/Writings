@@ -3,15 +3,15 @@
 **Headmaster Ozpin**
 **Vale Police Department Headquarter**
 
-Professor Ozpin found himself in a police station next to a scroll-like electronic surrounded by technicians and policemen, just waiting for him to reply to a woman's voice. Earlier, there was an insistent demand by the voice from the scroll to the lab technicians to talk to whoever's in charge. That initially went to the lab technicians' boss, then to the head of the police department, and finally to Ozpin himself in rapid succession. If it was first contact however, then it would likely to escalate to the ruling council themselves. For now, he will be doing the talking.
+Professor Ozpin found himself in a police station next to a scroll-like electronic surrounded by technicians and policemen, just waiting for him to reply to a woman's voice. Earlier, there was an insistent demand by the voice from the scroll to the lab technicians to talk to whoever's in charge. That initially went to the lab technicians' boss, then to the head of the police department, and finally to Ozpin himself in rapid succession. If it was first contact however, then it would likely to escalate to the ruling council themselves. For now however, he will be doing the talking.
 
 "To who am I speaking to?" Ozpin asked.
 
-"Doctor Yure Shinatose," the scroll answered. "Of the starship Sidonia. I am a healer. I believed you have in custody of our two explorers in your hospital."
+"Doctor Yure Shinatose," the scroll answered. "Of the starship Sidonia. I am a healer. I believed you have in custody of two of our explorers in your hospital."
 
 "Aliens? From space?"
 
-"In a way, but we're also humans. Yes, my people live in space."
+"In a way, but we're also humans."
 
 There were the incredulous stares, but also slack-jawed faces as well. Some were just confused. Meeting aliens from another world was a common staple of science fiction for the last hundred of years or so, but to actually be meeting them?
 
@@ -19,9 +19,9 @@ There was however, one question that he have to ask.
 
 "You're not planning to invade us, are you?"
 
-"We have no plans, but our explorers are grave in danger of dying. We know it from the transponders you removed. Your doctors do not understand our physiology. So, I would greatly appreciate it if you arrange a visit. We'll come here by foot."
+"We have no plans or intention, but our explorers are grave in danger of dying. We know it from the transponders you removed. Your doctors do not understand our physiology. So, I would greatly appreciate it if you arrange a visit. We'll come here by foot."
 
-"Ah." He nodded to the police chief to get ready to make plans. "We will make such a visit possible as soon as we can."
+"Ah." He nodded to the police chief to get ready to make plans. "We will make such a visit possible as soon as we can, but there are conditions for your visit..."
 
 Just like that, he made a decision that will soon be irrevocable. He's going to need a lot of huntsmen for security.
 
@@ -34,19 +34,19 @@ The forest was also something new entirely.
 
 She can feel the dirt underneath her boots, while taking in the aroma of the pinetrees surrounding her her. Granted, she was briefly on Earth, but she never saw the skies or the surrounding outside the warehouse.
 
-Eventually, she saw a couple of aircrafts in the air.
+Eventually, she saw aircrafts in the air.
 
-"I saw what looked like aircrafts," she spoke into her phone.
+"I saw what looked like jet planes," she spoke into her phone.
 
 "Good, that mean those bullheads are in the right region," professor Ozpin said.
 
-Shinatose fired her flare into the air, signaling that she was there.
+Shinatose fired her flare into the air, signaling her location to her ride.
 
-One of them came in for the landing, pivoting its engine so it can land vertically. Air swiverl more violently as it touched down. A door slid open.
+One of them came in for the landing, pivoting its engine so it can land vertically. Air swiveled more violently as it touched down. A door slid open.
 
-"Doctor Yure Shinatose?" a man asked.
+"Doctor Yure Shinatose and Mayumi Yoshizawa?" a man asked.
 
-"Yes, that's me."
+"Yes, that's us."
 
 "OK, you two, get on board."
 
@@ -54,7 +54,7 @@ Shinatose and her guard, Mayumi Yoshizawa boarded the bullhead.
 
 ***
 
-It wasn't very long until Shinatose saw the roof of one of their hospital and the crowd that surrounded the building, neatly separated by security to allow ambulance and people to enter the hospital.
+It wasn't very long until Shinatose saw the roof of the hospital and the crowd that surrounded the building, neatly separated by security to allow ambulance and people to enter the hospital.
 
 Flashes of light from photographers inundated the rooftop as the bullhead came in for the landing.
 
@@ -73,13 +73,13 @@ She bowed nervously, as did her guard. "I am Yure Shinatose," she introduced her
 **June 29, 2015**
 **Vale, Remnant**
 
-It had been three weeks since the nearly disastrous incident three weeks back. Noguchi and Toma were rescued by Doctor Shinatose who absolutely insisted on coming despite the potential risk involving a first contact situation. Following a long boring series of meetings with Remnan officials, along with Sidoninan and Cylon delegates. I also got dragged in as an 'observer' representing Earth as well, even adding my own input. It finally worked out culminating into a signing ceremony.
+It had been three weeks since the nearly disastrous incident. Noguchi and Toma were rescued by Doctor Shinatose who absolutely insisted on coming despite the potential risk involving a first contact situation. Next was a series of long and boring meetings with Remnan officials, along with Sidoninan and Cylon delegates. I also got dragged in as an 'observer' representing Earth as well, even adding my own input. It finally worked out culminating into a signing ceremony.
 
 So, there I was, in this stuffy fancy business suit picked out by Sasaki standing in front of flashing cameras and the attendant journalists, doing my best to smile, while waiting for Kobayashi to sign a memorandum of understanding with the four major Remnan powers, Sidonians, Cylons, and me.
 
-She signed her own name for Sidonia with remarkable penmanship and grace that most people don't posess in this modern age.
+She signed her own name for Sidonia with remarkable penmanship and grace that most people don't possess in this modern age.
 
-"May we look forward to the future for all of humanities and our descendants," Kobayashi said. Then that masked woman handed me the pen, before giving the seat up to me. I gulped, and then I signed. It helped that Sasaki taught me negotiation and penmanship. God, she's a fountain of wisdom.
+"May we we forge the future for all of humanities and our descendants," Kobayashi said. Then that masked woman handed me the pen, before giving the seat up to me. I gulped, and then I signed. It helped that Sasaki taught me negotiation and penmanship. God, she's a fountain of wisdom and knowledge.
 
 I now have access to a global citizenship that typically only huntsmen possessed, along with an obligation to work with all the parties for their mutual benefit for a number of years in return for a generous salary. Meanwhile, they will be responsible for protecting me from any reprisal from fellow Earthlings when they found out that I was working with all of them. In return, they will be allowed to make first contact with the people of Earth. I felt a lot safer already now that the men in black won't kidnap me in the middle of the night. On the other hand, I will now have pesky guards who will spy on me.
 
@@ -133,15 +133,15 @@ It wasn't very long for the first person to approach us, however. A man with mes
 
 "Good evening, I am Doctor Bartholomew Oobleck of Beacon Academy, and you must be Sasaki, Archer, and Rose," he rapid fire introduced himself. "I am a historian, and I have a very keen interest in the histories of your world. So, if you don't mind, I would love to talk history."
 
-"Um, sure. Though nobody's here are historians. We're all engineers." I answered. He took a chair.
+"Um, sure. Though nobody here are historians. We're all engineers." I answered. He took a chair.
 
-"No problem, I was looking into the average layperson's view of the world. If public announcements and briefing materials were to be believed, your world has no grimm, or dust, and you somehow achieved a world population of seven billion human beings, even more by Sidonians record. Yet you still have wars, at least two horrifying devastating world wars, in fact. Why do you people fight wars.?"
+"No problem, I was looking into the average layperson's view of the world. If public announcements and briefing materials were to be believed, your world has no grimm, or dust, and you somehow achieved a world population of seven billion human beings, even more by Sidonians record. Yet you still have wars, at least two horrifying devastating world wars, in fact. Why do you people fight wars?"
 
 Already, the professor had his notepad and pen ready to scribble down what the three of us have to say.
 
 "Why wouldn't it be any other way?" I said.
 
-"If we trace the root cause of wars of Remnant, most were blamed on the grimm. The last great war was caused in part by a desire to eliminate all emotions and individuality from the population to ensure that the Grimm will not cause the downfall of civilization."
+"If we trace the root cause of wars of Remnant, most were blamed on the Grimm," the professor said. "The last great war was caused in part by a desire to eliminate all emotions and individuality from the population to ensure that the Grimm will not cause the downfall of civilization."
 
 "If human nature is the same on Remnant, then I am pretty sure that you guys went to war for the same reason we do. Political self-determination, economic competition, territorial disputes, pure naked ambition, and so on."
 
@@ -155,7 +155,7 @@ Already, the professor had his notepad and pen ready to scribble down what the t
 
 "I would like to believe that, but you'll never know."
 
-"Uh-huh." He finished writing down the last of his notes. "I have to say that my suspicion about the nature of war is correct. Grimm probably have little to do with the ultimate causes of war."
+"Uh-huh." He finished writing down the last of his notes. "I have to say that my suspicion about the nature of war is correct. The grimm probably have little to do with the ultimate causes of war."
 
 "Yet you say that the Great War is motivated by that," I pointed out.
 
@@ -171,7 +171,7 @@ Already, the professor had his notepad and pen ready to scribble down what the t
 
 "Our intentions."
 
-"I like to think that there aren't any deceit. You have given us a very fair deal. More than a fair deal."
+"I like to think that there aren't any deceit and that your people were geuine in their desire for peaceful technological, scientific, and cultural exchange. You have given us a very fair deal. More than a fair deal."
 
 "Well, I didn't do most of the negotiation. The Sidonians did. I wanted to ask. You are a full fledge huntsman from Beacon Academy?"
 
@@ -179,6 +179,6 @@ Already, the professor had his notepad and pen ready to scribble down what the t
 
 "Why study history?"
 
-"It may sounded cliched to you, but I really believe that if you studied the past, you can avoid mistakes of the future. Being a huntsman is not just about slaying the Grimm, but protecting the world."
+"It may sounded cliched to you, but I really believe that if you studied the past, you can avoid mistakes of the future. Being a huntsman is not just about slaying the creatures of darkness, but protecting the world."
 
 "I see..."
