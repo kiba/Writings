@@ -21,3 +21,4 @@ June 5, 2015 - Chapter 15 - Lieutenant Akeno Noguchi and Doctor Keiko Toma arriv
 June 6, 2015 - Chapter 15 - The Sidonian duo went to a bookstore and brought books. They eventually ordered food, among other activities. They were planning to acquired Dust before being caught in a cross-fire between armed robbers and a huntress-in-training.
 June 7, 2015 - Chapter 16 - Investigation into the Sidonians by local authority in Vale, Remnant turned up 'nothing'.
 June 8, 2015 - Chapter 16 - Colonel Seii decided to send an emissary and a doctor.
+June 29, 2015 - Chapter 17 - After three weeks of negotiation, Remnans, Sidonians, Cylons, and an Earthling agreed to a memorandum of understanding setting out the term for technological, scientific, and cultural exchange.
