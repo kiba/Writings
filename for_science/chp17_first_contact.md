@@ -1,4 +1,4 @@
-# **Chapter 17: First Contact**
+# **Chapter Seventeen: First Contact**
 
 **Headmaster Ozpin**
 **Vale Police Department Headquarter**
