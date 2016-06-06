@@ -131,4 +131,54 @@ It didn't take long Diana and I, along with Sasaki who's tagging along, to find 
 
 It wasn't very long for the first person to approach us, however. A man with messy green hair, round glasses, and sapphire blue eyes moved like a blur until he finally reached our table.
 
-"Good evening, I am Doctor Bartholomew Oobleck of Beacon Academy, and you must be Sasaki, Archer, and Rose," he rapid fire introduced himself.
+"Good evening, I am Doctor Bartholomew Oobleck of Beacon Academy, and you must be Sasaki, Archer, and Rose," he rapid fire introduced himself. "I am a historian, and I have a very keen interest in the histories of your world. So, if you don't mind, I would love to talk history."
+
+"Um, sure. Though nobody's here are historians. We're all engineers." I answered. He took a chair.
+
+"No problem, I was looking into the average layperson's view of the world. If public announcements and briefing materials were to be believed, your world has no grimm, or dust, and you somehow achieved a world population of seven billion human beings, even more by Sidonians record. Yet you still have wars, at least two horrifying devastating world wars, in fact. Why do you people fight wars.?"
+
+Already, the professor had his notepad and pen ready to scribble down what the three of us have to say.
+
+"Why wouldn't it be any other way?" I said.
+
+"If we trace the root cause of wars of Remnant, most were blamed on the grimm. The last great war was caused in part by a desire to eliminate all emotions and individuality from the population to ensure that the Grimm will not cause the downfall of civilization."
+
+"If human nature is the same on Remnant, then I am pretty sure that you guys went to war for the same reason we do. Political self-determination, economic competition, territorial disputes, pure naked ambition, and so on."
+
+"The only wars we have for thousand of years as Sidonians is the wars against the Gauna," Sasaki said.
+
+"Ah yes, they have much parallels to the creatures of Grimm," Oobleck thought out loud. "Miss Sasaki, would you say that human nature in your society differ from ancient Earth?"
+
+"No I wouldn't say we have changed. Proof is that my ancestors are all still comprehensible to me."
+
+"So you would say that war among ourselves is not inevitable."
+
+"I would like to believe that, but you'll never know."
+
+"Uh-huh." He finished writing down the last of his notes. "I have to say that my suspicion about the nature of war is correct. Grimm probably have little to do with the ultimate causes of war."
+
+"Yet you say that the Great War is motivated by that," I pointed out.
+
+"That is true, but I don't believe for quite some time that is the main motivation. More likely, it is a rationalization after the fact. As you say, one of the cause of war is 'naked ambition'."
+
+"Conquest."
+
+"Exactly."
+
+"Well, what do you think about us?"
+
+"In what way?"
+
+"Our intentions."
+
+"I like to think that there aren't any deceit. You have given us a very fair deal. More than a fair deal."
+
+"Well, I didn't do most of the negotiation. The Sidonians did. I wanted to ask. You are a full fledge huntsman from Beacon Academy?"
+
+"Yes, I am."
+
+"Why study history?"
+
+"It may sounded cliched to you, but I really believe that if you studied the past, you can avoid mistakes of the future. Being a huntsman is not just about slaying the Grimm, but protecting the world."
+
+"I see..."
