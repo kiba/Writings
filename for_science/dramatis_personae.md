@@ -1,6 +1,12 @@
 # **Dramatis Personae**
 
-* **James Archer** - First Appearance: Chapter 1. Electrical engineer who discovered and invent trans-dimensional travel. He is also afflicted with what he called the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering. In chapter 10, He claimed to have sampled the global cuisine of the world.
+* **James Archer** - Earth-born electrical engineer who discovered and invented trans-dimensional travel. He is in a relationship with Diana Rose.
+
+What allowed him to invent trans-dimensional travel is caused by a mental power or process that can only be described as the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering. A significant amount of his effort is then spent on reverse-engineering his own creation into a more logical framework for everyone else to use. Another aspect of his power is his ability to pull out of jump coordinates to anywhere in the multiverse through an unknown mental process.
+
+As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
+
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17
 
 * **Alpha Beta Two Charles** - First Appearance: Chapter 6. Went on long walks with James, talking about history and moral philosophy.
 
