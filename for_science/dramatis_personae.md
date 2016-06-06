@@ -22,7 +22,7 @@
 
 * **Lala Hiyama** - First Appearance: Chapter 10. A woman in bear suit who is the dorm mother of a dormitory for Gardes pilot-trainees.
 
-* **Daichi Chou** - First Appearance: Chapter 14. An engineering advisor from Sidonia. 
+* **Daichi Chou** - First Appearance: Chapter 14. An engineering advisor from Sidonia.
 
 * **Sil Silver** - First Appearance: Chapter 15. A wolf faunus pawn shopkeeper with a keen ability to detect lies and falsehood, enabling him to make a living and avoid losing money from thieves.
 
@@ -41,3 +41,5 @@
 * **Detective Gole Bane** - First Appearance: Chapter 16. He is the detective, along with his partner Max Blueberry, who are on the case regarding the robbery attempt on Dust until Dawn.
 
 * **Detective Max Blueberry** - First Appearance: Chapter 16. Mentioned by his partner, detective Gole Bane, in a conversation with a motel receptionist where Noguchi and Toma were staying.
+
+* **Professor Bartholomew Oobleck** - First Appearance: Chapter 17. Discussed history with Sasaki, Archer, and Rose.
