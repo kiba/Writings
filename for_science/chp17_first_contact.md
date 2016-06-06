@@ -179,6 +179,6 @@ Already, the professor had his notepad and pen ready to scribble down what the t
 
 "Why study history?"
 
-"It may sounded cliched to you, but I really believe that if you studied the past, you can avoid mistakes of the future. Being a huntsman is not just about slaying the creatures of darkness, but protecting the world."
+"It may sounded cliched to you, but I really believe that if you study the past, you can avoid mistakes of the future. Being a huntsman is not just about slaying the creatures of darkness, but protecting the world."
 
 "I see..."
