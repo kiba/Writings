@@ -52,7 +52,9 @@ Ex-girlfriend of physicist and mechanical engineer Doctor Rodney McKay.
 
 * **Glynda Goodwitch** - First Appearance: Chapter 15. She is a huntress and professor at Beacon Academy. After driving off the robbers, she, along with Ruby Rose, applied first aid until the ambulance arrived.
 
-* **Headmaster Ozpin** - First Appearance: Chapter 16. He is the Headmaster of the Beacon Academy, a combat school. Talked to everyone involved with the incident from chapter 15.
+* **Headmaster Ozpin** - He is the Headmaster of the Beacon Academy, a combat school. Talked to everyone involved with the incident from chapter 15.
+
+Appearances: 16, 17, 18
 
 * **Doctor Ross Steff** - First Appearance: Chapter 16. Informed Ozpin on the medical conditions of two Sidonians.
 
