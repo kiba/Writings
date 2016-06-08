@@ -1,6 +1,7 @@
 # **Chapter Eighteen: Policy Update**
 
 **Professor Ozpin**
+**Beacon Academy, Vale**
 **July 2, 2015**
 
 Professor Ozpin was enjoying a cup of coffee as the sun dawn. He reflected back on the negotiation that he was part of for the past three weeks. As expected, it was a throughly new experience.
@@ -52,3 +53,13 @@ Qrow shrugged. "Nothing much. I was getting a tour around their ship, and then s
 "Do you think it's bugged?"
 
 "Maybe. But that's why they're going to be used sparsely. I doubt we'll stop manufacturing scrolls. More likely we'll incorporate the principles of their technologies into ours. "
+
+***
+**Captain Kobayashi**
+**Sidonia**
+
+There was a side to her that nobody else knew as she never divulged her face or identity to anyone. Unsurprising, that meant she could shop or go anywhere, with none of them being any wiser.
+
+The immortal had just gotten a seat at a cafe, listening to the conversations that was happening around her. To a large degree, it was about trans-dimensional travel and the world of Remnant, much of it discussed with excited and curious tones. But there are some discussion that veered through immortality.
+
+It looked like Archer can't stop blabber on about immortality and a possible conspiracy.
