@@ -22,7 +22,7 @@ Negotiated with James Archer for peaceful tactics for AI rights, and resettlemen
 
 * **Delta Zero Three One** - The only full Cylon unit to arrive with James Archer back on his Earth. It was given a mission by the Cylons rebel to create a new Cylon civilization in case that war had broken out with the Cylon and ultimately proven unsuccessful.
 
-Its main expertise is in financial analysis and algorithmic trading.
+Its main expertise is in financial analysis and algorithmic trading making the Cylon into the major breadwinner for the Archer household, allowing humans and other cylons to focus on other matters.
 
 Appearances: 7, 8, 9, 12, 13, 14, 16, 17
 
@@ -34,15 +34,19 @@ Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17
 
 * **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia. She initially has an antagonistic relationship with the Earthlings as a result of a strong-armed negotiation.
 
+Kobayashi ordered the assassination of the entire immortal council when she viewed them as too disloyal and treasonous to Sidonia. With the elimination of the council, she was given free reign to pursue her trans-dimensional ambition of relocating Sidonians to somewhere safe and fulfill Sidonia's mission as a seedship.
+
 Appearances: 9, 10, 11, 12, 14, 17
 
 * **Ochiai** - A cyborg who is a confidant and assistant to Captain Kobayashi.
 
 Appearances: 9, 10
 
-* **Sasaki** - First Appearance: Chapter 9. Chief engineer of Sidonia and Toha Heavy Industries. She became good friend with both Rose and Archer after becoming a designated hostage.
+* **Sasaki** - First Appearance: Chapter 9. Chief engineer of Sidonia and Toha Heavy Industries. She became good friend with both Rose and Archer after becoming a designated hostage. Other than her friendship, one of her job was to tutor both of them in Sidonian knowledge of engineering and science.
 
-* **Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia.
+She is fearful of automative travel, thinking that it will kill her at any moment.
+
+* **Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability. 
 
 * **Mayumi Yoshizawa** - First Appearance: Chapter 10. She is a member of the security police, which is responsible for internal state security.
 
