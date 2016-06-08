@@ -63,3 +63,5 @@ Appearances: 16, 17, 18
 * **Detective Max Blueberry** - First Appearance: Chapter 16. Mentioned by his partner, detective Gole Bane, in a conversation with a motel receptionist where Noguchi and Toma were staying.
 
 * **Professor Bartholomew Oobleck** - First Appearance: Chapter 17. Discussed history with Sasaki, Archer, and Rose.
+
+* **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy. 
