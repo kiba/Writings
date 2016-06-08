@@ -10,15 +10,15 @@ Another aspect of his power is his ability to learn languages.
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-
-
 Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17
 
 * **Alpha Beta Two Charles** - First Appearance: Chapter 6. It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
 
 Negotiated with James Archer for peaceful tactics for AI rights, and resettlement of a few Cylons in exchange for TDM parts and Colonial knowledge base.
 
-* **Delta Zero Three One** - First Appearance: Chapter 7. Arrived with James Archer back on his Earth. A cylon who traveled to Archer to its new home. Its goal is to create a new Cylon civilization in case war broke with the Colonials and went badly.
+* **Delta Zero Three One** - The only full Cylon unit to arrive with James Archer back on his Earth. It was given a mission by the Cylons rebel to create a new Cylon civilization in case that war had broken out with the Cylon and ultimately proven unsuccessful.
+
+Its main expertise is in financial analysis and algorithmic trading.
 
 Appearances: 7, 8, 9, 12, 13, 14, 16, 17
 
@@ -26,9 +26,15 @@ Appearances: 7, 8, 9, 12, 13, 14, 16, 17
 
 Ex-girlfriend of physicist and mechanical engineer Doctor Rodney McKay.
 
-* **Captain Kobayashi** -  First Appearance: Chapter 9. Commander-in-chief and overall leader of Sidonia.
+Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17
 
-* **Ochiai** - First Appearance: Chapter 9. A cyborg who is a confidant and assistant to Captain Kobayashi.
+* **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia. She initially has an antagonistic relationship with the Earthlings as a result of a strong-armed negotiation.
+
+Appearances: 9, 10, 11, 12, 14, 17
+
+* **Ochiai** - A cyborg who is a confidant and assistant to Captain Kobayashi.
+
+Appearances: 9, 10
 
 * **Sasaki** - First Appearance: Chapter 9. Chief engineer of Sidonia and Toha Heavy Industries. She became good friend with both Rose and Archer after becoming a designated hostage.
 
@@ -64,4 +70,4 @@ Appearances: 16, 17, 18
 
 * **Professor Bartholomew Oobleck** - First Appearance: Chapter 17. Discussed history with Sasaki, Archer, and Rose.
 
-* **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy. 
+* **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy.
