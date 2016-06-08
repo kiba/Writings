@@ -2,11 +2,15 @@
 
 * **James Archer** - Earth-born electrical engineer who discovered and invented trans-dimensional travel. He is in a relationship with Diana Rose.
 
-What allowed him to invent trans-dimensional travel is caused by a mental power or process that can only be described as the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering. A significant amount of his effort is then spent on reverse-engineering his own creation into a more logical framework for everyone else to use. Another aspect of his power is his ability to pull out of jump coordinates to anywhere in the multiverse through an unknown mental process.
+What allowed him to invent trans-dimensional travel is caused by a mental power or process that can only be described as the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering.
 
 On rare occasions, his power interfere or control the decision he makes or how he interacts with other, though usually in ways beneficial 'morally'.
 
-Another aspect of his power is his ability to learn languages.
+Aside from his tinker power, he's also a linguistic savant, being able to learn languages at a rapid extremely rapid pace. Finally, he also have the ability to pull out jump coordinates to anywhere in the multiverse.
+
+Beside his superpower, Archer possessed a bachelor degree in electrical engineering, along with some degrees of machinist knowledge, allowing him to do some metalworking. Like other engineers, access to other alternate realities allowed him to expand his education beyond his knowledge base pre-contact.
+
+With his engineering knowledge, he used it to reverse engineer the often convoluted technological artifacts that he created into a more useful form for everyone to build on.
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
