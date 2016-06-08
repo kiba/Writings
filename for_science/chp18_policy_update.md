@@ -60,6 +60,28 @@ Qrow shrugged. "Nothing much. I was getting a tour around their ship, and then s
 
 There was a side to her that nobody else knew as she never divulged her face or identity to anyone. Unsurprising, that meant she could shop or go anywhere, with none of them being any wiser.
 
-The immortal had just gotten a seat at a cafe, listening to the conversations that was happening around her. To a large degree, it was about trans-dimensional travel and the world of Remnant, much of it discussed with excited and curious tones. But there are some discussion that veered through immortality.
+The immortal had just gotten a seat at a cafe, listening to the conversations that was happening around her. To a large degree, it was about trans-dimensional travel and the world of Remnant, much of it discussed with excited and curious tones. But there are some discussion that veered toward the topic of immortality conspiracy.
 
-It looked like Archer can't stop blabber on about immortality and a possible conspiracy.
+Much of which would be squarely blamed on the feet of James Archer and his girlfriend. That, more than anything else alarmed her, and she was loathed to sweep him aside to put a stop to his subversive ideas, especially early in their collaboration. The man made himself too useful and indispensable.
+
+The various methods available were not moral, and after her murders of her fellow immortals, she finally had enough. She also promised a certain someone not to do the things that she used to do. It was also too late anyway, attacking him in any way or form will draw unnecessary attention, leading to a spike of weariness and loss of group cohesion amongst Sidonia and the security force.
+
+On the other hand, she had no intention of dying or going down quietly into the night. No way. It was not only her life she has to worry about, but her new family, and those of her friends. There wasn't a complete solution, but in time she'll come up with one, hopefully before it's too late.
+
+Speaking of persons personally impacted when her leadership is questioned, a century old redhead just entered the cafe, her gaze directed at Kobayashi's table. It was only several footstep before she arrived at Kobayashi's table.
+
+"How's Tanikaze-kun and Saitou-kun doing?" the redhead asked.
+
+"Just fine."
+
+Sasaki seated herself before ordering a drink from a waitress. "I never took you for a family woman."
+
+"Neither did I. It was all so sudden. It turned out that no matter how immortal you are, you can still lose time. I should had done it a long time ago."
+
+"Better late than never."
+
+"That, and nobody's in my way. I don't have to watch my back." It was of course, a thinly veiled reference to her slaughter of the treasonous immortal council. It took time to convince Sasaki and Shinatose that she wasn't coming after them. "Say, how's Archer and Rose?"
+
+"Oh, the same usual. Rose and I were restraint on Archer's antics. They seemed to have forgotten what I was supposed to be to them in the first place, not that I really care."
+
+"Good."
