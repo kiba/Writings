@@ -84,4 +84,49 @@ Sasaki seated herself before ordering a drink from a waitress. "I never took you
 
 "Oh, the same usual. Rose and I were restraint on Archer's antics. They seemed to have forgotten what I was supposed to be to them in the first place, not that I really care."
 
-"Good."
+"That's good news. There's business I want to discuss, but not here. We should head upstair."
+
+"Alright."
+
+The two women picked up their drinks, before signaling a waitress. They then moved upstair into a private partition.
+
+"You know, your Earth friends are militant immortalists," Kobayashi said. "They advocated curing the diseases of aging and giving anti-therapies to everyone. We have that technology, but we don't want to dispense it to anyone except the select few and to protect against population explosion."
+
+"Because it would make our mission pointless," Sasaki parroted back. "And unofficially, it would threatened the power structure. That's why we have secret laws with severe penalties, prohibiting the spread of immortality."
+
+"That power structure is no more, because I eliminated them all."
+
+"Are-are you saying you want to spread the therapies to everyone else? I-I don't know what to say."
+
+"Exactly. When I adopted Tanikaze-kun, I realized that I wanted to be a mother...It wouldn't be possible if we don't have children. Having children and being immortal can become an exclusive choice when faced with resource scarcity. Then I realized that overpopulation isn't a problem if there are worlds to settle, if we could expand infinitely through alternate realities for all of eternity. Entropy itself is defeated, not just with the hiegus particles, but with trans-dimensional travel."
+
+"Then nobody has to die," Sasaki concluded.
+
+"On the contrary, as long as there are threats in the multiverse, somebody might need to fight, and there's always a risk of dying in a war, but nobody will have to die simply because they grew too old."
+
+"But then? What about us? About me? The rumor of a secret conspiracy of immortals cannot be squashed, even if everyone is offered the choice of immortality."
+
+"I admit that is a problem, but I am not going to kill anyone."
+
+"Oh yeah? You killed the councilmembers."
+
+"It was necessary."
+
+"Maybe so, but it set a precedent. Conveniently enough, the councilmembers can't be there to defend themselves either."
+
+"Do you trust me?"
+
+"It depends. I trusted you not to kill me and Shinatose-san. I don't trust you not to utilize underhanded methods against opponents of your regime."
+
+"You have no objection to spreading the therapies."
+
+"None at all. I would be delighted not to see old friends die. You done us a favor for getting rid of the council. Is that all you wanted to discuss?"
+
+"Yes."
+
+"Good day to you, Captain."
+
+***
+**James Archer**
+
+It felt really good to be out in the open and not have to worry about the laws and government G-men. Not only that, I was given a generous salary by the four kingdoms, but also a much bigger space to work within, even the title 'Director' of the Trans-dimensional Research Labaratory.
