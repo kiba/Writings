@@ -22,3 +22,4 @@ June 6, 2015 - Chapter 15 - The Sidonian duo went to a bookstore and brought boo
 June 7, 2015 - Chapter 16 - Investigation into the Sidonians by local authority in Vale, Remnant turned up 'nothing'.
 June 8, 2015 - Chapter 16 - Colonel Seii decided to send an emissary and a doctor.
 June 29, 2015 - Chapter 17 - After three weeks of negotiation, Remnans, Sidonians, Cylons, and an Earthling agreed to a memorandum of understanding setting out the term for technological, scientific, and cultural exchange.
+July 2, 2015 - Chapter 18 - Ozpin received a full set of communication equipment for the four kingdoms.
