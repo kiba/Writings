@@ -1,11 +1,11 @@
 # **Timeline**
 
-February 4, 2015 - Chapter 1 -  James Archer made the first successful jump to another universe, crossing over to the nuBattlestar Universe.
-Feburary 5, 2015 - Chapter 4 - James Archer woke up in a Cylon rebel cabin. Chapter 4.
+February 4, 2015 - Chapter 1 -  James Archer made the first successful jump to another universe, crossing over to the nBSG Universe. He then fainted in the wilderness of Caprica, before the Cylon rebels rescued him.
+Feburary 5, 2015 - Chapter 4 - James Archer woke up in a Cylon rebel cabin.
 February 14, 2015 - Chapter 5 - James Archer became acquainted with the Cylons.
 February 19, 2015 - chapter 6 - James Archer negotiated a deal with the Cylons. In exchange for repair of his device, a few cylons will go home with him and that he will assists the Cylons in developing their moral strategy.
-February 24, 2015 - Chapter 7 - James Archer arrived back on his Earth, meeting the wraith of his girlfriend Diana Rose.
-April 3, 2015 - Chapter 8 - After spending a month on R&D and raising money, James and Diana Rose made a jump to a new dimension.
+February 24, 2015 - Chapter 7 - James Archer arrived back on his Earth, meeting the wraith of his girlfriend Diana Rose for worrying her.
+April 3, 2015 - Chapter 8 - After spending a month on R&D and raising money, James and Diana Rose made a jump to a new reality.
 April 4, 2015 - Chapter 10 - Rose and Archer were permitted by the Sidonian authority to explore the arkship.
 April 6, 2015 - Chapter 11 - The two Earthlings negotiated with Captain Kobayashi on going home and technological and scientific assistance.
 April 7, 2015 - Chapter 12 - Test of grade-grade armor is carried out by Sasaki to convince Archer to install it on his TDM.
