@@ -185,4 +185,4 @@ I found myself in a room with the director, a Doctor Polenda, which I had only k
 
 "But..."
 
-"If you don't want to be a manaer, I'll find something else that you're good at. If you refuse to choose anything, I will assign a duty for you. No researchers here will sacrifice nothing."
+"If you don't want to be a manager, I'll find something else that you're good at. If you refuse to choose anything, I will assign a duty for you. No researchers here will sacrifice nothing."
