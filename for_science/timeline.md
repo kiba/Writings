@@ -23,3 +23,5 @@ June 7, 2015 - Chapter 16 - Investigation into the Sidonians by local authority 
 June 8, 2015 - Chapter 16 - Colonel Seii decided to send an emissary and a doctor.
 June 29, 2015 - Chapter 17 - After three weeks of negotiation, Remnans, Sidonians, Cylons, and an Earthling agreed to a memorandum of understanding setting out the term for technological, scientific, and cultural exchange.
 July 2, 2015 - Chapter 18 - Ozpin received a full set of communication equipment for the four kingdoms.
+July 2, 2015 - Chapter 18 - Kobayashi discussed spreading anti-aging medicine to the rest of Sidonia with Sasaki.
+July 2, 2015 - Chapter 18 - James Archer was introduced to Doctor Polenda, who became the director of the Trans-dimensional Research Laboratory.
