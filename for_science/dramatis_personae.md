@@ -46,7 +46,7 @@ Appearances: 9, 10
 
 She is fearful of automative travel, thinking that it will kill her at any moment.
 
-* **Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability. 
+* **Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability.
 
 * **Mayumi Yoshizawa** - First Appearance: Chapter 10. She is a member of the security police, which is responsible for internal state security.
 
@@ -79,3 +79,5 @@ Appearances: 16, 17, 18
 * **Professor Bartholomew Oobleck** - First Appearance: Chapter 17. Discussed history with Sasaki, Archer, and Rose.
 
 * **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy.
+
+* **Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex. 
