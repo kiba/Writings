@@ -129,4 +129,52 @@ The two women picked up their drinks, before signaling a waitress. They then mov
 ***
 **James Archer**
 
-It felt really good to be out in the open and not have to worry about the laws and government G-men. Not only that, I was given a generous salary by the four kingdoms, but also a much bigger space to work within, even the title 'Director' of the Trans-dimensional Research Labaratory.
+It felt really good to be out in the open and not have to worry about the laws and government G-men. Not only that, I was given a generous salary by the four kingdoms, but also a much bigger space to work with, even the title 'fellow' for the Trans-dimensional Research Laboratory. Thank god that they didn't make me director. I hate the idea of being a politician or a bureaucrat.
+
+It was of course, not without obligations. Everything that the research lab is 'open source' and freely available for the public at large.
+
+"Hello!" I greeted the researchers walking in. Today was just getting started, and already there was a new batch of faces that I did not recognize.
+
+I hummed to myself as I approached my corner of the lab, full of stuff that I 'invented' and was working toward to reverse engineering, which the Sidonians called 'tinkertech.' I thought it was a sucky name, but it stuck. It was a term for any Rube Golderg-equse technological artifact that nonetheless accomplish something useful.
+
+On a table laid the prototype Mark I shield generator, a device that unsurprisingly generated force field, much like the Remnan's aura shield, but vastly inferior. It looked like a gnarly mess, but it was engineered correctly, with no unnecessary complexity.
+
+I turned on the device, making it generating a forcefield, but also making it consume energy at a prodigious rate. I could imagine the spiky energy bill presented to the facility's director.
+
+A forcefield bubble appeared with almost no sound at all, although the device that generated it was whirling rather loudly.
+
+I took out a pencil and pushed it lightly against the forcefield. Then I pushed harder, and the shield penetrated the forcefield with a little pop.
+
+It was a groundbreaking prototype to be sure, but it wasn't just very practical yet. It used a lot of energy to generate a pathetic field.
+
+"Requesting Archer immediately to the director's office," the public announcement speaker said. " Requesting Archer immediately to the director's office."
+
+Damn! I forgot. I was given freedom to pursue research however I felt like, but it doesn't mean that there are no annoying bureaucracy to contend with.
+
+So, I turned off the shield generator and headed for the director's office.
+
+***
+
+I found myself in a room with the director, a Doctor Polenda, which I had only known through video conferences and a whole lot of reading. He has an impressive resume who worked largely for the massive Atlasian industrial research complex, who practicaly demanded his job. He got it.
+
+"You must be James Archer that I keep hearing about," the portly man. "Pardon me for not being there at the opening ceremony, but you must understand that my former boss tried to stall me one last time."
+
+"I take it that it didn't work," I said.
+
+"No it didn't. Years of working for the military had predisposed them to taking me far too much for granted.  Now, apart from the foreigners, I am the only big name in town. Have you taken a look at the researchers who were hired?"
+
+"No I didn't."
+
+"If you did, our lab didn't get the top researchers from all four corners. Now, the kingdoms wouldn't go so far as to sabotage the collaborative institute with subpar researchers. They were respectable, at the very least. "
+
+"I didn't know. I was too far interested in working."
+
+"I empathize with your desire to just do interesting work, but politics is the fact of life. Even now, the Atlasian military still got a stranglehold on me, because of what I accomplished..."
+
+"And?"
+
+"Politics can't be ignored! If we want top-notch researchers, we'll have to utilize those researchers to our maximum benefit. That means management."
+
+"Oh god, no."
+
+"Just hear me out, will ya?"
