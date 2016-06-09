@@ -14,7 +14,7 @@ With his engineering knowledge, he used it to reverse engineer the often convolu
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18
 
 * **Alpha Beta Two Charles** - First Appearance: Chapter 6. It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
 
@@ -64,7 +64,9 @@ She is fearful of automative travel, thinking that it will kill her at any momen
 
 * **Ruby Rose** - First Appearance: Chapter 15. She is a second year student at Signal Academy. Fifteen years old Huntress-in-training involved in an altercation with armed robbers at a dust shop.
 
-* **Glynda Goodwitch** - First Appearance: Chapter 15. She is a huntress and professor at Beacon Academy. After driving off the robbers, she, along with Ruby Rose, applied first aid until the ambulance arrived.
+**Glynda Goodwitch** - She is a huntress and professor at Beacon Academy. After driving off the robbers, she, along with Ruby Rose, applied first aid to the Sidonian victims until the ambulance arrived.
+
+Appearance: 15, 16, 17, 18
 
 * **Headmaster Ozpin** - He is the Headmaster of the Beacon Academy, a combat school. Talked to everyone involved with the incident from chapter 15.
 
@@ -80,4 +82,4 @@ Appearances: 16, 17, 18
 
 * **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy.
 
-* **Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex. 
+* **Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex.
