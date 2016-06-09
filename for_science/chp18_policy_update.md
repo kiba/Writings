@@ -185,4 +185,4 @@ I found myself in a room with the director, a Doctor Polenda, which I had only k
 
 "But..."
 
-"If you don't want to do it, you'll have to take up talk shows and become a public speaker or some other essential non-research functions. I'll find something that you're good at. No researchers here will sacrifice nothing."
+"If you don't want to be a manaer, I'll find something else that you're good at. If you refuse to choose anything, I will assign a duty for you. No researchers here will sacrifice nothing."
