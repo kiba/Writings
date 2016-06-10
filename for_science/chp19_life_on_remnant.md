@@ -45,6 +45,12 @@ It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in t
 
 "I am not going to lie on stage about what I believed."
 
-"I am not asking you. I just want you to be diplomatic."
+"I am not asking you to do that. I just want you to be diplomatic."
 
 ***
+
+After breakfast, I stepped into the street with my housemates. It was a narrow street, a reminder of an age when Vale did not have cars. Though it was not evident how crammed in the Kingdom itself was. Much of the land were devoted to agriculture, and time went on, increased efficiency allowed that sector to feed an increasingly large number of people, which then expanded into the farmland. However, much of the population growth were concentrated vertically more than horizontally, given that further cessation of land would meant starvation.
+
+"Bye!" the ladies said as they went off to a different direction, with a hidden guard following behind. I went off to another direction, accompanied by another guard.
+
+With first contact and public persona status, it wasn't unreasonable for crazy people to come out of the woodwork. 
