@@ -5,18 +5,11 @@
 **Archer's Residence, Vale**
 **July 13, 2015**
 
-Did I have to mention how awkward it is to wake up staring at your friend's bosom, sandwiched between two women?
+It was another morning on the planet Remnant in an oddly familiar surrounding, an apartment. There wasn't too much different from Earth. There's a restroom, bedroom, kitchen, and a dining room.
 
-I didn't know how this happened, but there was a certain natural growth in my relationship with Sasaki, and now she was sleeping in my bed, with my girlfriend's permission. I wormed my way out of my bed and to the restroom. How did it happen? When we were looking for an apartment, we looked for the cheap places to save more of our lien. Sasaki suggested pooling resource together to save even more money, and Diana accepted.
+Early on, Diana, Sasaki, and I decided to pool our resources together and save as much money as possible so that we can build up personal access to resources.
 
-I am not about to become a harem protagonist, and no women are going to suddenly like me out of the blue, and my life wasn't an adventure. It was safe and boring. Safe and boring is good.
-
-After my morning hygiene routine ended, I went to the next room into the living room and into the kitchen and started pulling out grocery from the fridge and the pantry.
-
-The grocery was simply just too different than Earth's. There were similar food items but the food just tasted different. It doesn't matter what you eat or try. They were still delicious, but it took time to adjust.
-
-I began working on pancakes and scrambled eggs, working through the motion that I perfected back on Earth, with some adjustment of course.
-
+So I ended up in a slightly run down apartment in a slightly run down neighborhood, currently cooking pancakes and scrambled eggs. 
 ***
 
 It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in the bathroom, doing higeus photosynthesis, though she would join us from time to time.
@@ -53,4 +46,4 @@ After breakfast, I stepped into the street with my housemates. It was a narrow s
 
 "Bye!" the ladies said as they went off to a different direction, with a hidden guard following behind. I went off to another direction, accompanied by another guard.
 
-With first contact and public persona status, it wasn't unreasonable for crazy people to come out of the woodwork. 
+With first contact and public persona status, it wasn't unreasonable for crazy people to come out of the woodwork.
