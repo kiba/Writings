@@ -25,3 +25,4 @@ June 29, 2015 - Chapter 17 - After three weeks of negotiation, Remnans, Sidonian
 July 2, 2015 - Chapter 18 - Ozpin received a full set of communication equipment for the four kingdoms.
 July 2, 2015 - Chapter 18 - Kobayashi discussed spreading anti-aging medicine to the rest of Sidonia with Sasaki.
 July 2, 2015 - Chapter 18 - James Archer was introduced to Doctor Polenda, who became the director of the Trans-dimensional Research Laboratory.
+July 13, 2015 - Chapter 19 - James Archer was interviewed Lisa Lavender on the Vale News Network.
