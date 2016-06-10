@@ -14,7 +14,7 @@ With his engineering knowledge, he used it to reverse engineer the often convolu
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19
 
 * **Alpha Beta Two Charles** - First Appearance: Chapter 6. It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
 
@@ -30,21 +30,23 @@ Appearances: 7, 8, 9, 12, 13, 14, 16, 17
 
 Ex-girlfriend of physicist and mechanical engineer Doctor Rodney McKay.
 
-Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17
+Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19
 
 * **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia. She initially has an antagonistic relationship with the Earthlings as a result of a strong-armed negotiation.
 
 Kobayashi ordered the assassination of the entire immortal council when she viewed them as too disloyal and treasonous to Sidonia. With the elimination of the council, she was given free reign to pursue her trans-dimensional ambition of relocating Sidonians to somewhere safe and fulfill Sidonia's mission as a seedship.
 
-Appearances: 9, 10, 11, 12, 14, 17
+Appearances: 9, 10, 11, 12, 14, 17, 18
 
 * **Ochiai** - A cyborg who is a confidant and assistant to Captain Kobayashi.
 
 Appearances: 9, 10
 
-* **Sasaki** - First Appearance: Chapter 9. Chief engineer of Sidonia and Toha Heavy Industries. She became good friend with both Rose and Archer after becoming a designated hostage. Other than her friendship, one of her job was to tutor both of them in Sidonian knowledge of engineering and science.
+* **Sasaki** - Chief engineer of Sidonia and Toha Heavy Industries. She became good friend with both Rose and Archer after becoming a designated hostage. Other than her friendship, one of her job was to tutor both of them in Sidonian knowledge of engineering and science.
 
 She is fearful of automative travel, thinking that it will kill her at any moment.
+
+Appearances: 9
 
 * **Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability.
 
@@ -83,3 +85,7 @@ Appearances: 16, 17, 18
 * **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy.
 
 * **Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex.
+
+**Lisa Lavender** - Anchorwoman for the Vales News Network. 
+
+Appearance: 19
