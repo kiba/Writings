@@ -89,3 +89,17 @@ Archer laughed. "I am just describing some of the problems that we have as a glo
 The interview continued on for another thirty minutes.
 
 ***
+**Professor Oobleck**
+**Beacon Academy, Remnant**
+
+Professor Oobleck had put a new burden on his students. Instead of lecturing on the history of Remnant, he elected to screen the Archer interview from VNN to his classes. Of course, they took up with it with great enthusiasm, though predictably, they bemoaned his tests and homework.
+
+The room was dark, and the students were all focused on the holographic television with intense attention, hanging on to every word. They wanted to know as the professor do, to understand a world, if not his own.
+
+Which was very interesting to him. Novelty almost certainly played a role. Remnant was the world that they knew, and Earth wasn't.
+
+Of course, he had to turned on the light.
+
+There was a huge groan.
+
+"Now, now, I am sure you all wanted to hear every single word that came out of his mouth," the huntsman acknowledged. "But I am not going to let you go without any reflection on he said. We shall have a class discussion on this. "
