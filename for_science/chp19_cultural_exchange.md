@@ -76,7 +76,7 @@ James Archer blinked. "I don't know? There was never any dust on Earth that I am
 
 "Your world doesn't have the grimm nor the space monsters the Sidonians called the Gauna. Yet it's not totally a utopia, isn't it?"
 
-"Sidonia is absolutely more of a utopia than either Remnant and Earth. On Earth, we have lot of issues, a lot of it of our own making. There's a whole host of prejudices that the people of Remnant would be quite horrified to learn of. We discriminated on the basis of the color of their skin, their sexuality, their religion, and even their gender."
+"Sidonia is absolutely more of a utopia than either Remnant and Earth. On Earth, we have lot of issues, a lot of it of our own making. For example, there's a whole host of prejudices that the people of Remnant would be quite horrified to learn of. We discriminated on the basis of the color of their skin, their sexuality, their religion, and even their gender."
 
 "I don't understand."
 
@@ -84,7 +84,7 @@ James Archer blinked. "I don't know? There was never any dust on Earth that I am
 
 "It doesn't sound like a place I would want to vacation over."
 
-Archer laughed. "I am just describing some of the problems that we have as a global civilization. Don't take that as representative of Earth. My home country is quite nice to live in with almost the same living standard as Vale. It's not surprising when the United States is a world superpower and an economic powerhouse."
+Archer laughed. "I am just describing some of the problems that we have or had as a global civilization. Don't take that as representative of Earth. My home country is quite nice to live in with almost the same living standard as Vale. It's not surprising when the United States is a world superpower and an economic powerhouse."
 
 The interview continued on for another thirty minutes.
 
@@ -98,8 +98,44 @@ The room was dark, and the students were all focused on the holographic televisi
 
 Which was very interesting to him. Novelty almost certainly played a role. Remnant was the world that they knew, and Earth wasn't.
 
-Of course, he had to turned on the light.
+Of course, at some point, he have to turn on the light.
 
-There was a huge groan.
+There was a huge collective groan.
 
-"Now, now, I am sure you all wanted to hear every single word that came out of his mouth," the huntsman acknowledged. "But I am not going to let you go without any reflection on he said. We shall have a class discussion on this. "
+"Now, now, I am sure you all wanted to hear every single word that came out of his mouth," the huntsman acknowledged. "But I am not going to let you go without any reflection or any analysis on our interviewee."
+
+The professor then scanned the students to 'volunteer'. He found a blonde student sleeping. The teacher didn't like that.
+
+"Jaune Arc?" Oobleck shouted. "Are you wake?"
+
+The student stirred from his sleep. "Hi...uh, yes?" the seventeen year old said nervously.
+
+"Can you summarize his position on Faunus-human relations?"
+
+Arc looked around the room nervously. "Ummm, there are no Faunus."
+
+"That is a correct statement, but it is not an answer to the question."
+
+"Uh...uh...uh..he doesn't hate them?"
+
+"Mr. Jaune Arc, I will require a new essay at least five hundred words long on the subject of xenophobia in Earth society by next Friday."
+
+There was an isolated burst of laughter from four other students.
+
+"And those who laughed at Jaune will be forced to do the same assignment as him as well," Oobleck added.
+
+Then the fast talking professor picked out another student at random. "Weiss Schnee," he said. "Would you like to try providing us an answer."
+
+"He said that it was not surprising at all," Schnee said. "He blamed it on basic human nature that remained the same from one reality to the next."
+
+"That is correct!" Oobleck announced. "Somebody's been paying attention to the video. I have the pleasure of actually talking to the man in person and through email and so I was in a position to understand his view in context." Oobleck took out his notes and leafed through them rapidly.
+
+"For example, how many people here hate 'black' people as a group."
+
+He could see the confused look on the huntsmen-in-training.
+
+"Good. Because then I would be questioning your sanity. On Earth, people actually did this. Our friend on television told us that it eventually got resolved through a long hard struggle, though it never go away completely. Just like the Faunus Rights Revolution never completely resolved all our issues."
+
+There were some confused muttering.
+
+"Don't you see the parallel?" Oobleck said. "That is our friend's view. The discrimination against Faunus? To him, it's not actually different from 'racism', or 'sexism', or other unjust discrimination. Our friend called it 'bigotry'."
