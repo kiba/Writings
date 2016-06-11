@@ -80,12 +80,14 @@ Appearances: 16, 17, 18
 
 * **Detective Max Blueberry** - First Appearance: Chapter 16. Mentioned by his partner, detective Gole Bane, in a conversation with a motel receptionist where Noguchi and Toma were staying.
 
-* **Professor Bartholomew Oobleck** - First Appearance: Chapter 17. Discussed history with Sasaki, Archer, and Rose.
+* **Professor Bartholomew Oobleck** - Discussed history with Sasaki, Archer, and Rose.
+
+Appearances: 17, 19
 
 * **Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy.
 
 * **Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex.
 
-**Lisa Lavender** - Anchorwoman for the Vales News Network. 
+**Lisa Lavender** - Anchorwoman for the Vales News Network.
 
-Appearance: 19
+Appearances: 19
