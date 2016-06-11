@@ -1,4 +1,4 @@
-# **Chapter Nineteen: Life on Remnant**
+# **Chapter Nineteen: Cultural Exchange**
 
 ***
 **James Archer**
@@ -46,7 +46,7 @@ After breakfast, I stepped into the street with my housemates. It was a narrow s
 
 "Bye!" the ladies said as they went off to a different direction, with a hidden guard following behind. I went off to another direction, accompanied by another guard.
 
-Vale had made it clear that their important guests are 'secure'.
+Vale had made it clear that their most important guests and residents are 'secure'.
 
 ***
 
@@ -84,12 +84,8 @@ James Archer blinked. "I don't know? There was never any dust on Earth that I am
 
 "It doesn't sound like a place I would want to vacation over."
 
-Archer laughed. "I am just describing some of the problems that we have as a global civilization. Don't take that as representative of Earth. My home country is quite nice, actually. It's the most powerful nation in the world, a hyperpower in status, and one of the wealthiest in the world. "
+Archer laughed. "I am just describing some of the problems that we have as a global civilization. Don't take that as representative of Earth. My home country is quite nice to live in with almost the same living standard as Vale. It's not surprising when the United States is a world superpower and an economic powerhouse."
 
-"We have dust, but what do you have?"
+The interview continued on for another thirty minutes.
 
-"Supersonic jets, computer technology generations ahead of your, nuclear energy, and of course the internet, especially the internet."
-
-"Can you describe us what is the internet?"
-
-"I undersand it"
+***
