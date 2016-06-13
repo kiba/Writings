@@ -165,11 +165,15 @@ However, a student came up.
 
 "I want to see the multiverse," Oobleck answered. "To collect the histories of the world and to understand their causes."
 
-Ozpin sighed. "And it will not be just a few weeks, isn't it? It could be months or years. How am I going to find a hunter just as qualified as you? To impart their wisdom on to my students?"
+Ozpin sighed. "And it will not be just a few weeks, isn't it? It could be months or years. How am I going to find a hunter just as qualified as you? To impart the historical wisdom of the ages on to my students?"
 
-"I can already feel the ripple effect of Earth history on our historical study of Remnant, Ozpin. It's only to get more expansive from then on. I felt that I could serve a better role being the vanguard, traveling to new places and new worlds."
+"I have long been a proponent of the adage that 'to not learn from history is to repeat the mistakes of the past. Already, we learned just how inadequate Remnant historical perspectives is. War is not caused by Grimm, Ozpin. "
 
-"I am not going to oppose a sabbatical or even your resignation. I know how it's important to you. But please make sure to make it back alive here."
+"I have no doubt of that, doctor."
+
+"Many people thought otherwise, and many people still believed that idea."
+
+"I am not going to oppose a sabbatical or even your resignation, but could it wait until the next semester?"
 
 Oobleck chuckled. "I don't think that will be a problem where I am hoping to go."
 
@@ -179,9 +183,9 @@ Oobleck chuckled. "I don't think that will be a problem where I am hoping to go.
 
 Ozpin raised an eyebrow. "You wish to be part of the delegation to Earth? You still have classes to teach."
 
-"I know. But you will have time to talk to wrangle...somebody else to take over my absence."
+"I know. But you will have time to talk to wrangle...somebody else to take over my absence. It will only be a few days."
 
-"I'll see what I can do. But remember, if you keep doing those excursions, I am going to have to replace you."
+"That is...acceptable. Our students will need to learn more of this culture and society as soon as possible. A great way to do that is to have someone visit Earth personally. I'll see what I can do. However, this is only a one-time only deal. I will also expect your decision regarding a sabbatical or a resignation by the end of this semester."
 
 "Understood."
 
