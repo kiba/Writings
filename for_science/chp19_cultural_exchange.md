@@ -138,4 +138,70 @@ He could see the confused look on the huntsmen-in-training.
 
 There were some confused muttering.
 
-"Don't you see the parallel?" Oobleck said. "That is our friend's view. The discrimination against Faunus? To him, it's not actually different from 'racism', or 'sexism', or other unjust discrimination. Our friend called it 'bigotry'."
+"Don't you see the parallel?" Oobleck said. "That is our friend's view. The discrimination against Faunus? To him, it's not actually much different from 'racism', or 'sexism', or other kind of unjust discrimination. Our friend called it 'bigotry'."
+
+The bell rung, ending the class. The students rushed out, most giving little if any thought to what he had just talked about.
+
+However, a student came up.
+
+"Professor?" she asked.
+
+"Yes, Miss Belladonna?"
+
+"I was wondering..." Her eyes looked away. "If I could somehow talk to Mr. Archer?"
+
+"Can I ask you why?"
+
+"Well, I want to learn about hatred and how to fight it. He has a lot of experience, right?"
+
+"I wouldn't go to presume a depth of experience, but Archer certainly know of it better than any of us do. But yes, if you want to talk to him, I can arrange it for you, in return for a report."
+
+"I can deal with that. Thank you!"
+
+***
+**Headmaster Ozpin's Office**
+
+"Excuse me?" headmaster Ozpin said as he sipped his coffee. Bartholomew Oobleck too sipped a coffee.
+
+"I want to see the multiverse," Oobleck answered. "To collect the histories of the world and to understand their causes."
+
+Ozpin sighed. "And it will not be just a few weeks, isn't it? It could be months or years. How am I going to find a hunter just as qualified as you? To impart their wisdom on to my students?"
+
+"I can already feel the ripple effect of Earth history on our historical study of Remnant, Ozpin. It's only to get more expansive from then on. I felt that I could serve a better role being the vanguard, traveling to new places and new worlds."
+
+"I am not going to oppose a sabbatical or even your resignation. I know how it's important to you. But please make sure to make it back alive here."
+
+Oobleck chuckled. "I don't think that will be a problem where I am hoping to go."
+
+"Oh. Where would that be?"
+
+"Earth."
+
+Ozpin raised an eyebrow. "You wish to be part of the delegation to Earth? You still have classes to teach."
+
+"I know. But you will have time to talk to wrangle...somebody else to take over my absence."
+
+"I'll see what I can do. But remember, if you keep doing those excursions, I am going to have to replace you."
+
+"Understood."
+
+***
+**James Archer**
+
+It was a late afternoon after work had 'officially' ended. Most of the researchers weren't really that dedicated, so they already left. However, a few of us had stayed behind, mostly Cylons and Sidonians, to keep working on our pet projects.
+
+I was in a break between projects, looking out from the window and across the street.
+
+"GO HOME YOU COLLECTIVIST FREAKS!"
+
+There were scores of people were on a street nearby holding up signs, protesting the foreigners' presence at the laboratory and the research agreement.
+
+They didn't like the masked Captain, and they didn't particularly like the homogeneity that characterized Sidonia, nor the Sidonians' characterization of themselves.
+
+It didn't help that the Great War had polarized the political opinion of Remnant. That war was a near disaster implementation of a particularly extreme utopian ideology, like communism but worse.
+
+The winners emerged from the war with a political philosophy opposite the utopian ideology, with emphasis on individuality, creativity, freedom, and the right of men.
+
+All of those sounded good to me, and ideas that my nation and I would support, but I wouldn't be so opposed to it if it weren't for some peculiar and annoying attitudes and behaviors.
+
+Those protestors outside? They were the hardcore nutcase, sprouting platitude about indviduality and creativity, dressing themselves in eye sore colors. Worse, they seemed to be getting bigger and bigger everyday.
