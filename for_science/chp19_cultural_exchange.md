@@ -5,7 +5,7 @@
 **Archer's Residence, Vale**
 **July 13, 2015**
 
-It was another morning on the planet Remnant in an oddly familiar surrounding, an apartment. There wasn't too much different from Earth. There's a restroom, bedroom, kitchen, and a dining room.
+It was another morning on the planet Remnant in an oddly familiar surrounding, a small apartment. They weren't too much different from Earth. There's a restroom, bedroom, kitchen, and a dining room, all painted in the most brightful and ugly color as possible, a holdover from the Great War. I swore that it had for a time destroyed all sense of aesthetics on Remnant. 
 
 Early on, Diana, Sasaki, and I decided to pool our resources together and save as much money as possible so that we can build up personal access to resources.
 
@@ -194,18 +194,52 @@ Ozpin raised an eyebrow. "You wish to be part of the delegation to Earth? You st
 
 It was a late afternoon after work had 'officially' ended. Most of the researchers weren't really that dedicated, so they already left. However, a few of us had stayed behind, mostly Cylons and Sidonians, to keep working on our pet projects.
 
-I was in a break between projects, looking out from the window and across the street.
+I was in a break between projects, looking out from the window to across the street.
 
 "GO HOME YOU COLLECTIVIST FREAKS!"
 
 There were scores of people were on a street nearby holding up signs, protesting the foreigners' presence at the laboratory and the research agreement.
 
+"WHAT DO WE WANT? NO IMMIGRATION FROM SIDONIA!"
+
 They didn't like the masked Captain, and they didn't particularly like the homogeneity that characterized Sidonia, nor the Sidonians' characterization of themselves.
 
 It didn't help that the Great War had polarized the political opinion of Remnant. That war was a near disaster implementation of a particularly extreme utopian ideology, like communism but worse.
 
+"THEY ALL WORE THE SAME CLOTHES!"
+
 The winners emerged from the war with a political philosophy opposite the utopian ideology, with emphasis on individuality, creativity, freedom, and the right of men.
 
-All of those sounded good to me, and ideas that my nation and I would support, but I wouldn't be so opposed to it if it weren't for some peculiar and annoying attitudes and behaviors.
+That all sounded good, especially when I was raised on the same ideals, but my country would sound positively collectivist to them.
 
-Those protestors outside? They were the hardcore nutcase, sprouting platitude about indviduality and creativity, dressing themselves in eye sore colors. Worse, they seemed to be getting bigger and bigger everyday.
+Those protestors outside? They were the hardcore nutcases, sprouting platitude about individuality and creativity, dressing themselves in garnish colors. Worse, they seemed to be getting bigger and bigger everyday.
+
+I know that they aren't representative of the entire population, but they're sure not making it easy for me.
+
+My scroll rung, showing a picture of a historian from the nearby university.
+
+"This is James Archer," I said. "What can I do for you, professor?"
+
+"Doctor, not professor."
+
+"Sorry. Is this about another interview?"
+
+"Well, no, but I am preparing to be part of the first contact delegation."
+
+"Oh."
+
+"So it would be helpful to learn from someone who know the customs of your country and your world."
+
+"I don't know anything about the world. I mean, Diana and I traveled the world, but we're no experts. Especially when our world is more diverse than all of Remnant combined."
+
+"You two are the only people of Earth that I have any access to. Would you care for us to meet tonight or some other time?"
+
+"Sure, tonight. At what place?"
+
+Then the doctor sent me the address for the place. "I frequented that place constantly," the doctor recommended.
+
+"Mkay. I'll bring my girlfriend if I can."
+
+"One more thing, there's a student of mine that want to meet you. Her name is Blake Belladonna. She wanted to learn about the history of world, particularly hatred and discrimination."
+
+"OK, I can do that too," I thoughtlessly answered.
