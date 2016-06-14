@@ -91,3 +91,11 @@ Appearances: 17, 19
 **Lisa Lavender** - Anchorwoman for the Vales News Network.
 
 Appearances: 19
+
+**Blake Belladonna** - A huntress-in-training and teammate of Ruby Rose. She wished to meet with James Archer for a discussion about hatred.
+
+Appearances: 19
+
+**Jaune Arc** - A hunter-in-training who was caught sleeping by Doctor Oobleck and was forced as punishment to submit an essay to Oobleck.
+
+**Weiss Schnee** - A huntress-in-training and teammate of Ruby Rose. She successfully answered a question that Oobleck posed to the class.
