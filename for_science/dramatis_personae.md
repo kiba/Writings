@@ -1,6 +1,8 @@
 # **Dramatis Personae**
 
-**James Archer** - Earth-born electrical engineer who discovered and invented trans-dimensional travel. He is in a relationship with Diana Rose.
+## **James Archer**
+
+Earth-born electrical engineer who discovered and invented trans-dimensional travel. He is in a relationship with Diana Rose.
 
 What allowed him to invent trans-dimensional travel is caused by a mental power or process that can only be described as the 'mad scientist' disease, which caused him to engineer inexplicable Rube Goldberg machines that accomplish feats beyond the known realm of science and engineering.
 
@@ -84,7 +86,9 @@ Appearances: 16, 17, 18
 
 Appearances: 17, 19
 
-**Qrow Branwen** - First Appearance: Chapter 18. Delivered Sidonian electronics to Beacon Academy.
+**Qrow Branwen** - A veteran hunter and alcholic, and uncle to Ruby Rose. His first appearance was when he delivered Sidonian electronics to Beacon Academy after touring Sidonia.
+
+Appearances: 18
 
 **Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex.
 
@@ -92,10 +96,14 @@ Appearances: 17, 19
 
 Appearances: 19
 
-**Blake Belladonna** - A huntress-in-training and teammate of Ruby Rose. She wished to meet with James Archer for a discussion about hatred.
+**Blake Belladonna** - A huntress-in-training and teammate of Ruby Rose at Beacon Academy. She wished to meet with James Archer for a discussion about hatred.
 
 Appearances: 19
 
-**Jaune Arc** - A hunter-in-training who was caught sleeping by Doctor Oobleck and was forced as punishment to submit an essay to Oobleck.
+**Jaune Arc** - He is a hunter-in-training at Beacon Academy. In his first appearnce, he was caught sleeping by Doctor Oobleck and was forced as punishment to submit an essay to Oobleck.
 
-**Weiss Schnee** - A huntress-in-training and teammate of Ruby Rose. She successfully answered a question that Oobleck posed to the class.
+Appearances: 19
+
+**Weiss Schnee** - She is a huntress-in-training and teammate of Ruby Rose at Beacon Academy. She successfully answered a question that Oobleck posed to the class.
+
+Appearances: 19
