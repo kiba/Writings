@@ -125,25 +125,25 @@ There was an isolated burst of laughter from four other students.
 
 "And those who laughed at Jaune will be forced to do the same assignment as him as well," Oobleck added.
 
-There was no further laughters.
+Nobody else dared to laugh.
 
-Then the fast talking professor picked out another student at random. "Weiss Schnee," he said. "Would you like to try providing us an answer."
+Then the fast talking professor picked out another student at random. "Weiss Schnee," he said. "Would you like to try answering the question that Jaune failed to answer to my satisfaction?"
 
 "He said that it was not surprising at all," Schnee said. "He blamed it on basic human nature that remained the same from one reality to the next."
 
-"That is correct!" Oobleck announced. "Somebody's been paying attention to the video. I have the pleasure of actually talking to the man in person and through email and so I was in a position to understand his view in context." Oobleck took out his notes and leafed through them rapidly.
+"That is correct!" Oobleck announced. "Somebody's been paying attention to the video. On his statement about human nature, I have the pleasure of actually talking to the man in person and through email and so I was in a position to understand his view in context." Oobleck took out his notes and leafed through them rapidly.
 
 "For example, how many people here hate 'black' people as a group."
 
 He could see the confused look on the huntsmen-in-training.
 
-"Good. Because then I would be questioning your sanity. On Earth, people actually did this. Our friend on television told us that it eventually got resolved through a long hard struggle, though it never go away completely. Just like the Faunus Rights Revolution never completely resolved all our issues."
+"Good. Because then I would be questioning your sanity or maybe that you aren't from this planet. On Earth, people actually did this. Our friend on television told us that it eventually got resolved through a hard long struggle, occurring over decades, though the problem of 'racism'. Just like the Faunus Rights Revolution never completely resolved all human-faunus relations."
 
 There were some confused muttering.
 
-"Don't you see the parallel?" Oobleck said. "That is our friend's view. The discrimination against Faunus? To him, it's not actually much different from 'racism', or 'sexism', or other kind of unjust discrimination. Our friend called it 'bigotry'."
+"Don't you see the parallel?" Oobleck said. "That is our friend's view. The discrimination against Faunus? To him, it's not actually much different from 'racism', or 'sexism', or other kind of arbitrary discrimination. Our friend called it 'bigotry', a kind of intolerance against those who are different from themselves."
 
-The bell rung, ending the class. The students rushed out, most giving little if any thought to what he had just talked about.
+The bell rung, ending the class. The students rushed out, most giving little if any thought to what he had just talked about. He wondered if the lessons that he tried to tease out were properly absorbed by the students.
 
 However, a student came up.
 
@@ -151,7 +151,7 @@ However, a student came up.
 
 "Yes, Miss Belladonna?"
 
-"I was wondering..." Her eyes looked away. "If I could somehow talk to Mr. Archer?"
+"I was wondering..." Her eyes looked away, her bow twitching slightly. "If I could somehow talk to Mr. Archer?"
 
 "Can I ask you why?"
 
@@ -159,18 +159,20 @@ However, a student came up.
 
 "I wouldn't go to presume a depth of experience, but Archer certainly know of it better than any of us do. But yes, if you want to talk to him, I can arrange it for you, in return for a report."
 
-"I can deal with that. Thank you!"
+"I am in your debt. Thank you!"
+
+She disappeared in a blur.
 
 ***
 **Headmaster Ozpin's Office**
 
-"Excuse me?" headmaster Ozpin said as he sipped his coffee. Bartholomew Oobleck too sipped a coffee.
+"Excuse me?" headmaster Ozpin said as he sipped his coffee. Bartholomew Oobleck too sipped a coffee from his thermo/weapon.
 
 "I want to see the multiverse," Oobleck answered. "To collect the histories of the world and to understand their causes."
 
 Ozpin sighed. "And it will not be just a few weeks, isn't it? It could be months or years. How am I going to find a hunter just as qualified as you? To impart the historical wisdom of the ages on to my students?"
 
-"I have long been a proponent of the adage that 'to not learn from history is to repeat the mistakes of the past. Already, we learned just how inadequate Remnant historical perspectives is. War is not caused by Grimm, Ozpin. "
+"I have long been a proponent of the adage that 'to not learn from history is to repeat the mistakes of the past. Already, we learned just how inadequate Remnant historical perspectives is. War is not caused by the Grimm, Ozpin, no matter how people justify it otherwise."
 
 "I have no doubt of that, doctor."
 
@@ -197,7 +199,7 @@ Ozpin raised an eyebrow. "You wish to be part of the delegation to Earth? You st
 
 It was a late afternoon after work had 'officially' ended. Most of the researchers weren't really that dedicated, so they already left. However, a few of us had stayed behind, mostly Cylons and Sidonians, to keep working on our pet projects.
 
-I was in a break between projects, looking out from the window to across the street.
+I was in a break between projects, looking out from the window across the street.
 
 "GO HOME YOU COLLECTIVIST FREAKS!"
 
@@ -207,7 +209,7 @@ There were scores of people were on a street nearby holding up signs, protesting
 
 They didn't like the masked Captain, and they didn't particularly like the homogeneity that characterized Sidonia, nor the Sidonians' characterization of themselves.
 
-It didn't help that the Great War had polarized the political opinion of Remnant. That war was a near disaster implementation of a particularly extreme utopian ideology, like communism but worse.
+It didn't help that the Great War had polarized the political opinion of Remnant. That war was a near disaster implementation of a particularly extreme utopian ideology, like communism but worse. A certain political fraction on Remnant across kingdoms wanted to deafen the emotion of man to reduce the risk of Grimm invasion. Predictably, it turned out that people were very opposed to that idea.
 
 "THEY ALL WORE THE SAME CLOTHES!"
 
@@ -235,14 +237,18 @@ My scroll rung, showing a picture of a historian from the nearby university.
 
 "I don't know anything about the world. I mean, Diana and I traveled the world, but we're no experts. Especially when our world is more diverse than all of Remnant combined."
 
-"You two are the only people of Earth that I have any access to. Would you care for us to meet tonight or some other time?"
+"You two are the only people of Earth that I have any access to."
 
-"Sure, tonight. At what place?"
+"I guess...you're right."
 
-Then the doctor sent me the address for the place. "I frequented that place constantly," the doctor recommended.
+"Would you care for us to meet tonight or some other time?"
+
+"Sure, I can do it tonight. At what place?"
+
+Then the doctor sent me the address for the place. "I frequented that place constantly," the doctor recommended. "It had particularly good coffee"
 
 "Mkay. I'll bring my girlfriend if I can."
 
-"One more thing, there's a student of mine that want to meet you. Her name is Blake Belladonna. She wanted to learn about the history of world, particularly hatred and discrimination."
+"One more thing, there's a student of mine that want to meet you. Her name is Blake Belladonna. She wanted to learn about the history of world, particularly interested in the right revolutions on Earth."
 
 "OK, I can do that too," I thoughtlessly answered.
