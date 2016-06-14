@@ -5,14 +5,15 @@
 **Archer's Residence, Vale**
 **July 13, 2015**
 
-It was another morning on the planet Remnant in an oddly familiar surrounding, a small apartment. They weren't too much different from Earth. There's a restroom, bedroom, kitchen, and a dining room, all painted in the most brightful and ugly color as possible, a holdover from the Great War. I swore that it had for a time destroyed all sense of aesthetics on Remnant. 
+It was another morning on the planet Remnant in an oddly familiar surrounding, a small apartment. They weren't too much different from Earth. There's a restroom, bedroom, kitchen, and a dining room, all painted in the most bright and ugly color as possible, a holdover from the Great War. I swore that it had for a time destroyed all sense of aesthetics on Remnant.
 
 Early on, Diana, Sasaki, and I decided to pool our resources together and save as much money as possible so that we can build up personal access to resources.
 
-So I ended up in a slightly run down apartment in a slightly run down neighborhood, currently cooking pancakes and scrambled eggs.
+So I ended up in a slightly run down apartment in a slightly run down neighborhood, currently cooking really small portion of pancakes and scrambled eggs, because Remnan grocery was way too filling for bog standard humans.
+
 ***
 
-It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in the bathroom, doing higeus photosynthesis, though she would join us from time to time.
+It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in the bathroom, doing higeus photosynthesis. Unlike bog standard humans, she doesn't need to eat breakfast or lunch or dinner everyday. Though she usually tried to time her photosynthesis sessions so that she can sit with us for companionship.
 
 "You're going to visit the local television studio, right?" Diana asked.
 
@@ -26,7 +27,7 @@ It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in t
 
 "Hey, that's the truth!"
 
-"It may be the truth, but it's incendiary, like dissing Christianity."
+"It may be the truth, but it's incendiary. It's like dissing Christianity."
 
 "Because Christianity is a bunch of hokey pokey, even Sasaki agreed."
 
@@ -34,7 +35,7 @@ It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in t
 
 "Babe, you don't trust me?"
 
-"We're both outspoken sometime. Not afraid to say what's on our mind. However, that can get us in trouble."
+"We're both outspoken sometime. Not afraid to say what's on our mind. However, that can get us in a lot of trouble."
 
 "I am not going to lie on stage about what I believed."
 
