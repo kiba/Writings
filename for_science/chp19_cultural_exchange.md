@@ -35,27 +35,27 @@ It was just Diana and me for breakfast, as usual. Sasaki was off sunbathing in t
 
 "Babe, you don't trust me?"
 
-"We're both outspoken sometime. Not afraid to say what's on our mind. However, that can get us in a lot of trouble."
+"We both can be outspoken, not afraid to say what's on our mind. However, that can get us in a lot of trouble."
 
-"I am not going to lie on stage about what I believed."
+"I am not going to lie on stage about what I believe."
 
 "I am not asking you to do that. I just want you to be diplomatic."
 
 ***
 
-After breakfast, I stepped into the street with my housemates. It was a narrow street, a reminder of an age when Vale did not have cars. Though it was not evident how crammed in the Kingdom itself was. Much of the land were devoted to agriculture, and time went on, increased efficiency allowed that sector to feed an increasingly large number of people, which then expanded into the farmland. However, much of the population growth were concentrated vertically more than horizontally, given that further cession of land would meant starvation.
+After breakfast, I stepped into the street with my housemates. It was a narrow street, a reminder of an age when Vale did not have cars, evident how crammed in the Kingdom itself is. Much of the land were devoted to agriculture, and time went on, increased efficiency allowed that sector to feed an increasingly large number of people, which then expanded into the farmland. However, much of the population growth were concentrated vertically more than horizontally, given that further cession of land would meant starvation.
 
 "Bye!" the ladies said as they went off to a different direction, with a hidden guard following behind. I went off to another direction, accompanied by another guard.
 
-Vale had made it clear that their most important guests and residents are 'secure'.
+Vale had made it clear that their most important guests and residents are 'secure and safe'.
 
 ***
 
 **Vale News Network**
 
-Watching the news was a ritual that the people of Vale shared with the people of Earth, or Sidonia, and even the Twelves Colonies, even if global and local matters were usually not terribly important to their life.
+Watching the news was a ritual that the people of Vale shared with the people of Earth, or Sidonia, and even the Twelves Colonies, filling a bizarre need to know about places, persons, and events that usually don't affect their lives.
 
-"We have a special guest this morning," Lisa Lavender said after finishing the usual news item. "We were able to secure an exclusive interview with Vale's newest resident James Archer."
+"We have a special guest this morning," Lisa Lavender said after finishing the usual news item. "We were able to secure an exclusive interview with Vale's newest resident, James Archer."
 
 "Hello, and thank you," Archer said. "I am grateful for the people of Vale to invite me living here."
 
@@ -73,19 +73,19 @@ James Archer blinked. "I don't know? There was never any dust on Earth that I am
 
 "That doesn't seem much of an answer."
 
-"How am I supposed to answer? I only know the awesome wonder of dust for less than a month."
+"How am I supposed to answer? I only know the awesome wonder of dust for less than a month. All my life, I was thinking how to do things without dust. Believe me, it's not terribly important if you want to make cars, computers, aircrafts, or any number of things."
 
-"Your world doesn't have the grimm nor the space monsters the Sidonians called the Gauna. Yet it's not totally a utopia, isn't it?"
+"Your world doesn't have the grimm nor the space monsters the Sidonians called the Gauna. Yet it's not paradise, isn't it."
 
-"Sidonia is absolutely more of a utopia than either Remnant and Earth. On Earth, we have lot of issues, a lot of it of our own making. For example, there's a whole host of prejudices that the people of Remnant would be quite horrified to learn of. We discriminated on the basis of the color of their skin, their sexuality, their religion, and even their gender."
+"Sidonia is absolutely more of a utopia than either Remnant and Earth. On Earth, we have lot of issues, a lot of it of our own making. For example, there's a whole host of prejudices that the people of Remnant would be quite horrified to learn of. At some point in time or another, we discriminated arbitrary on the basis of the color of their skin, their sexuality, their religion, and even their gender."
 
 "I don't understand."
 
-"You guys may be scared of the Grimm, but on Earth, it is only people who can be monsters. The Sidonians said that we're in the midst of the beginning of Earth's golden age, that our troubles will begin to disappear, but I am quite frankly hoping to get it over with as soon as possible."
+"You guys may be scared of the Grimm, but on Earth, it is only people who can be monsters. It is only people who make wars, hurt people, and so many other unnecessary things. The Sidonians said that we're in the midst of the beginning of Earth's golden age, that our troubles will begin to disappear, but I am quite frankly hoping to get it over with as soon as possible."
 
 "It doesn't sound like a place I would want to vacation over."
 
-Archer laughed. "I am just describing some of the problems that we have or had as a global civilization. Don't take that as representative of Earth. My home country is quite nice to live in with almost the same living standard as Vale. It's not surprising when the United States is a world superpower and an economic powerhouse."
+Archer laughed. "I am just describing some of the problems that we have or had as a global civilization. Don't take that as representative of Earth. My home country is quite nice to live in with almost the same living standard as Vale. That's true for Western Europe, East Asia, even part of China."
 
 The interview continued on for another thirty minutes.
 
@@ -97,13 +97,13 @@ Professor Oobleck had put a new burden on his students. Instead of lecturing on 
 
 The room was dark, and the students were all focused on the holographic television with intense attention, hanging on to every word. They wanted to know as the professor do, to understand a world, if not his own.
 
-Which was very interesting to him. Novelty almost certainly played a role. Remnant was the world that they knew, and Earth wasn't.
+Which was very interesting to him. Many of them wouldn't give Remnant any time of day, but Earth is a whole different matter. He suspected it was the large amount of novel information streaming from this Earth person.
 
 Of course, at some point, he have to turn on the light.
 
-There was a huge collective groan.
+He flicked the switch, lighting the place up. There was a huge collective groan in reaction.
 
-"Now, now, I am sure you all wanted to hear every single word that came out of his mouth," the huntsman acknowledged. "But I am not going to let you go without any reflection or any analysis on our interviewee."
+"Now, now, I am sure you all wanted to hear every single word that came out of his mouth," the huntsman acknowledged. "But I am not going to let you go without any reflection or any analysis on what our interviewee provided about his planet."
 
 The professor then scanned the students to 'volunteer'. He found a blonde student sleeping. The teacher didn't like that.
 
@@ -124,6 +124,8 @@ Arc looked around the room nervously. "Ummm, there are no Faunus."
 There was an isolated burst of laughter from four other students.
 
 "And those who laughed at Jaune will be forced to do the same assignment as him as well," Oobleck added.
+
+There was no further laughters.
 
 Then the fast talking professor picked out another student at random. "Weiss Schnee," he said. "Would you like to try providing us an answer."
 
