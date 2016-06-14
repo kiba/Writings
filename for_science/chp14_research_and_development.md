@@ -113,7 +113,7 @@ Finally, an engineer reported to Sasaki about the status of the ship.
 
 "We're about to ready to test the prototype, Captain," Sasaki said.
 
-The prototype in question was a shuttle turned into a drone, and fitted with gravity plates. It was unknown if the hiegus fields would interact negatively with Colonial artificial gravity technology, so the plan was to send the ship away at some sufficient distance away that the Sidonian felt safe at testing.
+The prototype in question was a shuttle turned into a drone, and fitted with gravity plates. It was unknown if the heigus fields would interact negatively with Colonial artificial gravity technology, so the plan was to send the ship away at some sufficient distance away that the Sidonian felt safe at testing.
 
 Slowly, the shuttle was towed into position inside a large rocket launch platform. Then the rocket was lift by elevator into the outside world.
 
