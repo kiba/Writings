@@ -245,10 +245,10 @@ My scroll rung, showing a picture of a historian from the nearby university.
 
 "Sure, I can do it tonight. At what place?"
 
-Then the doctor sent me the address for the place. "I frequented that place constantly," the doctor recommended. "It had particularly good coffee"
+Then the doctor sent me the address for the place. "I frequented that place constantly," the doctor recommended. "It has really good coffee"
 
 "Mkay. I'll bring my girlfriend if I can."
 
-"One more thing, there's a student of mine that want to meet you. Her name is Blake Belladonna. She wanted to learn about the history of world, particularly interested in the right revolutions on Earth."
+"One more thing, there's a student of mine that want to meet you. Her name is Blake Belladonna. She wants to learn about the history of world, particularly interested in the right revolutions on Earth."
 
 "OK, I can do that too," I thoughtlessly answered.
