@@ -85,7 +85,7 @@ James Archer blinked. "I don't know? There was never any dust on Earth that I am
 
 "It doesn't sound like a place I would want to vacation over."
 
-Archer laughed. "I am just describing some of the problems that we have or had as a global civilization. Don't take that as representative of Earth. My home country is quite nice to live in with almost the same living standard as Vale. That's true for Western Europe, East Asia, even part of China."
+Archer laughed. "I am just describing some of the problems that we have or had as a global civilization. If someone were to describe Remnant like that, nobody would want to vacation there either. Anyway, Earth is not that terrible of a place. My home country in particular is quite nice to live in with almost the same living standard as Vale. That's true for Western Europe, East Asia, even part of China."
 
 The interview continued on for another thirty minutes.
 
