@@ -1,6 +1,6 @@
-# **Chp1: Stranger Things**
+# **Chapter One: Stranger Things**
 
-When Colonel Frank Cromwell first joined the Stargate program, he at first thought that it was an extremely elaborate joke, or an exercise in lateral thinking. It turned out that the Stargate program did involve a whole lot of flexibile thinking as well as lateral thinking, and not only that.
+When Colonel Frank Cromwell first joined the Stargate program, he at first thought that it was an extremely elaborate joke, or an exercise in lateral thinking. It turned out that the Stargate program did involve a whole lot of flexible thinking as well as lateral thinking, and not only that.
 
 Some people can't be convinced of an absurd but true thing easily. So he had the privilege of seeing technological marvel up close and personal as part of his briefing though he had the unfortunate luck of exchanging barbs and arguments with Colonel O'Neill. That man was never happy to see him.
 
