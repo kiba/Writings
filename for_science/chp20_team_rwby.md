@@ -64,6 +64,50 @@ Ruby Rose stood up. "We got to go after Blake!" she proclaimed, pumping her fist
 
 ***
 
-As Blake made her way through the city of Vale, the team followed closely her every moves. It didn't take very long until Blake entered the 'bad' neighborhoods.
+As Blake made her way through the city of Vale, the team followed closely her every moves, taking care not to get caught. It didn't take very long until Blake entered the poorer neighborhood.
 
-"What's she doing here? Looking for someone she missed dearly?" Yang asked.
+Then Blake finally arrived at a run down residence.
+
+"Hey! You there!" a male voice shout out.
+
+The girls were startled, and made their jump into the open, alerting Blake and a Sidonian.
+
+***
+**Archer's Apartment**
+**Blake Belladonna**
+
+"I presumed that they are your friends from that military academy?" Sasaki guessed. "Also here to visit my ancestors?"
+
+Blake Belladonna was blindsided by her teammates. She didn't actually think that they will follow her. Actually, why wouldn't they?
+
+"I-I..." Blake tried to answer. But nothing was readily coming out of her mouth.
+
+Her teammates and a guard gradually approached the apartment, not taking long in such a narrow street. She could see the rather unhappy expressions on their faces, sorry about getting caught.
+
+"These are your teammates? Miss Belladonna?" the somewhat anonymous guard questioned.
+
+"Umm...yes."
+
+"Hi Blake!" Ruby said cheerfully.
+
+"What's sup, Blake," Yang greeted.
+
+"What are you doing here?" Weiss said in a less friender tone.
+
+"She just wanted to talk to my ancestor about history for a report for Oobleck," Sasaki said.
+
+"Did you piss off Oobleck?" Weiss wondered.
+
+"I...uh...no!" Blake denied.
+
+"Actually, Blake requested the meeting herself," Archer said, suddenly standing behind Sasaki. "She wanted to learn about the rights revolution on Earth. As a favor, she'll need to report her findings to Doctor Oobleck."
+
+"We're going to be OK," Sasaki said to the guard. The guard nodded before melting away. Then she turned her attention to the four teenagers. "You brats can come in. We have a lot of food and we cannot digest it fast enough."
+
+***
+
+As she entered Archer's home, Blake can tell that it wasn't any Remnan home she ever been to. They used more subdued and subtle colors, decorated with a foreign aesthetics that was unfamiliar.
+
+"House rule is that you leave your footwears here," Archer said.
+
+The girls nodded and began taking off their shoes.
