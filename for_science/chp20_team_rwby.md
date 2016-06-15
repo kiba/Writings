@@ -16,4 +16,54 @@ Finally, the last breakthrough in question was that the Sidonians are going ahea
 
 Anyway, gravitic plates enabled cheap anti-gravity superior to Remnans' method, including extending it beyond atmosphere, but also cheap gravity as well, an essential component of space living if one do not want bone and muscle loss. With mass production of gravitic plates, they should be able to disable the extremely energy intensive gravity furnace, which costs sixty percent of Sidonia's power. Finally, gravitic plates can also serve as inertial compensator as a side effect of anti-gravity, which was fucking cheating the laws of physics. Theoretically, it can be used as an reaction-less drive, but it was deemed to cost too much energy. That's cheating![/I]
 
-I stared at a rube goldberg-equse contrapation
+
+***
+**James Archer**
+**Trans-dimensional Reseach Laboratory Remnant**
+**August 16, 2015**
+
+I stared at a rube goldberg-equse contraption made by a certain violent colored researcher.
+
+"What the fuck is this?" I said.
+
+"It worked!" the researcher said. "As a result of my crea-"
+
+"Cut the bullcrap about creativity and individuality," I said rather bluntly. I cursed director Polenda for making me a manager, for forcing me to agree to all too reasonable demands.
+
+"But your semblance..."
+
+I stared at the violent eyed Remnan. "You forget. I am [i]soulless[/i]", to use a certain expression from protestors outdoor. Though some researchers are still convinced that the aliens do have aura of some kind, if however small.
+
+"Your power allowed you to create tinkertech devices."
+
+"Which are basically useless without a serious amount of reverse engineering and painstaking scientific study, often in whole new fields of study. I don't have to reverse engineer your device, will I?"
+
+The female engineer chuckled nervously. "No sir."
+
+"Good, your project is now to reverse-engineer your own device and explain it so that other researchers can then build on your work using their [i]creativity[/i] and [i]individuality[/i]."
+
+The woman sighed in relief that she wasn't going to get canned. Apparently, I am a very scary boss. It was near the end of a very short working day, as it was Sunday. Twelve PM had just hit, and it's time to head home.
+
+***
+**Ruby Rose**
+**Beacon Academy, Remnant**
+
+There was something that Blake Belladonna was hiding from the rest of the team. Ruby don't know what, but it had something to do with Professor Oobleck. When Ruby tried to ask her, she tried to deflect it. When Yang or Weiss asked too, they got deflected as well.
+
+So, three fourth were hiding together in a closet of their own dorm, waiting for Blake to do something.
+
+"Psst. What do you see?" Yang asked.
+
+"Nothing..." Ruby said.
+
+Blake looked around the room for a little bit, before picking up a bookbag and heading outside.
+
+The closet collapsed soon after. "Ouch!"
+
+Ruby Rose stood up. "We got to go after Blake!" she proclaimed, pumping her fists up in the air.
+
+***
+
+As Blake made her way through the city of Vale, the team followed closely her every moves. It didn't take very long until Blake entered the 'bad' neighborhoods.
+
+"What's she doing here? Looking for someone she missed dearly?" Yang asked.
