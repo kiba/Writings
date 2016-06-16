@@ -32,7 +32,7 @@ Appearances: 7, 8, 9, 12, 13, 14, 16, 17
 
 Ex-girlfriend of physicist and mechanical engineer Doctor Rodney McKay.
 
-Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19
+Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19, 20
 
 **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia. She initially has an antagonistic relationship with the Earthlings as a result of a strong-armed negotiation.
 
@@ -48,7 +48,7 @@ Appearances: 9, 10
 
 She is fearful of automative travel, thinking that it will kill her at any moment.
 
-Appearances: 9
+Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
 
 **Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability.
 
