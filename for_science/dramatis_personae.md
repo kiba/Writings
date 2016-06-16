@@ -16,7 +16,7 @@ With his engineering knowledge, he used it to reverse engineer the often convolu
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
 
 **Alpha Beta Two Charles** - First Appearance: Chapter 6. It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
 
@@ -98,7 +98,7 @@ Appearances: 19
 
 **Blake Belladonna** - A huntress-in-training and teammate of Ruby Rose at Beacon Academy. She wished to meet with James Archer for a discussion about hatred.
 
-Appearances: 19
+Appearances: 19, 20
 
 **Jaune Arc** - He is a hunter-in-training at Beacon Academy. In his first appearnce, he was caught sleeping by Doctor Oobleck and was forced as punishment to submit an essay to Oobleck.
 
@@ -106,4 +106,8 @@ Appearances: 19
 
 **Weiss Schnee** - She is a huntress-in-training and teammate of Ruby Rose at Beacon Academy. She successfully answered a question that Oobleck posed to the class.
 
-Appearances: 19
+Appearances: 19, 20
+
+**Yang Xiao Long** - She is a huntress-in-training, sister, and teammate of Ruby Rose at Beacon Academy. She followed Ruby Rose's lead to investigate where Blake Belladonna is going.
+
+Appearances: 20
