@@ -102,7 +102,7 @@ Her teammates and a guard gradually approached the apartment, not taking long in
 
 "Actually, Blake requested the meeting herself," Archer said, suddenly standing behind Sasaki. "She wanted to learn about the rights revolution on Earth. As a favor, she'll need to report her findings to Doctor Oobleck."
 
-"We're going to be OK," Sasaki said to the guard. The guard nodded before melting away. Then she turned her attention to the four teenagers. "You brats can come in. We have a lot of food and we cannot digest it fast enough."
+"We're going to be OK," Sasaki said to the guard. The guard nodded before melting away. Then she turned her attention to the four teenagers. "You brats can come in. We normally don't have much food in the house, because of our physiology, but today we have four Remnan houseguests."
 
 ***
 
@@ -110,4 +110,10 @@ As she entered Archer's home, Blake can tell that it wasn't any Remnan home she 
 
 "House rule is that you leave your footwears here," Archer said.
 
-The girls nodded and began taking off their shoes.
+The girls nodded and began taking off their shoes and leaving it in the doorways.
+
+"And it should be neatly arranged." The girls placed their shoes in a tiny manner.
+
+"It's a tiny house," Weiss commented. "I read in a business magazine the other day about how a technical fellow of Trans-dimensional Research Laboratory makes six figures, and you're living in such a run down place."
+
+"Individual choice?" Archer replied. "Aside from that, we don't really need that much space, and it saved money that we could use it to invest in something."
