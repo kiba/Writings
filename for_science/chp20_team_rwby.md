@@ -104,6 +104,8 @@ Her teammates and a guard gradually approached the apartment, not taking long in
 
 "We're going to be OK," Sasaki said to the guard. The guard nodded before melting away. Then she turned her attention to the four teenagers. "You brats can come in. We normally don't have much food in the house, because of our physiology, but today we have four Remnan houseguests."
 
+Blake tried to look for an opening to run away, but her teammates would all be suspicious if she did that. She also didn't want to disappoint her host. However, anxiety was building up inside her.
+
 ***
 
 As she entered Archer's home, Blake can tell that it wasn't any Remnan home she ever been to. They used more subdued and subtle colors, decorated with a foreign aesthetics that was unfamiliar.
@@ -116,4 +118,18 @@ The girls nodded and began taking off their shoes and leaving it in the doorways
 
 "It's a tiny house," Weiss commented. "I read in a business magazine the other day about how a technical fellow of Trans-dimensional Research Laboratory makes six figures, and you're living in such a run down place."
 
-"Individual choice?" Archer replied. "Aside from that, we don't really need that much space, and it saved money that we could use it to invest in something."
+"We're collectively pumping our money into local investments as much as possible," Archer replied. "Aside from that, we don't really need a big house to live in. Though I have a much bigger house back on Earth."
+
+Diana Rose carried a plate full of food to the dining table. "Here we go," she announced. "Sushi." There was raw fishes on the platter. "Oh, just in case you're wondering, the raw fishes are perfectly safe to eat."
+
+"Really?" Yang said skeptically.
+
+Archer grabbed a bite, chewed through it, and swallowed it. "Traditional Japanese cuisine preserved across thousand of years into traditional Sidonian cuisine. It's very good."
+
+"I don't like the idea of eating raw food," Ruby said.
+
+"I don't...mind," Blake replied, even as she eyed the fishes with delight.
+
+"In that case," Archer said. "You're free to eat the non-raw portion of it. Sasaki cooked all this. You should thank her."
+
+"Thank you," the girls said collectively as they all grabbed a few bites.
