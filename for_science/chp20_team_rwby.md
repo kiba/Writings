@@ -92,7 +92,7 @@ Her teammates and a guard gradually approached the apartment, not taking long in
 
 "What's sup, Blake," Yang greeted.
 
-"What are you doing here?" Weiss said in a less friender tone.
+"What are you doing here?" Weiss said in a less friendly tone.
 
 "She just wanted to talk to my ancestor about history for a report for Oobleck," Sasaki said.
 
@@ -105,6 +105,12 @@ Her teammates and a guard gradually approached the apartment, not taking long in
 "We're going to be OK," Sasaki said to the guard. The guard nodded before melting away. Then she turned her attention to the four teenagers. "You brats can come in. We normally don't have much food in the house, because of our physiology, but today we have four Remnan houseguests."
 
 Blake tried to look for an opening to run away, but her teammates would all be suspicious if she did that. She also didn't want to disappoint her host. However, anxiety was building up inside her.
+
+She really wanted to run away, but her footstep was making the opposite decision.
+
+"Well, are you going to come in or not?" the redhead woman asked.
+
+Blake walked through.
 
 ***
 
@@ -133,3 +139,27 @@ Archer grabbed a bite, chewed through it, and swallowed it. "Traditional Japanes
 "In that case," Archer said. "You're free to eat the non-raw portion of it. Sasaki cooked all this. You should thank her."
 
 "Thank you," the girls said collectively as they all grabbed a few bites.
+
+"I didn't know that you were going to invites your friends," Archer said.
+
+"I didn't...exactly," Blake admitted. Her bows twitched, which raised Archer's eyebrows in response.
+
+"We were following her because we don't know what's she up to and wouldn't tell us," Ruby volunteered before the engineer can think further.
+
+"Hiding why just make it a bigger juicier mystery," Yang concurred.
+
+"I was dragged along," Weiss excused herself.
+
+"Nuh-huh, you wanted to find out as well," Ruby accused.
+
+"Did not!"
+
+"Uh-huh."
+
+"Girls! Why don't you introduce yourselves?" Archer interrupted. "Over a cup of tea?"
+
+***
+
+Ruby Rose introduced herself first, though rather shyly. Weiss tried to sell Dust right after she repeated a rehearsed performance. Yang, was well, herself. Blake, well, she told them the most bland story she could.
+
+"I see. So you all attended a military academy where you learned how to fight monsters as part of team RWBY. Sounds like a fantasy story."
