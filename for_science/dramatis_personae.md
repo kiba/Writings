@@ -66,7 +66,9 @@ Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
 
 **Doctor Keiko Toma** - First Appearance: Chapter 15. An anthropologist sent with lieutenant Akeno Noguchi on an intelligence mission.
 
-**Ruby Rose** - First Appearance: Chapter 15. She is a second year student at Signal Academy. Fifteen years old Huntress-in-training involved in an altercation with armed robbers at a dust shop.
+**Ruby Rose** - She is a second year student at Signal Academy. Fifteen years old Huntress-in-training involved in an altercation with armed robbers at a dust shop.
+
+Apperances: 15(not mentioned by name), 16, 20
 
 **Glynda Goodwitch** - She is a huntress and professor at Beacon Academy. After driving off the robbers, she, along with Ruby Rose, applied first aid to the Sidonian victims until the ambulance arrived.
 
