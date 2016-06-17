@@ -162,4 +162,24 @@ Archer grabbed a bite, chewed through it, and swallowed it. "Traditional Japanes
 
 Ruby Rose introduced herself first, though rather shyly. Weiss tried to sell Dust right after she repeated a rehearsed performance. Yang, was well, herself. Blake, well, she told them the most bland story she could.
 
-"I see. So you all attended a military academy where you learned how to fight monsters as part of team RWBY. Sounds like a fantasy story."
+"I see. So all of you are currently attending a military academy where you are learning how to fight horrifying monsters of darkness as part of team RWBY," Archer recalled. "Sounds like something out of a fantasy novel."
+
+"But it's all real!" Ruby protested.
+
+"So is traveling across realities and meeting aliens. It's very fantastic stuff, except we're living it now, aren't we?"
+
+"So is having your world operating without Dust. That's what somebody on Remnant might write," Blake echoed back.
+
+"Let cut to the chase to the reason why we're here today; Blake, why are you so interested in the right revolutions on Earth? Do you have faunus friends? One of your parent?" Archer wondered.
+
+Blake froze in her track, unsure what to say. From her right, Weiss folded her arms, pulling on her sleeves.
+
+"Well..umm...there's the White Fang?"
+
+"White Fang?!" Weiss interrupted. "You mean, the most evil terrorist organization on Remnant? I don't believe you support them, right?"
+
+"No!" Bellaodonna denied. "But...they wouldn't act the way they do if.."
+
+"How could you support them, Blake? Their slated goal is to WIPE out humanity off the face of this planet. They killed family and board members! Dad would come home angry." Weiss quieted down at the end.
+
+"Humanity, huh? I don't hold them to be distinct from bog standard humans," Archer thought out loud.
