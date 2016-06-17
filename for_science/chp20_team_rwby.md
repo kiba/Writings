@@ -182,4 +182,36 @@ Blake froze in her track, unsure what to say. From her right, Weiss folded her a
 
 "How could you support them, Blake? Their slated goal is to WIPE out humanity off the face of this planet. They killed family and board members! Dad would come home angry." Weiss quieted down at the end.
 
-"Humanity, huh? I don't hold them to be distinct from bog standard humans," Archer thought out loud.
+"THAT wouldn't happen if people like your family and Cardin treated the Faunus so badly!" Blake angrily shouted back. "What are they supposed to do? Do nothing?"
+
+"HEY! I am a victim! It isn't my fault those faunus, liars and thieves is what all they are, joined the White Fang!"
+
+Blake bursted into tears as she rushed to the nearest restroom. Schnee began stomping out of the house.
+
+"What...did just happen?" a distraught Ruby Rose wondered.
+
+"I don't know, but I am going after Weiss, you take of Rose," Yang said quickly. "HEY Weiss, where are you going?!"
+
+***
+
+Blake hunched herself on the floor of the small restroom, with the door locked. She came to learn more from Archer in the hope of finding more understanding, but unfortunately her own team decided to come. What a huge mess it was.
+
+There was several knocks on the restroom door.
+
+"Blake? BLakkkkkeee! Can you answer me? Are you going to be alright?" Ruby Rose questioned.
+
+"I am..." Blake choked a bit. "Fine..."
+
+"You can use the restroom to cry for as long as you need, but if people need to use the restroom, you are going to get out, OK?" Archer said.
+
+She didn't reply.
+
+***
+
+She didn't know how long she been in the restroom, but it felt long enough. She creaked the door open slightly.
+
+Ruby Rose was staring at the restroom door, not touching her tea at all. Meanwhile, Archer stared at nothing as he poured himself another cup of tea.
+
+The door became more wide open.
+
+"Ah, you finally come out. Want to have some tea? Want to talk about it?"
