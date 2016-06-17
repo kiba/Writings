@@ -215,3 +215,19 @@ Ruby Rose was staring at the restroom door, not touching her tea at all. Meanwhi
 The door became more wide open.
 
 "Ah, you finally come out. Want to have some tea? Want to talk about it?"
+
+"Where's Weiss?" Blake inquired.
+
+"Your friend is outside with Yang," Archer answered. "We agreed for now that she won't come inside if you don't want her to, for now, and we don't have to talk about the fight if you don't want to. Though it would ruin my dinner plans for team RWBY."
+
+Blake grabbed a cup of tea before speaking, "I don't agree with the White Fang, but I didn't know that Weiss Schnee hated faunus."
+
+"That was a surprise to me. I assumed that all Remnans aren't racists until they are."
+
+"Racists..."
+
+"A form of bigotry that's kinda hard to define. Racism is a kind of social construct that exists only on Earth, but I find it easy to apply that label to people's relation to faunus. I talked to Weiss about it and I could understand where she's coming from. She spent her childhood being under attack. That's probably going to prejudiced anyone's view, even though they would be wrong to discriminate against all faunus."
+
+"Have you ever been....prejudiced for any reason?"
+
+Archer looked up to the celling and closed his eyes. "Probably? I am just a human being after all. It would be strange of me to not have any character flaws, or imperfection."
