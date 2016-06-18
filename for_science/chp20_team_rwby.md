@@ -230,4 +230,49 @@ Blake grabbed a cup of tea before speaking, "I don't agree with the White Fang, 
 
 "Have you ever been....prejudiced for any reason?"
 
-Archer looked up to the celling and closed his eyes. "Probably? I am just a human being after all. It would be strange of me to not have any character flaws, or imperfection."
+Archer looked up to the celling and closed his eyes. "Probably? I am just a human being after all. It would be strange of me to not have any character flaws, or imperfection. I am not a saint or a hero. Just an engineer."
+
+After that, no one said anything for a good while, even Ruby.
+
+***
+**Weiss Schnee**
+
+Weiss Schnee couldn't even deal with Yang. Even she was repelled by her hatred of faunus and the White Fang. So, she sat on someone's patio, sulking a fair distance from Yang.
+
+A shadow approached, growing larger as footstep became louder.
+
+"There you are," a woman's voice said.
+
+Weiss looked up. It was Diana Rose.
+
+"What do you want?" Weiss said those words harshly.
+
+"Just want to talk to you, kid," Rose said.
+
+"I am not a kid."
+
+"Brains like your don't stop developing until they're in their twenties."
+
+"What difference does that make?"
+
+"It means...I am willing to give you more slack than usual..."
+
+"I didn't do anything!"
+
+"Not in the eyes of the law or society, but something between you and Blake did happened."
+
+"She shouldn't defend the White Fang. They're pure evil."
+
+Rose sat down on the same patio as Weiss. "Not once did I hear Blake defend them."
+
+"Then....why?"
+
+"Perhaps you're playing in their hand, young lady?"
+
+"How?"
+
+"By making you think they're not humans at all, or subhumans, you're helping them forment a conflict between the Faunus and the so-called vanilla humans. They want nothing more than a war against all of 'humanity', right?"
+
+"Extermination."
+
+"By cultivating their hate, they also cultivate our hate, and our mistreatments."
