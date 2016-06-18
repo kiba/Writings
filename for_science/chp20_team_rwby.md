@@ -275,4 +275,24 @@ Rose sat down on the same patio as Weiss. "Not once did I hear Blake defend them
 
 "Extermination."
 
-"By cultivating their hate, they also cultivate our hate, and our mistreatments."
+"And they can't do it without the support of faunus who also hate the rest of humanity. So, they would go around, attack targets to provoke them into lashing out at the faunus, driving more and more people into the hand of the White Fang."
+
+"But how? I can't trust any of the faunus because they might go join the White Fang behind my back!"
+
+"I didn't say it will be easy. On the contrary, it's very difficult, even for people on Earth. There's been attacks on innocent people who seemed to be related to terrorist organizations, even people who are totally unrelated to terrorists in their ethnicity. They are rare attacks, but they are reflective of people's attitudes. But you have friends, right? They know faunus that you can trust?"
+
+"I don't know. People hated my company and family."
+
+"I don't hate you. I barely got to know you."
+
+***
+**James Archer**
+**Several hours...later**
+
+Diana and I talked to Blake and Weiss about serious matters, but we didn't totally resolve their problems. It would be too much to expect them to be OK in all of one day. But luckily we were able to resume our dinner plans thanks to some teammate reconciliation.
+
+We even watched a civil right movement documentary that I acquired from the Sidonian archive, which got Ruby Rose squiriming at the violence inflicted on protestors.
+
+Now, it was dinner time, with lot of servings for the girls, because we vanilla humans are not totally capable of aura stuff, much less Remnan feats, thus relegating our metabolism requirement to ultra-low relatively speaking.
+
+We were all seated properly when dishes began arriving from the dinning table. Diana and I got sushi, while the girls of team RWBY got bigger items with chopsticks.
