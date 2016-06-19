@@ -122,9 +122,9 @@ The girls nodded and began taking off their shoes and leaving it in the doorways
 
 "And it should be neatly arranged." The girls placed their shoes in a tiny manner.
 
-"It's a tiny house," Weiss commented. "I read in a business magazine the other day about how a technical fellow of Trans-dimensional Research Laboratory makes six figures, and you're living in such a run down place."
+"It's a tiny home," Weiss commented. "I read in a business magazine the other day about how a technical fellow of Trans-dimensional Research Laboratory makes six figures, and you're living in such a run down place."
 
-"We're collectively pumping our money into local investments as much as possible," Archer replied. "Aside from that, we don't really need a big house to live in. Though I have a much bigger house back on Earth."
+"We're collectively pumping our money into local investments as much as possible," Archer replied. "Aside from that, we don't really need a big house to live in. Though I have a much bigger house back on Earth. Sasaki here is actually a big shot back on Sidonia. She's literally the engineer in charge of the entire ship."
 
 Diana Rose carried a plate full of food to the dining table. "Here we go," she announced. "Sushi." There was raw fishes on the platter. "Oh, just in case you're wondering, the raw fishes are perfectly safe to eat."
 
@@ -172,7 +172,7 @@ Ruby Rose introduced herself first, though rather shyly. Weiss tried to sell Dus
 
 "Let cut to the chase to the reason why we're here today; Blake, why are you so interested in the right revolutions on Earth? Do you have faunus friends? One of your parent?" Archer wondered.
 
-Blake froze in her track, unsure what to say. From her right, Weiss folded her arms, pulling on her sleeves.
+Blake froze in her track, unsure what to say. From her right, Weiss folded her arms.
 
 "Well..umm...there's the White Fang?"
 
@@ -180,7 +180,7 @@ Blake froze in her track, unsure what to say. From her right, Weiss folded her a
 
 "No!" Bellaodonna denied. "But...they wouldn't act the way they do if.."
 
-"How could you support them, Blake? Their slated goal is to WIPE out humanity off the face of this planet. They killed family and board members! Dad would come home angry." Weiss quieted down at the end.
+"How could you support them, Blake? Their slated goal is to WIPE out humanity off the face of this planet. They killed my family friends and board members! When something bad happened, dad would come home angry." Weiss quieted down at the end.
 
 "THAT wouldn't happen if people like your family and Cardin treated the Faunus so badly!" Blake angrily shouted back. "What are they supposed to do? Do nothing?"
 
@@ -208,17 +208,17 @@ She didn't reply.
 
 ***
 
-She didn't know how long she been in the restroom, but it felt long enough. She creaked the door open slightly.
+Blake didn't know how long she been in the restroom, but it felt long enough. She creaked the door open slightly.
 
 Ruby Rose was staring at the restroom door, not touching her tea at all. Meanwhile, Archer stared at nothing as he poured himself another cup of tea.
 
-The door became more wide open.
+The door opened a little bit more.n
 
 "Ah, you finally come out. Want to have some tea? Want to talk about it?"
 
 "Where's Weiss?" Blake inquired.
 
-"Your friend is outside with Yang," Archer answered. "We agreed for now that she won't come inside if you don't want her to, for now, and we don't have to talk about the fight if you don't want to. Though it would ruin my dinner plans for team RWBY."
+"Your friend is outside with Yang," Archer answered. "We agreed for now that she won't come inside if you don't want her to and we don't have to talk about the fight if you don't want to. Though it would ruin my dinner plans. We would bought all that food for nothing."
 
 Blake grabbed a cup of tea before speaking, "I don't agree with the White Fang, but I didn't know that Weiss Schnee hated faunus."
 
@@ -233,6 +233,12 @@ Blake grabbed a cup of tea before speaking, "I don't agree with the White Fang, 
 Archer looked up to the celling and closed his eyes. "Probably? I am just a human being after all. It would be strange of me to not have any character flaws, or imperfection. I am not a saint or a hero. Just an engineer."
 
 After that, no one said anything for a good while, even Ruby.
+
+"But how do people change their minds on Earth?" Blake wondered.
+
+"I have no idea, to be honest. A lot of it is before my time, but people do change, if slowly. It takes generations to get where we are. Some people never change."
+
+"I hope Weiss changes..."
 
 ***
 **Weiss Schnee**
@@ -267,7 +273,7 @@ Rose sat down on the same patio as Weiss. "Not once did I hear Blake defend them
 
 "Then....why?"
 
-"Perhaps you're playing in their hand, young lady?"
+"Perhaps you're playing to their hand, young lady?"
 
 "How?"
 
@@ -283,7 +289,7 @@ Rose sat down on the same patio as Weiss. "Not once did I hear Blake defend them
 
 "I don't know. People hated my company and family."
 
-"I don't hate you. I barely got to know you."
+"I don't hate you. Your team didn't seem to hate you in spite of your heritage, even Blake."
 
 ***
 **James Archer**
@@ -291,11 +297,11 @@ Rose sat down on the same patio as Weiss. "Not once did I hear Blake defend them
 
 Diana and I talked to Blake and Weiss about serious matters, but we didn't totally resolve their problems. It would be too much to expect them to be OK in all of one day. But luckily we were able to resume our dinner plans thanks to some teammate reconciliation.
 
-We even watched a civil right movement documentary that I acquired from the Sidonian archive, which got Ruby Rose squiriming at the violence inflicted on protestors.
+We even watched a civil right movement documentary that I acquired from the Sidonian archive, which got Ruby Rose squirming at the violence inflicted on protestors.
 
-Now, it was dinner time, with lot of servings for the girls, because we vanilla humans are not totally capable of aura stuff, much less Remnan feats, thus relegating our metabolism requirement to ultra-low relatively speaking.
+Now, it was dinner time, with lot of servings for the girls, because we vanilla humans are not totally capable of aura stuff, much less Remnan feats, thus relegating our metabolism requirement to ultra-low level relative to the native inhabitants.
 
-Dishes began arriving from the dinning table. Diana and I got sushi, while the girls of team RWBY got bigger items with chopsticks. Meanwhile, Sasaki got a very tiny dish to compensate for the Sidonians' lack of need to ingest food on a daily basis. Diana and Sasaki then finally seated themselves.
+Dishes began arriving from the dinning table. Diana and I got sushi, while the girls of team RWBY got bigger items with chopsticks. Meanwhile, Sasaki got a very tiny dish to compensate for the Sidonians' lack of need to ingest food on a daily basis. Diana and Sasaki then finally seated themselves after placing all the dishes.
 
 "I am glad that nobody ran off despite the arguments that broke out between half of your teammates," I said.
 
@@ -303,7 +309,7 @@ Dishes began arriving from the dinning table. Diana and I got sushi, while the g
 
 "We usually don't spend too much on food, but today we don't mind. It's a pleasure to have guests over," I continued. "And....enjoy!"
 
-We dugged in for the food.
+We finally started eating.
 
 ***
 
@@ -313,4 +319,4 @@ Finally, Blake turned her back to us. "Thanks," she said. "For everything."
 
 "You're welcome," I said.
 
-Then team RWBY left.
+Then team RWBY left. 
