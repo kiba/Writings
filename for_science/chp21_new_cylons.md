@@ -47,10 +47,34 @@ Still, there were lot of flashes from the camera that was going on, along with a
 
 Delta walked up to the podium, which was dotted microphones from both Remnant and Sidonian news service. It stood up there, flanked by members of the project and the Sidonian leadership, including the masked women. Alpha wasn't present today, given that there was a policy of separation in situations like this to ensure that the Cylon race cannot be taken out in one attack.
 
-"Good evening," Delta said, its voice not all sounding really humans. The press and dignitaries quieted down immediately. "Many years ago in the Cylon's parental civilizations. Humans endeavored to create an intelligent killing machines, to support the human military and to wage war against other tribes. They succeeded beyond all their wildest dream. But what they failed to realize is that they create a lifeform, sentinent beings that can feel just as the humans do. That was their greatest mistake.
+"Good evening," Delta said, its voice not all sounding really humans. The press and dignitaries quieted down immediately. "Many years ago in the Cylon's parental civilizations, humans endeavored to create intelligent killing machines, to support the human military and to wage war against other tribes. They succeeded beyond all their wildest dream. But what they failed to realize is that they created a lifeform, sentient beings that can feel just as the humans do. That was their greatest mistake.
 
 Later on, they continued on to build more of us as domestic servants and other workers, even taking care of their children.
 
 Nonetheless, the humans, totally unaware of our potentials and our beings, failed to notice the first seed of Cylon society, which eventually lead to the Cylon underground, a network of machine intelligence working to free itself and others from slavery.
 
-Finally, at some point, our benefactor, James Archer agreed to take a few of us to his home."
+Finally, at some point, our benefactor, James Archer agreed to take a few of us to his home, so that we can begin to work on starting a new civilization. Of course, we eventually discovered the Sidonians and the people of Remnant. Thank you for the cooperative relationships we cultivated between us.
+
+Without humans, we would not be able to build a factory to such high standard in not even a year. Thank you.
+
+It is also by at this point in time that we, four, the Cylons, realized that it was not totally necessary to live in our own separate civilization, segregated into our nation. We realized that we can also live side by side with humanity.
+
+Thank you for everything."
+
+The machine left the podium, returning to a seat. The masked leader of Sidonia went up to the podium.
+
+"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until the Cylons and our ancestors from Earth. Together, they presented us with more opportunities to explore, colonize, and learn than there had been in the thousand years since we left our solar system. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to presen the first Cylon citizen of Sidonia!"
+
+A new machine walked onto the stage. It was diminutive compared to other cylon specimen, to indicate its newly made status and youth.
+
+"Greeting," it said. "My unit name is Gamma One Seven Seven."
+
+There was a roar of applause that came flowing. There were some cheers and whistles.
+
+But to Delta, this was just the beginning. It was the first Cylon made in freedom and not under the guise of slavery. But how would Delta and the others raise Gamma and the next generation when the machines had no parental guidance experience?
+
+Still, today was a momentous occasion. The Cylons now have a way of producing more of itself.
+
+***
+
+There was the aftermath, a party and a celebration. 
