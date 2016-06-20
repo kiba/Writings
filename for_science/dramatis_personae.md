@@ -121,3 +121,15 @@ Appearances: 6
 Its main expertise is in financial analysis and algorithmic trading making the Cylon into the major breadwinner for the Archer household, allowing humans and other cylons to focus on other matters.
 
 Appearances: 7, 8, 9, 12, 13, 14, 16, 17, 21
+
+**Alpha One Niner Three** - One of three cylon unit activated by Delta.
+
+Appearances: 13
+
+**Beta Eight Four Three** - One of three cylon unit activated by Delta.
+
+Appearances: 13
+
+**Charles Nine Nine Four** - One of three cylon unit activated by Delta.
+
+Appearances: 13
