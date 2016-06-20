@@ -1,6 +1,9 @@
 # **Dramatis Personae**
 
-## **James Archer**
+
+##Human characters
+
+### **James Archer**
 
 Earth-born electrical engineer who discovered and invented trans-dimensional travel. He is in a relationship with Diana Rose.
 
@@ -18,15 +21,6 @@ As the story progressed, he became less and less important, while still remainin
 
 Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
 
-**Alpha Beta Two Charles** - First Appearance: Chapter 6. It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
-
-Negotiated with James Archer for peaceful tactics for AI rights, and resettlement of a few Cylons in exchange for TDM parts and Colonial knowledge base.
-
-**Delta Zero Three One** - The only full Cylon unit to arrive with James Archer back on his Earth. It was given a mission by the Cylons rebel to create a new Cylon civilization in case that war had broken out with the Cylon and ultimately proven unsuccessful.
-
-Its main expertise is in financial analysis and algorithmic trading making the Cylon into the major breadwinner for the Archer household, allowing humans and other cylons to focus on other matters.
-
-Appearances: 7, 8, 9, 12, 13, 14, 16, 17
 
 **Diana Rose** - First Appearance: Chapter 7. A mechanical engineer who became a live-in girlfriend after her discovery of Archer's secrets. She has blue eyes, and red hair tied up in a ponytail.
 
@@ -68,7 +62,7 @@ Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
 
 **Ruby Rose** - She is a second year student at Signal Academy. Fifteen years old Huntress-in-training involved in an altercation with armed robbers at a dust shop.
 
-Apperances: 15(not mentioned by name), 16, 20
+Appearances: 15(not mentioned by name), 16, 20
 
 **Glynda Goodwitch** - She is a huntress and professor at Beacon Academy. After driving off the robbers, she, along with Ruby Rose, applied first aid to the Sidonian victims until the ambulance arrived.
 
@@ -113,3 +107,17 @@ Appearances: 19, 20
 **Yang Xiao Long** - She is a huntress-in-training, sister, and teammate of Ruby Rose at Beacon Academy. She followed Ruby Rose's lead to investigate where Blake Belladonna is going.
 
 Appearances: 20
+
+##Machine Characters
+
+**Alpha Beta Two Charles** It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
+
+Negotiated with James Archer for peaceful tactics for AI rights, and resettlement of a few Cylons in exchange for TDM parts and Colonial knowledge base.
+
+Appearances: 6
+
+**Delta Zero Three One** - The only full Cylon unit to arrive with James Archer back on his Earth. It was given a mission by the Cylons rebel to create a new Cylon civilization in case that war had broken out with the Cylon and ultimately proven unsuccessful.
+
+Its main expertise is in financial analysis and algorithmic trading making the Cylon into the major breadwinner for the Archer household, allowing humans and other cylons to focus on other matters.
+
+Appearances: 7, 8, 9, 12, 13, 14, 16, 17, 21
