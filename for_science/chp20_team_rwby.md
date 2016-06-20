@@ -6,7 +6,7 @@ A number of breakthroughs had made their appearances after months of hard work a
 
 We charted the stars, and we were able to locate Remnant and Sidonia in context of the Milky Way. Remnant is located around twenty five light years away from Earth, and Sidonia is located about three hundred twenty three light years away from Earth. The map was eventually published and distributed to the public at large.
 
-Why star charting is important? Aside from knowing where we are, it will eventually enable trans-dimensional travel without me having to calculate all the numbers and arranging the schedules. However, star charting is simply the first step in a series required for practical interdimensional navigation. The principle behind it is simple. Travel to a certain location spatially, and then make the jump an alternate dimension before arriving at your destination. For example, you'll have to travel from Remnant twenty-five light years to Earth would be, then make the jump through several realities, before arriving at Earth proper.
+Why star charting is important? Aside from knowing where we are, it will eventually enable trans-dimensional travel without me having to calculate all the numbers and arranging the schedules. However, star charting is simply the first step in a series required for practical interdimensional navigation. The principle behind it is simple. Travel to a certain location spatially, and then make the jump to another dimensions, sometime multiple, before arriving at your destination dimension and location. For example, you'll have to travel from Remnant twenty-five light years to Earth would be, then make the jump through several realities, before arriving at Earth proper.
 
 That will require FTL travel if we want to arrive at any places soon, and the only method known to us is the Colonial jump-drive which can make point-to-point instantaneous jumps by folding space. The Cylons said that Colonial jump drive can only jump 2 light years at a time while exerting tremendous stress on both man and the machine. For our reference, Sidonia is about three hundred twenty three light years away from Earth, requiring about one hundred sixty one jumps, making such journey practically impossible for various reasons. If we were able to overcome such obstacles and get to our destination spatially, the last part is jumping dimensions and that required us overcoming a number of problems.
 
@@ -319,4 +319,4 @@ Finally, Blake turned her back to us. "Thanks," she said. "For everything."
 
 "You're welcome," I said.
 
-Then team RWBY left. 
+Then team RWBY left.
