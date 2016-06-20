@@ -6,7 +6,7 @@
 
 The inner hull of Sidonia served as the industrial center of the seedship's economy, full or arsenals, armories, and factories, drawing materials from the still intact asteroid that Sidonia itself is built from, and raw materials occasionally harvested by Guardian mechs from time to time. One of the factories was the new one thousand square meter for  a Cylon manufacturing complex, built from clearing a derelict and unused factory for building some other machine.
 
-Unsurprising, Delta was working there along with the rest of the Cylons, with the humans. Currently, it was walking along an assembly line with two other human engineers, running a last minute inspection of the assembly line to build the computation engines key to building Cylon intelligence.
+Unsurprising, Delta and the other cylons were working there alongside the humans. Currently, it was walking along an assembly line with two other human engineers, running a last minute inspection of the assembly line to build the computation engines key to building Cylon intelligence.
 
 It had been about ten months, and around seven months since meeting the Sidonians. In that time period, the machines worked with the humans on all sort of projects, but none was as important as building the next generation of Cylons, the projects that most consumed the machine collective's time, effort, and energy.
 
@@ -21,3 +21,20 @@ Frankly, there were more humans on the project than Cylons, as a simple conseque
 "We're ready to proceed to step six out of three hundred twenty four," the Cylon said.
 
 Then the human-cylon team walked on in lock-step.
+
+***
+
+It was in the control center where all personnels of the project gathered.
+
+"Are we all ready to go? No objections? Last chance to raise your concerns," Doctor Yure Shinatose said. She was currently trans-dimensional leading expert on genetic engineering and the medical sciences.
+
+A silence engulfed the seventy-so members of the Cylon Research Project. There was nothing that anybody could think of that would posed a problem.
+
+"OK, we'll start the manufacturing. Each step of the way will be checked for signs of defects, especially in the neural structures." There was a reason why Shinatose was assigned to this project as the leader. The fact was that the computation engines were deliberately modeled after humans, even after certain modules were stripped away, such as the sex drives. A Cylon computation engine just didn't work the way that classical computers do.
+
+A technician turned on the switch, bringing the factory machinery humming to life. Everyone stared at their monitors looking at numerical measurements and graph of all sort.
+
+***
+**September 21, 2015**
+
+Delta was looking its best today.
