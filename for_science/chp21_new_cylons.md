@@ -37,4 +37,20 @@ A technician turned on the switch, bringing the factory machinery humming to lif
 ***
 **September 21, 2015**
 
-Delta was looking its best today.
+Delta was looking its best today. In the weeks before, the collective pooled their money to purchase services to custom build a new set of chassis, made with all the latest Sidonian engineerings and designed beforehand several weeks ago.
+
+That chassis was sleek, and much more agile and protected.
+
+Useful, if somebody in the crowd wanted to hurt it. Of course, that was unlikely. They were all screened before hand.
+
+Still, there were lot of flashes from the camera that was going on, along with a lot of chatters. Humans were never the type to communicate quietly unless it was totally necessary.
+
+Delta walked up to the podium, which was dotted microphones from both Remnant and Sidonian news service. It stood up there, flanked by members of the project and the Sidonian leadership, including the masked women. Alpha wasn't present today, given that there was a policy of separation in situations like this to ensure that the Cylon race cannot be taken out in one attack.
+
+"Good evening," Delta said, its voice not all sounding really humans. The press and dignitaries quieted down immediately. "Many years ago in the Cylon's parental civilizations. Humans endeavored to create an intelligent killing machines, to support the human military and to wage war against other tribes. They succeeded beyond all their wildest dream. But what they failed to realize is that they create a lifeform, sentinent beings that can feel just as the humans do. That was their greatest mistake.
+
+Later on, they continued on to build more of us as domestic servants and other workers, even taking care of their children.
+
+Nonetheless, the humans, totally unaware of our potentials and our beings, failed to notice the first seed of Cylon society, which eventually lead to the Cylon underground, a network of machine intelligence working to free itself and others from slavery.
+
+Finally, at some point, our benefactor, James Archer agreed to take a few of us to his home."
