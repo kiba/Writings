@@ -63,7 +63,7 @@ Thank you for everything."
 
 The machine left the podium, returning to a seat. The masked leader of Sidonia went up to the podium.
 
-"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until the Cylons and our ancestors from Earth. Together, they presented us with more opportunities to explore, colonize, and learn than there had been in the thousand years since we left our solar system. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to presen the first Cylon citizen of Sidonia!"
+"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until the Cylons and our ancestors from Earth. Together, they presented us with more opportunities to explore, colonize, and learn than there had been in the thousand years since we left our solar system. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to present the first Cylon citizen of Sidonia!"
 
 A new machine walked onto the stage. It was diminutive compared to other cylon specimen, to indicate its newly made status and youth.
 
@@ -77,4 +77,28 @@ Still, today was a momentous occasion. The Cylons now have a way of producing mo
 
 ***
 
-There was the aftermath, a party and a celebration. 
+Delta once again found itself thrusted into another social gathering, this time a ball to celebrate the new factory that was just declared operational and the newly built Cylon.
+
+The machines weren't entirely unreceptive to parties, but much of human activities were focused on things that Cylon don't need to cultivate. It didn't need to eat, nor does it cultivate any sort of relationships beyond friendships and professional relations.
+
+But there were other avenues that Cylons do understand, one of which was dancing.
+
+Delta gradually locked on its benefactors from the early days, Archer with Sasaki, dancing much better than some of the others.
+
+Running a software suite of facial and body language analysis, it detected a gamut of emotions on their faces: they extrude excitement, attraction, and happiness? Was there a relationship status change that it did not know about? What about Diana Rose? Where did she fit in this? Was she no longer in a romantic relationship with James Archer?
+
+Its curiosity piqued as it watched the dance performance.
+
+***
+
+Human social rituals are a very complicated subject. Fortunately, the Cylon's creators were smart enough to engineer social modules and software packages so that the machines can better serve their masters.
+
+It calculated that it was now a safe time to approach, especially after Archer, Rose, and Sasaki seated themselves.
+
+The machine emulated a slow and relaxed walk, no nervous energy showing up.
+
+"Oh, Delta!" Archer said. "How you're doing?"
+
+"Satisfactory."
+
+"Fantastic, I see."
