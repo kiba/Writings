@@ -1,0 +1,5 @@
+#!/bin/bash
+
+#Find out what today's date is.
+
+date +"%Y-%m-%d"
