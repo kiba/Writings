@@ -101,4 +101,34 @@ The machine emulated a slow and relaxed walk, no nervous energy showing up.
 
 "Satisfactory."
 
-"Fantastic, I see."
+"I supposed that mean fantastic?" Delta just nodded.
+
+"Have there been a change in your relationship status?" Delta asked very bluntly. Sometime, for a very few humans, it pays to have a radically different social model.
+
+Archer eyes darted all over the ballroom as the women exchanged with each others complicated glances. "Oh...um..."
+
+"I am dating." "I am giving it a try." Sasaki and Rose blurted out.
+
+"You have came to an unusual arrangement for this society..."
+
+"Yeah, that's it." Archer's face went beet red. "..But I am worried about how others think," he said in a whispering tone.
+
+Sasaki took a bite from her plate. "It's not the strangest thing people see in this society. We got a talking bear."
+
+"Oh...I know that someone wants to talk to you," Archer said. "Director Polenda and his daughter wants to meet you.  They're at this table and they're a big fan of artificial sentient beings." Archer helpfully pointed the table out with a gesture. "If you meet them, the boss will spare me from the television crew."
+
+"I see. Then I'll leave you to your courting." Delta could see Archer's guard being let down as it walked away.
+
+***
+
+When Delta found the director, he was already engrossed in a conversation with a Sidonian neuroscientist.
+
+"Hello, I am Delta," the machine introduced itself. That gotten the humans' attention.
+
+"Oh, you must be Delta that I saw on the stage today," director Polenda said. "I am Doctor William Polenda. I have ten doctor degrees in multiple fields of science and engineering, but that's not important here."
+
+"Almost all girls are born, but some are made."
+
+"Then what is?"
+
+"A signature!"
