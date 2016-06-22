@@ -6,3 +6,6 @@ if ! [ -e $today ]
 then
   echo "file not exists"
 fi
+
+total=$(wc -w for_science/chp*.md | tail -1)
+echo $total
