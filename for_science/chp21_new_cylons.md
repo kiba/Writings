@@ -115,7 +115,7 @@ Archer eyes darted all over the ballroom as the women exchanged with each others
 
 Sasaki took a bite from her plate. "It's not the strangest thing people see in this society. We got a talking bear."
 
-"Oh...I know that someone wants to talk to you," Archer said. "Director Polenda and his daughter wants to meet you.  They're at this table and they're a big fan of artificial sentient beings." Archer helpfully pointed the table out with a gesture. "If you meet them, the boss will spare me from the television crew."
+"Oh...I know that someone wants to talk to you," Archer said. "Director Polendina and his daughter wants to meet you.  They're at this table and they're a big fan of artificial sentient beings." Archer helpfully pointed the table out with a gesture. "If you meet them, the boss will spare me from the television crew."
 
 "I see. Then I'll leave you to your courting." Delta could see Archer's guard being let down as it walked away.
 
@@ -125,10 +125,30 @@ When Delta found the director, he was already engrossed in a conversation with a
 
 "Hello, I am Delta," the machine introduced itself. That gotten the humans' attention.
 
-"Oh, you must be Delta that I saw on the stage today," director Polenda said. "I am Doctor William Polenda. I have ten doctor degrees in multiple fields of science and engineering, but that's not important here."
+"Oh, you must be Delta that I saw on the stage today," director Polendina said. "I am Doctor William Polendina. I have ten doctor degrees in multiple fields of science and engineering, but that's not important here."
 
-"Almost all girls are born, but some are made."
+[I]"Saluations! Almost all girls are born, but I am made,"[/I] the girl next to Polendina, presumably his daughter said on a radio communication frequency.
 
 "Then what is?"
 
-"A signature!"
+[I]Please clarify,[/I] Delta requested.
+
+"Oh huh, my daughter here," the old human gestured at the young teenager form next to him, "Penny and I are very interested in meeting artificial sentient beings. It's always been a dream of mine to create something beautiful. And um, we would each like a signature!"
+
+Delta cocked its head sideway. "I am not sure if you would appreciate my signature. It's for all intent and purpose, a printed barcode."
+
+[I]"Please don't tell papa that I told you, but I am also an artificial sentient being, just like you!"[/I]
+
+"Oh, I don't mind. Do you mind, Penny?" The girl nodded her head sideway.
+
+[I]"Explanation acceptable. It is the default protocol to keep conversations private."[/I]
+
+"Then I will produce a signature for each of you?" Delta queried.
+
+Director Polendina and his daughter each gave a piece of paper for the machine to print on. The machine then took out a pen from its utility belt before precisely positioning its hand on the upper left corner of one paper. Delta summoned a program for just the occasion and it executed the program, requiring no more input for this paper.
+
+Finally, it printed the next signature for other one. Beings at the table looked upon the process, mesmerized by the process exhibited by the Cylon.
+
+"Cool! How did you do that?" Polendina finally said something out loud. "Can you teach me to do this?"
+
+"It is not something that I learned, but something I programmed."
