@@ -27,4 +27,8 @@ July 2, 2015 - Chapter 18 - Kobayashi discussed spreading anti-aging medicine to
 July 2, 2015 - Chapter 18 - James Archer was introduced to Doctor Polendina, who became the director of the Trans-dimensional Research Laboratory.
 July 13, 2015 - Chapter 19 - James Archer was interviewed Lisa Lavender on the Vale News Network.
 July 13, 2015 - Chapter 19 - Doctor Oobleck used Archer's interview as materials for his history class. July 13, 2015 - Chapter 19 - After Oobleck discussed his arrangement at Beacon Academy, he arranged with James Archer for further interviews and to prepare for becoming part of the first contact delegation to Earth.
-August 16, 2015, Chapter 20 - Team RWBY visited Archer's abode after following Blake Belladonna.
+August 16, 2015 - Chapter 20 - Team RWBY visited Archer's abode after following Blake Belladonna.
+September 14, 2015 - Chapter 21 - The Cylons and Delta started their last process check before initiating the factory complex to produce a new machine.
+September 21, 2015 - Chapter 21 - The first newly built Cylon, Gamma One Seven Seven is unveiled to the public.
+September 21, 2015 - Chapter 21 - Delta discovered a new 'relationship change' in Archer, Rose, and Sasaki.
+September 21, 2015 - Chapter 21 - Delta met Director Polendina and his daughter, Penny Polendina.
