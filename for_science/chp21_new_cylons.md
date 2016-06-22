@@ -152,3 +152,21 @@ Finally, it printed the next signature for other one. Beings at the table looked
 "Cool! How did you do that?" Polendina finally said something out loud. "Can you teach me to do this?"
 
 "It is not something that I learned, but something I programmed."
+
+[I]Do you want to be friend? I want to be friend!"[/I]
+
+"Ah, I guess that's reasonable," the director said. "Human prosthetic arms and legs can trace its heritage from factory robotic arms. However, it is not a normal features to have those installed. People who usually wears prosthetic are huntsmen, who had lost part of their bodies to the Grimm."
+
+"I agreed that robotics and prosthetics shared much commonality," the machine said. "Though in Colonial civilization, people mostly regrow their limbs instead."
+
+[I]Friendship offer is accepted, though it is recommended to cement our friendship through leisure activities.[/I]
+
+"We can do that," the Sidonian neurologist said. "Though people never lose their arms...in forever."
+
+[I]I know! You could invite me to your house? I want to know how Cylons live![/I]
+
+"Fascinating! I would love to visit the Colonials. They have what?"
+
+"Around thirty five billion people," Delta answered for the director.
+
+"It's even more than what Earth has. It's a shame that we can' t visit there. Something's terrible is happening there. I am glad that...Penny would not have to grow up in such...strife."
