@@ -19,20 +19,20 @@ With his engineering knowledge, he used it to reverse engineer the often convolu
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21
 
 
 **Diana Rose** - First Appearance: Chapter 7. A mechanical engineer who became a live-in girlfriend after her discovery of Archer's secrets. She has blue eyes, and red hair tied up in a ponytail.
 
 Ex-girlfriend of physicist and mechanical engineer Doctor Rodney McKay.
 
-Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19, 20
+Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19, 20, 21
 
 **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia. She initially has an antagonistic relationship with the Earthlings as a result of a strong-armed negotiation.
 
 Kobayashi ordered the assassination of the entire immortal council when she viewed them as too disloyal and treasonous to Sidonia. With the elimination of the council, she was given free reign to pursue her trans-dimensional ambition of relocating Sidonians to somewhere safe and fulfill Sidonia's mission as a seedship.
 
-Appearances: 9, 10, 11, 12, 14, 17, 18
+Appearances: 9, 10, 11, 12, 14, 17, 18, 21
 
 **Ochiai** - A cyborg who is a confidant and assistant to Captain Kobayashi.
 
@@ -42,9 +42,11 @@ Appearances: 9, 10
 
 She is fearful of automative travel, thinking that it will kill her at any moment.
 
-Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20
+Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21
 
-**Yure Shinatose** - First Appearance: Chapter 9. Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability.
+**Yure Shinatose** - Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability.
+
+Appearances: 9, 21
 
 **Mayumi Yoshizawa** - First Appearance: Chapter 10. She is a member of the security police, which is responsible for internal state security.
 
@@ -135,3 +137,11 @@ Appearances: 13
 **Charles Nine Nine Four** - One of three cylon unit activated by Delta.
 
 Appearances: 13
+
+**Gamma One Seven Seven** - The first of a new generation of cylon, manufactured in September 2015 in a Sidonian factory complex.
+
+Appearances: 21
+
+**Penny Polendina** - Daughter of William Polendina and an artificial intelligence.
+
+Appearances: 21
