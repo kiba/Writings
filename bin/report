@@ -1,5 +1,8 @@
 #!/bin/bash
 
-#Find out what today's date is.
+today=reports/$(date +"%Y-%m-%d").md
 
-date +"%Y-%m-%d"
+if ! [ -e $today ]
+then
+  echo "file not exists"
+fi
