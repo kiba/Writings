@@ -8,4 +8,4 @@ then
 fi
 
 total=$(wc -w for_science/chp*.md | tail -1)
-echo $total
+echo $total > $today
