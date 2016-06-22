@@ -169,4 +169,10 @@ Finally, it printed the next signature for other one. Beings at the table looked
 
 "Around thirty five billion people," Delta answered for the director.
 
-"It's even more than what Earth has. It's a shame that we can' t visit there. Something's terrible is happening there. I am glad that...Penny would not have to grow up in such...strife."
+[I]You are welcomed to visit my apartment, provided that you told your creator about this conversation and given permission.[/I]
+
+"It's even more than what Earth has. It's a shame that we can't visit the place. Something's terrible is happening there, right? A slave revolt? I am glad that...Penny would not have to grow up in such...strife."
+
+[I]Awwww...[/I]
+
+"It is probable that war had broken out by then," Delta speculated.
