@@ -28,7 +28,7 @@ I stared at a rube goldberg-equse contraption made by a certain violent colored 
 
 "It worked!" the researcher said. "As a result of my crea-"
 
-"Cut the bullcrap about creativity and individuality," I said rather bluntly. I cursed director Polenda for making me a manager, for forcing me to agree to all too reasonable demands, rather than leaving me out of the bureaucracy surrounding scientific and engineering research.
+"Cut the bullcrap about creativity and individuality," I said rather bluntly. I cursed director Polendina for making me a manager, for forcing me to agree to all too reasonable demands, rather than leaving me out of the bureaucracy surrounding scientific and engineering research.
 
 "But your semblance..."
 
