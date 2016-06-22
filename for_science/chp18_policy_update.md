@@ -155,7 +155,7 @@ So, I turned off the shield generator and headed for the director's office.
 
 ***
 
-I found myself in a room with the director, a Doctor Polenda, which I had only known through video conferences and a whole lot of reading. He has an impressive resume who worked largely for the massive Atlasian industrial research complex, who practically demanded his job. He got it.
+I found myself in a room with the director, a Doctor Polendina, which I had only known through video conferences and a whole lot of reading. He has an impressive resume who worked largely for the massive Atlasian industrial research complex, who practically demanded his job. He got it.
 
 "You must be James Archer that I keep hearing about," the portly man. "Pardon me for not being there at the opening ceremony, but you must understand that my former boss tried to stall me one last time."
 

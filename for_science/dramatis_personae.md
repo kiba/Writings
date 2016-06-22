@@ -86,7 +86,9 @@ Appearances: 17, 19
 
 Appearances: 18
 
-**Director Polenda** - First Appearance: Chapter 18. He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex.
+**Director Polendina** - He is the first director for the Trans-dimensional Research Laboratory. Former researcher for the Atlasian military industrial complex.
+
+Appearances: 18, 21
 
 **Lisa Lavender** - Anchorwoman for the Vales News Network.
 

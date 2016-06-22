@@ -24,7 +24,7 @@ June 8, 2015 - Chapter 16 - Colonel Seii decided to send an emissary and a docto
 June 29, 2015 - Chapter 17 - After three weeks of negotiation, Remnans, Sidonians, Cylons, and an Earthling agreed to a memorandum of understanding setting out the term for technological, scientific, and cultural exchange.
 July 2, 2015 - Chapter 18 - Ozpin received a full set of communication equipment for the four kingdoms.
 July 2, 2015 - Chapter 18 - Kobayashi discussed spreading anti-aging medicine to the rest of Sidonia with Sasaki.
-July 2, 2015 - Chapter 18 - James Archer was introduced to Doctor Polenda, who became the director of the Trans-dimensional Research Laboratory.
+July 2, 2015 - Chapter 18 - James Archer was introduced to Doctor Polendina, who became the director of the Trans-dimensional Research Laboratory.
 July 13, 2015 - Chapter 19 - James Archer was interviewed Lisa Lavender on the Vale News Network.
 July 13, 2015 - Chapter 19 - Doctor Oobleck used Archer's interview as materials for his history class. July 13, 2015 - Chapter 19 - After Oobleck discussed his arrangement at Beacon Academy, he arranged with James Archer for further interviews and to prepare for becoming part of the first contact delegation to Earth.
 August 16, 2015, Chapter 20 - Team RWBY visited Archer's abode after following Blake Belladonna.
