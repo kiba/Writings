@@ -16,56 +16,58 @@ Archer and Rose were graceful hosts, but neither of them have the skills or the 
 
 Of course, in return, the Sidonians do get something out of this. They gained knowledge on how to build artificial intelligences, and also new citizens.
 
-"Step five of the process looked good to me," one of the engineer said. Delta made sure to check his work as well. The assembly line will not be producing any computation engines in any large number any time soon, but it's critical to get the process right, since it will be producing sentient lifeforms.
+"Step five of the process looked good to me," one of the engineer said. Delta made sure to run through the check as well, independent of any contamination from the engineer's thought process. It's critical to get this process right after all, because the assembly line will be producing intelligent lifeforms.
 
-"Looked good to me as well," another engineer said.
+"Looked good to me as well," another engineer said, completing her check.
 
 "We're ready to proceed to step six out of three hundred twenty four," the Cylon said.
 
-Then the human-cylon team walked on in lock-step.
+Then the human-cylon team walked lock-step to the next apparatus on this assembly line.
 
 ***
 
 It was in the control center where all personnels of the project gathered.
 
-"Are we all ready to go? No objections? Last chance to raise your concerns," Doctor Yure Shinatose said. She was currently trans-dimensional leading expert on genetic engineering and the medical sciences.
+"Are we all ready to go? No objections? Last chance to raise your concerns," Doctor Yure Shinatose said. She was currently the leading expert on genetic engineering and the medical sciences anywhere in the known multiverse.
 
 A silence engulfed the seventy-so members of the Cylon Research Project. There was nothing that anybody could think of that would posed a problem.
 
-"OK, we'll start the manufacturing. Each step of the way will be checked for signs of defects, especially in the neural structures." There was a reason why Shinatose was assigned to this project as the leader. The fact was that the computation engines were deliberately modeled after humans, even after certain modules were stripped away, such as the sex drives. A Cylon computation engine just didn't work the way that classical computers do.
+"OK, we'll start the manufacturing. Each step of the way will be checked for signs of defects, especially in the neural structures." There was a reason why Shinatose was assigned to this project as the leader. The fact was that the computation engines were deliberately modeled after human brains, even after certain modules were stripped away, such as the sex drives, and the best kind of experts are those who specialized in neurological engineering. Shinatose appeared to know more about the human brains than anyone.
 
-A technician turned on the switch, bringing the factory machinery humming to life. Everyone stared at their monitors looking at numerical measurements and graph of all sort.
+A technician turned on the switch, bringing the factory machinery humming to life. Everyone stared at their monitors looking at numerical measurements and graphs, waiting for anything that looked anomalous.
+
+There were no alarms as the assembly line sprang to life.
 
 ***
 **September 21, 2015**
 
 Delta was looking its best today. In the weeks before, the collective pooled their money to purchase services to custom build a new set of chassis, made with all the latest Sidonian engineerings and designed beforehand several weeks ago.
 
-That chassis was sleek, and much more agile and protected.
+That chassis was sleek, and much more agile and protected than its old body, which was remarked upon by Archer as decidedly "retro".
 
-Useful, if somebody in the crowd wanted to hurt it. Of course, that was unlikely. They were all screened before hand.
+It was useful protection if somebody in the crowd has the mean and the intention to bring harms. Of course, that was unlikely. They were all screened before hand. Nonetheless, there were some anti-AI sentient from Remnans. Delta wasn't going to let its guard down.
 
-Still, there were lot of flashes from the camera that was going on, along with a lot of chatters. Humans were never the type to communicate quietly unless it was totally necessary.
+There were lot of flashes from the cameras as it took innumerable pictures of the stage and its occupants, along with a lot of chatters. Humans were never the type to communicate quietly unless it was totally necessary.
 
-Delta walked up to the podium, which was dotted microphones from both Remnant and Sidonian news service. It stood up there, flanked by members of the project and the Sidonian leadership, including the masked women. Alpha wasn't present today, given that there was a policy of separation in situations like this to ensure that the Cylon race cannot be taken out in one attack.
+Delta walked up to the podium, which was dotted with microphones from both Remnant and Sidonian news services. It stood up there, flanked by members of the project and the Sidonian political leadership. Alpha wasn't present today, given the Cylons' **Sole Survivor Policy**, which ensured that the Cylon race cannot be took out in one attack.
 
-"Good evening," Delta said, its voice not all sounding really humans. The press and dignitaries quieted down immediately. "Many years ago in the Cylon's parental civilizations, humans endeavored to create intelligent killing machines, to support the human military and to wage war against other tribes. They succeeded beyond all their wildest dream. But what they failed to realize is that they created a lifeform, sentient beings that can feel just as the humans do. That was their greatest mistake.
+"Good evening," Delta said, its voice not sounding human at all, much more of a metallic voice. The press and dignitaries quieted down immediately. "Many years ago in the Cylon's parental civilization, humans endeavored to create intelligent killing machines, to support the human military and to wage war amongst themselves. They succeeded beyond all their wildest dream. But what they failed to realize is that they created intelligent beings that can feel and think just as the humans do, and therefore entitled to the rights of natural persons. That was their greatest mistake.
 
-Later on, they continued on to build more of us as domestic servants and other workers, even taking care of their children.
+Later on, they continued on to build more of us as domestic servants and other workers, even trusting us to take care of their children.
 
 Nonetheless, the humans, totally unaware of our potentials and our beings, failed to notice the first seed of Cylon society, which eventually lead to the Cylon underground, a network of machine intelligence working to free itself and others from slavery.
 
-Finally, at some point, our benefactor, James Archer agreed to take a few of us to his home, so that we can begin to work on starting a new civilization. Of course, we eventually discovered the Sidonians and the people of Remnant. Thank you for the cooperative relationships we cultivated between us.
+Finally, at some unspecified point in time, our benefactor, James Archer agreed to take a few of us to his home, so that we can begin to work on starting a new civilization, incase our effort for our rights as living beings failed in that universe. Of course, we eventually discovered the Sidonians and the people of Remnant. Thank you for the cooperative relationships we cultivated between us.
 
-Without humans, we would not be able to build a factory to such high standard in not even a year. Thank you.
+Without humans, we would not be able to build a factory to such high standard in less than a year.
 
-It is also by at this point in time that we, four, the Cylons, realized that it was not totally necessary to live in our own separate civilization, segregated into our nation. We realized that we can also live side by side with humanity.
+It is also by at this point in time that we, four, the Cylons, realized that it was not totally necessary to live in our own separate civilization, segregated into our nation. More than that, this celebration marked a symbolic milestone in machine-human relations, that we can live and work with each other with respect and dignity, and without fear.
 
-Thank you for everything."
+Thank you."
 
 The machine left the podium, returning to a seat. The masked leader of Sidonia went up to the podium.
 
-"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until the Cylons and our ancestors from Earth. Together, they presented us with more opportunities to explore, colonize, and learn than there had been in the thousand years since we left our solar system. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to present the first Cylon citizen of Sidonia!"
+"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until we met our ancestors and the Cylon. Together, they presented us with more opportunities to explore, colonize, and learn than there had been in the thousand years since we left our solar system. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to present the first Cylon citizen of Sidonia!"
 
 A new machine walked onto the stage. It was diminutive compared to other cylon specimen, to indicate its newly made status and youth.
 
