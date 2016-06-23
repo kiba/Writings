@@ -173,6 +173,18 @@ Finally, it printed the next signature for other one. Beings at the table looked
 
 "It's even more than what Earth has. It's a shame that we can't visit the place. Something's terrible is happening there, right? A slave revolt? I am glad that...Penny would not have to grow up in such...strife."
 
-[I]Awwww...[/I]
+[I]Ummm...[/I]
 
-"It is probable that war had broken out by then," Delta speculated.
+"It is probable that war had broken out by now," Delta speculated. "However, it is uncertain who will be the victors in that war, our creators or my people or whether the Colonials will be receptive to visitations from those who supports or aligns with their enemies."
+
+[I]Penny Polendina, it is important you cultivate a good relationship with the humans. What would your father say if you went to our home behind your father's back?"[/I]
+
+Penny Polendina turned to her father. "Papa, I have been talking to Mr. Cylon over the radio, and he recommended that if I want to visit his home, I'll have to get his permission."
+
+Director Polendina darted over to the other guests at the table before turning toward Polendina. He scratched his head. "I am sorry, I didn't expect to disclose my daughter's status so early," he disclosed. "It would be great if you don't reveal her status to the world before she's....ready. Penny? We need to talk." Then he looked to the guests once again. "Sorry, will be back soon."
+
+The father and daughter got out of their chair and walked to an undisclosed location.
+
+Delta turned his attention on the stunned scientists. "I know it isn't an obligation, but can you threes please keep it quiet? There's no need to call attention to what clearly is a child."
+
+They nodded their head.
