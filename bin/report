@@ -3,14 +3,12 @@
 today=reports/$(date +%Y-%m-%d).md
 yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 
-if ! [ -e $today ]
-then
-  echo "file not exists"
-fi
-
 total=$(wc -w for_science/chp*.md | tail -1)
 echo $total > $today
 
 count=($total)
-echo ${count[0]}
-echo $yesterday
+
+if [ -e $today ] & [ -e $yesterday ]
+then
+  echo "both file exists"
+fi
