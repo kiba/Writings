@@ -185,7 +185,7 @@ Finally, it printed the next signature for other one. Beings at the table looked
 
 [I]Penny Polendina, it is important you cultivate a good relationship with the humans. What would your father say if you went to our home behind your father's back?[/I]
 
-Penny Polendina turned to her father. "Papa, I have been talking to Mr. Cylon over the radio, and he recommended that if I want to visit his home, I'll have to get his permission."
+Penny Polendina turned to her father. "Papa, I have been talking to Mr. Cylon over the radio, and he recommended that if I want to visit his home, I'll have to get your permission."
 
 Director Polendina darted over to the other guests at the table before turning toward Polendina. He scratched his head. "I am sorry, I didn't expect to disclose my daughter's status so early," he said. "It would be great if you don't reveal her status to the world before she's....ready. Penny? We need to talk." Then he looked to the guests once again. "Sorry, will be back soon."
 
