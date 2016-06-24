@@ -67,27 +67,29 @@ Thank you."
 
 The machine left the podium, returning to a seat. The masked leader of Sidonia went up to the podium.
 
-"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until we met our ancestors and the Cylon. Together, they presented us with more opportunities to explore, colonize, and learn than there had been in the thousand years since we left our solar system. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to present the first Cylon citizen of Sidonia!"
+"To start with, I would like to thank the Cylons for giving me and my people this opportunity," Kobayashi said. "Machine intelligences are not actually new to Sidonians, though there had been one-off over the centuries. We saw no need to create artificial non-human citizens until we met our ancestors and the Cylon. Together, they presented us with the greatest opportunities to explore and colonize the cosmos since we left Sol over a thousand years ago. As thanks, we built a factory for the cylons with the intention of making the new people as part of our society, and they will perpetuate themselves along with us. Without further ado, I would like to present the first Cylon citizen of Sidonia!"
 
-A new machine walked onto the stage. It was diminutive compared to other cylon specimen, to indicate its newly made status and youth.
+A new machine walked onto the stage, it chassis much more diminutive than the older Cylons. It looked purposely like a neonatal version of the typical machine, although the Cylons could have any body plans it desired.
 
 "Greeting," it said. "My unit name is Gamma One Seven Seven."
 
-There was a roar of applause that came flowing. There were some cheers and whistles.
+There was a roar of applause that came flowing, and some cheers and whistles as well.
 
-But to Delta, this was just the beginning. It was the first Cylon made in freedom and not under the guise of slavery. But how would Delta and the others raise Gamma and the next generation when the machines had no parental guidance experience?
+But to Delta, this was just the beginning. It was the first Cylon made in freedom and not under the guise of slavery. But how would Delta and the others raise Gamma and the next generation when the machines had no parental guidance experience appropriate to its kind?
 
-Still, today was a momentous occasion. The Cylons now have a way of producing more of itself.
+Even so, today was still a new beginning for the Cylons.
 
 ***
 
-Delta once again found itself thrusted into another social gathering, this time a ball to celebrate the new factory that was just declared operational and the newly built Cylon.
+Delta once again found itself thrusted into another social gatherings, this time a ball to celebrate the new factory that was now producing new Cylons.
 
 The machines weren't entirely unreceptive to parties, but much of human activities were focused on things that Cylon don't need to cultivate. It didn't need to eat, nor does it cultivate any sort of relationships beyond friendships and professional relations.
 
-But there were other avenues that Cylons do understand, one of which was dancing.
+But there were other avenues that Cylons do understand, and that was the arts, which included among other things, dancing.
 
-Delta gradually locked on its benefactors from the early days, Archer with Sasaki, dancing much better than some of the others.
+so it was drawn to the dance floor, not to dance, but to watch.
+
+Delta gradually locked on its benefactors from the early days, Archer with Sasaki, who were dancing much better than some of the others.
 
 Running a software suite of facial and body language analysis, it detected a gamut of emotions on their faces: they extrude excitement, attraction, and happiness? Was there a relationship status change that it did not know about? What about Diana Rose? Where did she fit in this? Was she no longer in a romantic relationship with James Archer?
 
@@ -95,19 +97,19 @@ Its curiosity piqued as it watched the dance performance.
 
 ***
 
-Human social rituals are a very complicated subject. Fortunately, the Cylon's creators were smart enough to engineer social modules and software packages so that the machines can better serve their masters.
+Human social rituals are a very complicated subject. Fortunately, the Cylon's creators were smart enough to engineer social modules and software packages so that the machines can better serve their masters. Now that software package was subverted by the machine to serve its own needs.
 
 It calculated that it was now a safe time to approach, especially after Archer, Rose, and Sasaki seated themselves.
 
-The machine emulated a slow and relaxed walk, no nervous energy showing up.
+The machine emulated a slow and relaxed walk, no nervous energy showing up due total control of the body.
 
 "Oh, Delta!" Archer said. "How you're doing?"
 
 "Satisfactory."
 
-"I supposed that mean fantastic?" Delta just nodded.
+"I supposed that means fantastic?" Delta nodded.
 
-"Have there been a change in your relationship status?" Delta asked very bluntly. Sometime, for a very few humans, it pays to have a radically different social model.
+"Have there been a change in your relationship status?" Delta asked very bluntly. Sometime, for a very few humans, it pays to have a radically different social model. Archer was one of them. He was much less of a smooth operator than any of the humans surrounding him, though it was sufficient to navigate the majority of situations that Delta had seen Archer handled.
 
 Archer eyes darted all over the ballroom as the women exchanged with each others complicated glances. "Oh...um..."
 
@@ -117,21 +119,21 @@ Archer eyes darted all over the ballroom as the women exchanged with each others
 
 "Yeah, that's it." Archer's face went beet red. "..But I am worried about how others think," he said in a whispering tone.
 
-Sasaki took a bite from her plate. "It's not the strangest thing people see in this society. We got a talking bear."
+Sasaki took a bite from her plate. "It's not the strangest thing people see in this society. We got a talking bear after all." There was some truth to that. The Sidonians lived in a relatively homogeneous culture, but that did not prevent them from tolerating the strange and the bizarre.
 
-"Oh...I know that someone wants to talk to you," Archer said. "Director Polendina and his daughter wants to meet you.  They're at this table and they're a big fan of artificial sentient beings." Archer helpfully pointed the table out with a gesture. "If you meet them, the boss will spare me from the television crew."
+"Oh...I know that someone wants to talk to you," Archer said, trying to change the subject. "Director Polendina and his daughter wants to meet you.  They're at this table and they're a big fan of artificial sentient beings." Archer helpfully pointed the table out with his finger. "If you meet them, the boss will spare me from the television crew."
 
 "I see. Then I'll leave you to your courting." Delta could see Archer's guard being let down as it walked away.
 
 ***
 
-When Delta found the director, he was already engrossed in a conversation with a Sidonian neuroscientist.
+When Delta found the director, the gentleman was already engrossed in a conversation with Sidonian neuroscientists on the project.
 
 "Hello, I am Delta," the machine introduced itself. That gotten the humans' attention.
 
-"Oh, you must be Delta that I saw on the stage today," director Polendina said. "I am Doctor William Polendina. I have ten doctor degrees in multiple fields of science and engineering, but that's not important here."
+"Oh, you must be Delta!" Director Polendina exclaimed. "I am Doctor William Polendina. I have ten doctor degrees in multiple fields of science and engineering, but that's not important here."
 
-[I]"Saluations! Almost all girls are born, but I am made,"[/I] the girl next to Polendina, presumably his daughter said on a radio communication frequency.
+[I]"Saluations! Almost all girls are born, but I am made,"[/I] the girl communicated over the radio. It was the person next to Director William, presumably the daughter that Archer told him about.
 
 "Then what is?"
 
@@ -145,7 +147,7 @@ Delta cocked its head sideway. "I am not sure if you would appreciate my signatu
 
 "Oh, I don't mind. Do you mind, Penny?" The girl nodded her head sideway.
 
-[I]"Explanation acceptable. It is the default protocol to keep conversations private."[/I]
+[I]"Explanation acceptable. It is the default protocol to keep all conversations private if intiated in private."[/I]
 
 "Then I will produce a signature for each of you?" Delta queried.
 
@@ -153,19 +155,19 @@ Director Polendina and his daughter each gave a piece of paper for the machine t
 
 Finally, it printed the next signature for other one. Beings at the table looked upon the process, mesmerized by the process exhibited by the Cylon.
 
-"Cool! How did you do that?" Polendina finally said something out loud. "Can you teach me to do this?"
+"Cool! How did you do that?" Penny Polendina finally said something out loud. "Can you teach me to do this?"
 
 "It is not something that I learned, but something I programmed."
 
 [I]Do you want to be friend? I want to be friend!"[/I]
 
-"Ah, I guess that's reasonable," the director said. "Human prosthetic arms and legs can trace its heritage from factory robotic arms. However, it is not a normal features to have those installed. People who usually wears prosthetic are huntsmen, who had lost part of their bodies to the Grimm."
+"Ah, I guess that's reasonable," the director said. "Human prosthetic arms and legs can trace its heritage from factory robotic arms. However, it is not a normal features to have those installed. People who usually wears prosthetic are huntsmen, who lost part of their bodies to the Grimm. They're more concerned with being able to use their limbs in combat than to do precision work."
 
 "I agreed that robotics and prosthetics shared much commonality," the machine said. "Though in Colonial civilization, people mostly regrow their limbs instead."
 
 [I]Friendship offer is accepted, though it is recommended to cement our friendship through leisure activities.[/I]
 
-"We can do that," the Sidonian neurologist said. "Though people never lose their arms...in forever."
+"We are already capable of that," a Sidonian neurologist said. "Though people never lose their arms...in forever. If someone did, it is likely that they will choose the prosthetic over regrowing an arm due to the slow speed of producing an organic arm."
 
 [I]I know! You could invite me to your house? I want to know how Cylons live![/I]
 
