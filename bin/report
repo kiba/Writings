@@ -9,3 +9,6 @@ fi
 
 total=$(wc -w for_science/chp*.md | tail -1)
 echo $total > $today
+
+count=($total)
+echo ${count[0]}
