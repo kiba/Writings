@@ -8,7 +8,4 @@ echo $total > $today
 
 count=($total)
 
-if [ -e $today ] & [ -e $yesterday ]
-then
-  echo "both file exists"
-fi
+reports=$(ls reports/*.md)
