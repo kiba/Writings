@@ -9,3 +9,9 @@ echo $total > $today
 count=($total)
 
 reports=$(ls reports/*.md)
+
+for i in ${reports[@]}
+do
+  count=$(tail -1 ${i[0]})
+  echo $count
+done
