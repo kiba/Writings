@@ -10,9 +10,13 @@ count=($total)
 
 reports=$(ls reports/*.md)
 
+graph=""
 for i in ${reports[@]}
 do
   count=$(tail -1 ${i[0]})
   set -- $count
-  echo $1
+  graph+=" "
+  graph+=$1
 done
+
+spark $graph
