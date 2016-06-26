@@ -31,4 +31,10 @@ The hangar was cleared of personnels, and was opened to vacuum, and we were sequ
 
 "Three, two, one...ignition!" the launch conductor said.
 
-The engines in the back of the shuttle roared to life, and it took off.
+The engines in the back of the shuttle roared to life, and the clamps holding it were released. Then, it suddenly disappeared from the hangar's view.
+
+Obligatory cheers and applauses quickly followed.
+
+"Impressive isn't it?" Tanba said. "We simply updated the materials used in the Colonial design and radically simplified the design. By itself, the rocket engines are a very impressive piece of Colonial engineering, even better than our own ion thrusters. With gravity plates, it's simply a cakewalk."
+
+Sidonians spacecrafts were already capable of reaching orbit by itself.
