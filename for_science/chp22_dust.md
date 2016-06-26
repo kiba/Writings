@@ -37,4 +37,12 @@ Obligatory cheers and applauses quickly followed.
 
 "Impressive isn't it?" Tanba said. "We simply updated the materials used in the Colonial design and radically simplified the design. By itself, the rocket engines are a very impressive piece of Colonial engineering, even better than our own ion thrusters. With gravity plates, it's simply a cakewalk."
 
-Sidonians spacecrafts were already capable of reaching orbit by itself.
+"On the flipside, even with better performance, its fuel usage is awful," Sasaki commented. "Colonial civilization is apparently based on mining ready-made tylium deposits, but we have to synthesize our own, ditto for fire dusts, given their non-existence in this universe."
+
+"Then what is the point of building those engines?"
+
+"Our gardes could always use even better rocket engines to outmaneuver the gauna, but we simply don't have the resources to do anything better until now, but with trans-dimensional and FTL jump coming on the horizon, it can drastically improve its survivability."
+
+"But it required greater resource extraction?" I questioned.
+
+"It does require drastically larger logistic capacity," Tanba acknowledged. "There's no doubt about that. But you showed up, the entire equation change. If you have greater access to energy, then as long as there's a good reason as to why you should increase your energy consumption, you should go for it. Though we will always retain our value of energy efficiency in other areas. Our motto is to do more work with less, after all."
