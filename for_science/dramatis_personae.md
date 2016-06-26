@@ -19,7 +19,7 @@ With his engineering knowledge, he used it to reverse engineer the often convolu
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21, 22
 
 
 **Diana Rose** - First Appearance: Chapter 7. A mechanical engineer who became a live-in girlfriend after her discovery of Archer's secrets. She has blue eyes, and red hair tied up in a ponytail.
