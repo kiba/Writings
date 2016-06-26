@@ -11,17 +11,19 @@ count=($total)
 reports=$(ls reports/*.md)
 
 graph=""
-average=0
 size=0
+words=0
 
 for i in ${reports[@]}
 do
   ((++size))
+
   count=$(tail -1 ${i[0]})
   set -- $count
+  ((words += $1))
   graph+=" "
   graph+=$1
 done
 
 spark $graph
-echo $size
+echo `expr $words / $size`
