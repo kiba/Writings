@@ -23,6 +23,11 @@ do
   ((words += $1))
   graph+=" "
   graph+=$1
+
+  if (( size >= 1))
+  then
+    echo "beep"
+  fi
 done
 
 spark $graph
