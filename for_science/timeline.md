@@ -32,3 +32,4 @@ September 14, 2015 - Chapter 21 - The Cylons and Delta started their last proces
 September 21, 2015 - Chapter 21 - The first newly built Cylon, Gamma One Seven Seven is unveiled to the public.
 September 21, 2015 - Chapter 21 - Delta discovered a new 'relationship change' in Archer, Rose, and Sasaki.
 September 21, 2015 - Chapter 21 - Delta met Director Polendina and his daughter, Penny Polendina.
+September 25, 2015 - Chapter 22 - Archer and Sasaki watched a technology demonstration for a new rocket engine derived from Colonial technology using dust-infused tylium. 
