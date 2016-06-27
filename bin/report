@@ -13,19 +13,17 @@ reports=$(ls reports/*.md)
 graph=""
 size=0
 changed=0
+words=[]
 
 for i in ${reports[@]}
 do
   count=$(tail -1 ${i[0]})
   set -- $count
-  ((words += $1))
+
+  words+=count
+
   graph+=" "
   graph+=$1
-
-  if (( size >= 1))
-  then
-    echo "beep"
-  fi
 
   ((++size))
 done
