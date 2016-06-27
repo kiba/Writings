@@ -43,6 +43,23 @@ Obligatory cheers and applauses quickly followed.
 
 "Our gardes could always use even better rocket engines to outmaneuver the gauna, but we simply don't have the resources to do anything better until now, but with trans-dimensional and FTL jump coming on the horizon, it can drastically improve its survivability."
 
-"But it required greater resource extraction?" I questioned.
+"But it requires greater resource extraction?" I questioned.
 
-"It does require drastically larger logistic capacity," Tanba acknowledged. "There's no doubt about that. But you showed up, the entire equation change. If you have greater access to energy, then as long as there's a good reason as to why you should increase your energy consumption, you should go for it. Though we will always retain our value of energy efficiency in other areas. Our motto is to do more work with less, after all."
+"It does require a larger industry and more logistics," Tanba acknowledged. "There's no doubt about that. But you showed up, the entire equation change. If you have greater access to energy, then as long as there's a good reason as to why you should increase your energy consumption, you should go for it. Though we will always retain our value of energy efficiency in other areas. It served us well."
+
+"I see, but isn't the engines impractical? What am I going to use if we don't have tylium?"
+
+"There's another TDM prototype that used the regular higeus ion drive system."
+
+"Oh."
+
+I was looking forward to this development. Having the TDM appears inside the ship is a bit touchy. The TDM could be stranded if the ship decided to change course. It hadn't done so in century, given that it hadn't ignited its engines in a century, but that could change at any moment.
+
+***
+**Walter Schnee**
+**September 27, 2015**
+**Schnee Dust Company HQ, Atlas**
+
+Was Sidonia a threat to everything he worked for? Or an opportunity?
+
+It seemed that for now, their 
