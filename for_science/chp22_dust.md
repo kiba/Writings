@@ -60,6 +60,26 @@ I was looking forward to this development. Having the TDM appears inside the shi
 **September 27, 2015**
 **Schnee Dust Company HQ, Atlas**
 
-Was Sidonia a threat to everything he worked for? Or an opportunity?
+It wasn't alway like this. It was years ago that he didn't have any guards. The White Fang changed everything.
 
-It seemed that for now, their 
+The White Fang targeted his company's infrastructure, retail locations, and other assets. Not only that, they dared assassinate members of the board, even family friends and relatives.
+
+The attacks has abated recently, but paranoia was still in the air, and as long that was the case, security will always be high until the White Fang are no longer around. He wasn't going to let down his guard, given his earlier mistakes. Therefore, a pair of guards accompanied him, part of a large security contingent of fifty men.
+
+There was one location that a pair of guards aren't allowed to enter: his office. As soon as he made it to the door, the guards posted themselves to each side of the door.
+
+He made no acknowledgement of their service. There was far too many people working for him doing all a sort of tasks to have time to thank anybody. His time was far too valuable.
+
+As soon he entered his office, the atmosphere of paranoia changed. A new threat made itself the new focus, the foreigners.
+
+He remembered when they arrived. At the time, the only thing that the media wanted to talk about was first contact. He thought that there was a potential new market, but that was quickly dashed when the foreigners talked about something called the higeus particles and the higeus field, a theoretically unlimited source of energy.
+
+They were a threat to everything his grandfather and he built.
+
+The elder seated himself, started up his computer and logged into his email account.
+
+Memos and reports filled the transparent holographic monitor, downloading information from the cross continental transmit system.
+
+Something caught his eyes.
+
+A new report 
