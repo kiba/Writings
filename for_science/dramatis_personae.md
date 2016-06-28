@@ -120,6 +120,10 @@ Appearances: 22
 
 Appearances: 20
 
+**Shinsuke Tanba** - Chief Technology Officer of Toha Heavy Industries.
+
+Appearances: 22
+
 ##Machine Characters
 
 **Alpha Beta Two Charles** It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
