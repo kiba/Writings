@@ -112,6 +112,14 @@ Appearances: 19, 20
 
 Appearances: 20
 
+**Walter Schnee** - CEO of the Schnee Dust Company and father of Weiss Schnee.
+
+Appearances: 22
+
+**Violent Amethyst** - A researcher who works under Archer.
+
+Appearances: 20
+
 ##Machine Characters
 
 **Alpha Beta Two Charles** It went on long walk with James to discuss history and moral philosophy, and in particular slavery and freedom, the tactics used by Earth historical figures such as Martin Luther King Jr.
