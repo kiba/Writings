@@ -97,4 +97,19 @@ A bing, and there was a notification; a report from the intelligence director.
 After reading the report, he laid back into his chair, thinking through the implications.
 It appeared that he made a major miscalculation. The foreigners were already buying bigger quantity of dusts, though currently at insignificant percentage of the market. He imagined that they could expand to even bigger purchases. It was however an unquantified probability.
 
-There might be a market in one hundred thousand new customers after all.
+There might be a market of one hundred thousand new customers after all.
+
+***
+**Violent Amethyst**
+**September 29, 2015**
+
+Doctor Violent Amethyst was enjoying her food even more than usual today. It was lunchtime, and her boss was nowhere to be found, probably enjoying his girlfriends or charming the pants off of some unsuspecting victims or getting into another woman's pants or maybe faking his lack of social grace.
+
+What a taskmaster of a bastard, always questioning her works and her ideas, forcing her to redo part of her project over and over again, and fanatical about additional testing.
+Even his praises at the end gathered suspicion from her. In the end, she published too few papers for the last several months or so.
+
+Another coworker sat beside him, a new arrival to the lab, some hotshot named Red Flae, who specialized in dust chemistry.
+
+"Hi," he said. "I am Red Flae, the-"
+
+"World's best dust chemist. I know. I am Violent Amethyst."
