@@ -27,10 +27,10 @@ do
 
   if (($size > 1))
   then
-    echo ${words[$size]} - ${words[($size - 1)]}
+    ((changed+=$((${words[$size]} - ${words[($size - 1)]}))))
   fi
   ((++size))
 done
 
 spark $graph
-echo `expr $changed / $size`
+echo Average Rate of Change: `expr $changed / $size`
