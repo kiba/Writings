@@ -20,14 +20,14 @@ do
   count=$(tail -1 ${i[0]})
   set -- $count
 
-  words+=$1
+  words+=($1)
 
   graph+=" "
   graph+=$1
 
   if (($size > 1))
   then
-    echo ${words[$size]}
+    echo ${words[$size]} - ${words[($size - 1)]}
   fi
   ((++size))
 done
