@@ -72,14 +72,29 @@ He made no acknowledgement of their service. There was far too many people worki
 
 As soon he entered his office, the atmosphere of paranoia changed. A new threat made itself the new focus, the foreigners.
 
-He remembered when they arrived. At the time, the only thing that the media wanted to talk about was first contact. He thought that there was a potential new market, but that was quickly dashed when the foreigners talked about something called the higeus particles and the higeus field, a theoretically unlimited source of energy.
+He remembered when they arrived. At the time, the only thing that the media wanted to talk about was first contact. He thought that there was a potential new market, but that was quickly dashed when the foreigners talked about something called the higeus particles and the higeus field, a theoretically unlimited source of energy and a deep and wide knowledge of non-dust physical sciences.
 
-They were a threat to everything his grandfather and he built.
+They were a threat to everything his deceased father and he built.
 
-The elder seated himself, started up his computer and logged into his email account.
+The elder head of the Schnee seated himself, started up his computer and logged into his email account.
 
-Memos and reports filled the transparent holographic monitor, downloading information from the cross continental transmit system.
+The headings of memos and reports filled the transparent holographic monitor, the computer downloading information from the cross continental transmit system.
 
 Something caught his eyes.
 
-A new report 
+The demand of dust was predicted to grow next month, sending the price of dust upward.
+
+It didn't make sense to him. His company and his rivals were doing everything to obstruct the development of higeus energy generation sources, and to dissuade dust users from jumping the ship, or even using more efficient dust processes.
+
+Nothing was working, partly because it was all just a bunch of transparent attempts to dissuade customers from following in their best interests.
+
+So he dialed a bit back while he ordered his company's chemists to leverage new use of dusts, expecting to brace the coming storm.
+
+Yet there wasn't one.
+
+A bing, and there was a notification; a report from the intelligence director.
+
+After reading the report, he laid back into his chair, thinking through the implications.
+It appeared that he made a major miscalculation. The foreigners were already buying bigger quantity of dusts, though currently at insignificant percentage of the market. He imagined that they could expand to even bigger purchases. It was however an unquantified probability.
+
+There might be a market in one hundred thousand new customers after all.
