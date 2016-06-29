@@ -8,7 +8,7 @@ echo $total > $today
 
 count=($total)
 
-reports=$(ls reports/*.md)
+reports=$(ls -tr reports/*.md)
 
 graph=""
 size=0
