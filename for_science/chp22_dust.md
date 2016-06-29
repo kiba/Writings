@@ -103,10 +103,18 @@ There might be a market of one hundred thousand new customers after all.
 **Violent Amethyst**
 **September 29, 2015**
 
-Her boss wasn't in today, as there were some other businesses that he was attending to. Doctor Violent Amethyst was relieved. He wasn't a bad boss, really, even if he didn't seem himself lately, but he was a hard taskmaster, and a bit too skeptical for her taste. His criticism and review were always polite if harsh, cutting her down deeply.
+It was a quiet Tuesday evening that Doctor Amethyst finally put her finishing touch on a new cooling mechanism, stuffed full of dust.
+
+It's not all that complicated as a concept. In theory, it's a fluid cooling system, except not with water, but prominently with ice dust, combined with minute combination of other dust types. In reality, it's a lot harder than one would think.
+
+Ice dust created, well...ice. That isn't exactly what she needed in such a cooling system. She didn't want to create obstruction, but a very cool liquid to work with.
+
+That resulted in building a new machine and a new dust slurry.
+
+She supposed that her boss should see the one cubic meter square machine and the sixteen meter long tube in action, but the boss wasn't there.  
+
+In a way,
+
+ Doctor Violent Amethyst was relieved. He wasn't a bad boss, really, even if he didn't seem himself lately, but he was a hard taskmaster, and a bit too skeptical for her taste. His criticism and review were always polite if harsh, cutting her down deeply.
 
 Still, it did wonder for her reputation as a researcher. She published less papers, but those were good enough to be cited more often than for all her papers she did at her last stint. Even more, she started staying and working longer, becoming more dedicated to her job. It was all that bastard's fault.
-
-Oh why, oh why she didn't quit yet? Why not look for an easy gig like mindlessly working a cash register. Only of course, it would be the complete opposite of her situation. She would be bored rather than constantly challenged.
-
-So it was another workday that she was spending her precious free time on work related project relating to a dust reaction chamber. 
