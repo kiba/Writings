@@ -103,13 +103,10 @@ There might be a market of one hundred thousand new customers after all.
 **Violent Amethyst**
 **September 29, 2015**
 
-Doctor Violent Amethyst was enjoying her food even more than usual today. It was lunchtime, and her boss was nowhere to be found, probably enjoying his girlfriends or charming the pants off of some unsuspecting victims or getting into another woman's pants or maybe faking his lack of social grace.
+Her boss wasn't in today, as there were some other businesses that he was attending to. Doctor Violent Amethyst was relieved. He wasn't a bad boss, really, even if he didn't seem himself lately, but he was a hard taskmaster, and a bit too skeptical for her taste. His criticism and review were always polite if harsh, cutting her down deeply.
 
-What a taskmaster of a bastard, always questioning her works and her ideas, forcing her to redo part of her project over and over again, and fanatical about additional testing.
-Even his praises at the end gathered suspicion from her. In the end, she published too few papers for the last several months or so.
+Still, it did wonder for her reputation as a researcher. She published less papers, but those were good enough to be cited more often than for all her papers she did at her last stint. Even more, she started staying and working longer, becoming more dedicated to her job. It was all that bastard's fault.
 
-Another coworker sat beside him, a new arrival to the lab, some hotshot named Red Flae, who specialized in dust chemistry.
+Oh why, oh why she didn't quit yet? Why not look for an easy gig like mindlessly working a cash register. Only of course, it would be the complete opposite of her situation. She would be bored rather than constantly challenged.
 
-"Hi," he said. "I am Red Flae, the-"
-
-"World's best dust chemist. I know. I am Violent Amethyst."
+So it was another workday that she was spending her precious free time on work related project relating to a dust reaction chamber. 
