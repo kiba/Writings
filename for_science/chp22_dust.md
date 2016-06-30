@@ -103,18 +103,30 @@ There might be a market of one hundred thousand new customers after all.
 **Violent Amethyst**
 **September 29, 2015**
 
-It was a quiet Tuesday evening that Doctor Amethyst finally put her finishing touch on a new cooling mechanism, stuffed full of dust.
+For the past few weeks, Doctor Violent Amethyst was working on a new cooling system for heat exchange under the 'watchful eyes' of her boss, though that seemed unwarranted these day. She did not make anything resembling a 'tinkertech' device, which would earn the ire of her boss, despite his own prospentiy to create such devices.
 
-It's not all that complicated as a concept. In theory, it's a fluid cooling system, except not with water, but prominently with ice dust, combined with minute combination of other dust types. In reality, it's a lot harder than one would think.
+It did wonder for her reputation now that her papers can be understood by other researchers and engineers.
 
-Ice dust created, well...ice. That isn't exactly what she needed in such a cooling system. She didn't want to create obstruction, but a very cool liquid to work with.
+As far as the new cooling system goes, it's not an overly exotic concept, as it's only a mechanism to transfer heat via fluid. Watercooling was one such variation, but unfortunately not good enough for some applications.
 
-That resulted in building a new machine and a new dust slurry.
+The device itself was a bulky apparatus, about the size of a minifridge, connected to something that generated a lot of heat.
 
-She supposed that her boss should see the one cubic meter square machine and the sixteen meter long tube in action, but the boss wasn't there.  
+The system worked, sort of, if only for two minutes last time, until something broke. Her new ice dust slurry spontaneously created ice dust inside the machine, cogging up the device.
 
-In a way,
+So, her blender worked double time toward a new recipe. She understood how her formula worked, if quite unclear on the specific details. That wasn't important.
 
- Doctor Violent Amethyst was relieved. He wasn't a bad boss, really, even if he didn't seem himself lately, but he was a hard taskmaster, and a bit too skeptical for her taste. His criticism and review were always polite if harsh, cutting her down deeply.
+She wasn't looking to make it the best or perfect slurry, just a slurry that didn't break machine and achieve a performance benchmark.
 
-Still, it did wonder for her reputation as a researcher. She published less papers, but those were good enough to be cited more often than for all her papers she did at her last stint. Even more, she started staying and working longer, becoming more dedicated to her job. It was all that bastard's fault.
+The whirling stopped. The woman immediately poured the slurry into machine tank.
+
+"Test Thirty One, using new slurry formula seventy two," she said. Then she switched on both apparatuses.
+
+Data streamed in from the sensors.
+
+"So far so good...," she said at the five minute mark.
+
+If it worked, it would be quite revolutionary. She was assured by the Sidonians that she wouldn't be duplicating efforts. There wasn't a cooling solution anywhere in the database as good as her idea. It would improve anything from weapon barrel to computing performances.
+
+Seven minutes passed. Then, eight, nine, and ten...
+
+Satisfied, she switched off the machine.
