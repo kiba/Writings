@@ -127,6 +127,41 @@ Data streamed in from the sensors.
 
 If it worked, it would be quite revolutionary. She was assured by the Sidonians that she wouldn't be duplicating efforts. There wasn't a cooling solution anywhere in the database as good as her idea. It would improve anything from weapon barrel to computing performances.
 
-Seven minutes passed. Then, eight, nine, and ten...
+Seven minutes passed. Then, eight, nine, and finally, ten minutes.
 
 Satisfied, she switched off the machine.
+
+She supposed that she could go further to test the limit of the machine's reliability, but it was already past lunch.
+
+In that case, after lunch, she will think about how to proceed.
+
+***
+**September 30, 2015**
+
+The violent colored woman yawned as she muddled in her routine, fighting against a very strong desire to sleep.
+
+She broke out Pumpkin Pete's cereal featuring a young redhead huntress on the cover, poured milk into the cereal, and settled down on her table to eat, and switched on the television morning news.
+
+"-spontanoues protest this morning against rumored new inventions coming out of the project that the protestors will say destroy their jobs. Despite assurance from the director to the public, the number of protestors continued to rise."
+
+She almost spitted out her cereal in shock.
+
+The protestors were so much part of the background that she ignored it all in favor of her work and not getting fired. It didn't occur to her to think about her work in a larger context other than technological effects.
+
+"Oh lord, I will have come to work today," she whined.
+
+The boss was on vacation and wasn't slated to return to work until a month later. It was usually his job to attend to the public and allay whatever concerns the public might have. He was the PR machine of the organization.
+
+How was she supposed to deal with this?
+
+***
+
+The first thing she noticed was that there were a lot of policemen surrounding the research complex, and the protestors were set back more.
+
+Angry yells and slogan penetrated the street as she crossed the street to her workplace, trying to avoid any glance by the protestors.
+
+Finally, she arrived in the building and passed security.
+
+She sighed.  
+
+Since when did life became so complicated?
