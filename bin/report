@@ -4,8 +4,9 @@ directories=["for_science"]
 today=reports/$(date +%Y-%m-%d).md
 yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 
-for d in ${directories{@}
+for d in ${directories[@]}
 do
+  echo $d
   total=$(wc -w $d/chp*.md | tail -1)
   echo $total > $today
 done
