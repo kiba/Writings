@@ -142,7 +142,7 @@ The violent colored woman yawned as she muddled in her routine, fighting against
 
 She broke out Pumpkin Pete's cereal featuring a young redhead huntress on the cover, poured milk into the cereal, and settled down on her table to eat, and switched on the television morning news.
 
-"-spontanoues protest this morning against rumored new inventions coming out of the project that the protestors will say destroy their jobs. Despite assurance from the director to the public, the number of protestors continued to rise."
+"-spontaneously protest this morning against rumored new inventions coming out of the project that the protestors will say destroy their jobs. Despite assurance from the director to the public, the number of protestors continued to rise."
 
 She almost spitted out her cereal in shock.
 
@@ -165,3 +165,29 @@ Finally, she arrived in the building and passed security.
 She sighed.  
 
 Since when did life became so complicated?
+
+***
+
+"Hello?" she answered her scroll.
+
+"Is this Miss Amethyst?" a deep voice said.
+
+'Yes?'
+
+"I am representing the Schnee Dust Company, and we just heard of a new breakthrough in cooling solutions based on the use of ice dust. Is that true."
+
+"How-" She decided to not ask that question until later. "Yes, it's true, but it's very exper-"
+
+"Of course, it might not pan out as a practical industrial solution. They didn't say research and development is unpredictable for nothing. Nonetheless, The Schnee Dust company recognize your expertise and we would like to capitalize on that opportunity. We would like to sign you on a fifty thousand lien bonus and twice the matching salary of their research fellow, free healthcare, unlimited first class airline tickets, your own office and secretary and of course, autonomy and freedom to pursue any dust-related research topics you so desired."
+
+"Wow, umm...let me think about it."
+
+"Sure thing, when can we talk about our offer to you?"
+
+"Tomorrow."
+
+Why would she stay here, and why she didn't answer 'yes'? Although she learned a lot from that bastard of a boss, she desired freedom from him and the bureaucracy, and she very liked the idea of being able to pursue research in peace
+
+In spite of that, why Violent Amethyst was hesitating?
+
+"I am going to sleep on that," she decided for now.
