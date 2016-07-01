@@ -4,34 +4,37 @@
 **James Archer**
 **September 25, 2015**
 
-We stayed after the celebration to work on the next iteration of the trans-dimensional machine, this time actually building a working spacecraft.
+After the celebration of newly created Cylon, we stayed to catch up on development happening on Sidonia, mainly the next generation TDM design which will be spaceflight capable, but also other technological and scientific development as well.
 
-Diana wasn't available, she was working on her education. So only Sasaki and I were at the headquarter of her company, or more specifically at the hangar next to their headquarter.
+Diana wasn't here today, as she was taking an exam for her degree. That left Sasaki and I at the headquarter of Toha Heavy industry, her company, more specifically a hangar.
 
-It looked, well, like a hangar, and there was a shuttle design, the next generation TDM, this time fitted with experimental rocket engines, suitable for both atmospheric and vacuum flight. It was Colonial technology, though the fuel mixture was tylium infused with fire dust for improved thrust and specific impulse.
+The hangar, of course, looked like an industrial building. Catwalks and floors opened to an empty space on all sides, with gantries in the ceiling, and railings on the floor. There was several airlocks to space where the catwalks don't meet.
 
 "Archer-san? I heard all about you from Sasaki here," an engineer said. "My name is
 Shinsuke Tanba, and I run the company when Sasaki isn't around."
 
 "Ah. Well, Sasaki talked a lot about work a lot, so I know of you as well," I responded. "I am looking forward to working with you as well."
 
-That's it. No mention of the new relationship that was probably known by half of the crew here. In retrospect, there was no visible reactions from the Sidonians, even though polyamorous wasn't exactly the most common type of relationship. I seared on their net, and there was little in the way of gossips.
+If he knew of our new-found relationship, he didn't show it, or he didn't care. Polyamorous relationships were unusual, but it didn't warranted any social reactions, or so I been told. Still, my anxiety wasn't going to exactly go away.
 
-My fear was unfounded, but it doesn't mean that I won't continually worry about it. Isn't that kind of relationship reserved for harem manga? I wasn't exactly the big hero, or the most important person across the multiverse, and I am certainly not gaining powers like a shounen protagonist. My life was more subdued. Yet, I somehow ended up achieving a fantasy of mine. Though said fantasy wasn't anything effortless. I wanted to abort but I don't want to.
+It's certainly isn't anything like a harem anime, that's for sure.
 
-"HEY!" Sasaki said, jolting me out of my thought process. "What are you thinking about."
+"HEY!" Sasaki said, jolting me out of my thought process. "What are you thinking about?"
 
 "Nothing." My face went slightly red.
 
-"Huh-uh." I could feel the sarcasm that was dripping off of her. She knew that I was lying. "We're getting ready to launch the TDM."
+"Huh-uh." I could feel the sarcasm that was dripping off of her. She knew that I was lying. "We're getting ready to test the engine."
+
+A small engine rolled into view. Instantly, I knew right away what it was. For anyone even slightly familiar with rocketry, it's a rocket engine.
 
 ***
 
-The hangar was cleared of personnels, and was opened to vacuum, and we were sequestered into a control room stuffed full of people. We were watching the shuttle on screen, which remarkably resembled a dreamchaser. The Sidonians aren't incapable of imagination, but why reinvent the wheel when they got something just as good if not better than any of them could come up?
+The hangar was cleared of any personnels, and we were sequestered into a control room where employees monitored the testing. I was simply a bystander in this whole situation, but I could feel the excitement in the room as the place went through a final last check.
 
-"Three, two, one...ignition!" the launch conductor said.
+"Three, two, one...ignition!" an employee announced.
 
-The engines in the back of the shuttle roared to life, and the clamps holding it were released. Then, it suddenly disappeared from the hangar's view.
+The rocket engine roared to life, struggling to free itself from the clamps holding on to it.
+
 
 Obligatory cheers and applauses quickly followed.
 
@@ -103,7 +106,7 @@ There might be a market of one hundred thousand new customers after all.
 **Violent Amethyst**
 **September 29, 2015**
 
-For the past few weeks, Doctor Violent Amethyst was working on a new cooling system for heat exchange under the 'watchful eyes' of her boss, though that seemed unwarranted these day. She did not make anything resembling a 'tinkertech' device, which would earn the ire of her boss, despite his own prospentiy to create such devices.
+For the past few weeks, Doctor Violent Amethyst was working on a new cooling system for heat exchange under the 'watchful eyes' of her boss, though that seemed unwarranted these day. She did not make anything resembling a 'tinkertech' device, which would earn the ire of her boss, despite his own propensity to create such devices.
 
 It did wonder for her reputation now that her papers can be understood by other researchers and engineers.
 
