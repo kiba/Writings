@@ -118,7 +118,7 @@ Appearances: 22
 
 **Violent Amethyst** - A researcher who works under Archer.
 
-Appearances: 20
+Appearances: 20, 22
 
 **Shinsuke Tanba** - Chief Technology Officer of Toha Heavy Industries.
 
