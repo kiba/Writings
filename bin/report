@@ -4,6 +4,12 @@ directories="for_science"
 today=reports/$(date +%Y-%m-%d).md
 yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 
+generateDir () {
+  echo $1
+}
+
+generateDir "test"
+
 for d in ${directories[@]}
 do
   echo $d
