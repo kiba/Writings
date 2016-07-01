@@ -11,8 +11,6 @@ do
   echo $total > $today
 done
 
-count=($total)
-
 reports=$(ls -tr reports/*.md)
 
 graph=""
