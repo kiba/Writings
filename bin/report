@@ -1,8 +1,8 @@
 #!/bin/bash
 
 directories="for_science"
-today=reports/$(date +%Y-%m-%d).md
-yesterday=reports/$(date -v-1d +%Y-%m-%d).md
+#today=reports/$(date +%Y-%m-%d).md
+#yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 
 generateDir () {
   dir="reports/$1"
@@ -12,9 +12,15 @@ generateDir () {
   fi
 }
 
+generateReports () {
+  total=$(wc -w $1/chp*.md | tail -1)
+  echo $total > "reports/$1/$(date +%Y-%m-%d.md)"
+}
+
 for d in ${directories[@]}
 do
   generateDir $d
+  generateReports $d
 done
 #
 # for d in ${directories[@]}
