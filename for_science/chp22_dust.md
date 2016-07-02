@@ -29,20 +29,21 @@ A small engine rolled into view. Instantly, I knew right away what it was. For a
 
 ***
 
-The hangar was cleared of any personnels, and we were sequestered into a control room where employees monitored the testing. I was simply a bystander in this whole situation, but I could feel the excitement in the room as the place went through a final last check.
+The hangar was cleared of all personnels, and we were sequestered into a control room where employees monitored the testing. I was simply a bystander in this whole situation, but I could feel the excitement in the room as the place went through a final last check.
 
 "Three, two, one...ignition!" an employee announced.
 
-The rocket engine roared to life, struggling to free itself from the clamps holding on to it.
+The rocket engine roared to life, struggling to free itself from the grasp of the clamps.
 
+Indistinct cheers erupted once the rocket fell silent, signaling success.
 
-Obligatory cheers and applauses quickly followed.
+"Impressive isn't it?" Tanba said. "We simply updated the materials used in the Colonial design and radically simplified the design. By itself, the rocket engines are a very impressive piece of Colonial engineering, even better than our own ion thrusters. With gravity plates, it's an absolute cakewalk."
 
-"Impressive isn't it?" Tanba said. "We simply updated the materials used in the Colonial design and radically simplified the design. By itself, the rocket engines are a very impressive piece of Colonial engineering, even better than our own ion thrusters. With gravity plates, it's simply a cakewalk."
+"It can escape the tyranny of gravity much easier than ours, but its relative specific impulse is terrible," Sasaki pointed out. "It's not great for long duration space journey, but their FTL drive will negate any need for it. Colonial civilization is based on mining ready-made tylium deposits, but we'll have to synthesize our own, ditto for the fire dust we mixed into it, until we can start importing the later."
 
-"On the flipside, even with better performance, its fuel usage is awful," Sasaki commented. "Colonial civilization is apparently based on mining ready-made tylium deposits, but we have to synthesize our own, ditto for fire dusts, given their non-existence in this universe."
+"I supposed it would not be the kind of engines that you're going to use on a daily basis?" I asked.
 
-"Then what is the point of building those engines?"
+"The efficiency and recycling ethos of Sidonian society still is very strong," Tanba acknowledged. "But there are specific applications where Colonial rocket engines could make a difference, such as our gardes, which needed them for maneuverability to improve the already atrocious attrition rate. Improving survivability is a much bigger priority then making energy efficient war machines, but we were always constrained by logistics. Deploying more gardes in the field increased survivability, but it uses up more higeus supply."
 
 "Our gardes could always use even better rocket engines to outmaneuver the gauna, but we simply don't have the resources to do anything better until now, but with trans-dimensional and FTL jump coming on the horizon, it can drastically improve its survivability."
 
