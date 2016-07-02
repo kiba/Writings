@@ -8,7 +8,7 @@ generateDir () {
   if [ -d "reports/$1" ]; then
     echo "success"
   else
-    echo "failure"
+    mkdir "reports/$1"
   fi
 }
 
