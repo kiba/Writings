@@ -12,7 +12,10 @@ generateDir () {
   fi
 }
 
-generateDir "test"
+for d in ${directories[@]}
+do
+  generateDir $d
+done
 #
 # for d in ${directories[@]}
 # do
