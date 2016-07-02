@@ -13,38 +13,38 @@ generateDir () {
 }
 
 generateDir "test"
-
-for d in ${directories[@]}
-do
-  total=$(wc -w $d/chp*.md | tail -1)
-  echo $total > $today
-done
-
-reports=$(ls -tr reports/*.md)
-
-graph=""
-size=0
-total_changed=0
-words=[]
-
-for i in ${reports[@]}
-do
-  count=$(tail -1 ${i[0]})
-  set -- $count
-
-  words+=($1)
-
-  graph+=" "
-  graph+=$1
-
-  if (($size > 1))
-  then
-    changes=$((${words[$size]} - ${words[($size - 1)]}))
-    ((total_changed+=$changes))
-  fi
-  ((++size))
-done
-
-spark $graph
-echo Average Rate of Change: `expr $total_changed / $size`
-echo Today\'s changes: $changes
+#
+# for d in ${directories[@]}
+# do
+#   total=$(wc -w $d/chp*.md | tail -1)
+#   echo $total > $today
+# done
+#
+# reports=$(ls -tr reports/*.md)
+#
+# graph=""
+# size=0
+# total_changed=0
+# words=[]
+#
+# for i in ${reports[@]}
+# do
+#   count=$(tail -1 ${i[0]})
+#   set -- $count
+#
+#   words+=($1)
+#
+#   graph+=" "
+#   graph+=$1
+#
+#   if (($size > 1))
+#   then
+#     changes=$((${words[$size]} - ${words[($size - 1)]}))
+#     ((total_changed+=$changes))
+#   fi
+#   ((++size))
+# done
+#
+# spark $graph
+# echo Average Rate of Change: `expr $total_changed / $size`
+# echo Today\'s changes: $changes
