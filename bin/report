@@ -5,9 +5,9 @@ today=reports/$(date +%Y-%m-%d).md
 yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 
 generateDir () {
-  if [ -d "reports/$1" ]; then
-    echo "success"
-  else
+  dir="reports/$1"
+  if [ ! -d $dir ]; then
+    echo "No such directory $dir exists. Mkdir $dir."
     mkdir "reports/$1"
   fi
 }
