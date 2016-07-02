@@ -7,6 +7,8 @@ yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 generateDir () {
   if [ -d "reports/$1" ]; then
     echo "success"
+  else
+    echo "failure"
   fi
 }
 
