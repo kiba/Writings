@@ -101,72 +101,73 @@ The question wasn't really should he do it, but how much at what expense.
 A notification pinged; a report from the intelligence director.
 
 After reading the report, he laid back into his chair, thinking through the implications.
-It appeared that he made a major miscalculation. The foreigners were already buying bigger quantity of dusts, though currently at insignificant percentage of the market. He imagined that they could expand to even bigger purchases. It was however an unquantified probability.
+It appeared that he made a major miscalculation. The foreigners were already buying bigger quantity of dusts, though currently at insignificant percentage of the market. He imagined that they could expand to even bigger purchases because they found new uses for dust?
 
-There might be a market of one hundred thousand new customers after all.
+If that was the case, then he might have nothing to fear from the foreigners at all.
 
 ***
 **Violent Amethyst**
 **September 29, 2015**
 
-For the past few weeks, Doctor Violent Amethyst was working on a new cooling system for heat exchange under the 'watchful eyes' of her boss, though that seemed unwarranted these day. She did not make anything resembling a 'tinkertech' device, which would earn the ire of her boss, despite his own propensity to create such devices.
+For the past few weeks, Doctor Violent Amethyst was working on a new cooling system for heat exchange under the 'watchful eyes' of her boss, though that seemed unwarranted these day. She did not make anything resembling a 'tinkertech' device, which would earn the ire of her boss, despite his own propensity to create these same devices. Of course, the major difference was that it was his semblance. She had no such excuses.
 
-It did wonder for her reputation now that her papers can be understood by other researchers and engineers.
+Still, the harsh and blunt criticism did wonder for her reputation,, now that her papers can be understood by other researchers and engineers.
 
-As far as the new cooling system goes, it's not an overly exotic concept, as it's only a mechanism to transfer heat via fluid. Watercooling was one such variation, but unfortunately not good enough for some applications.
+The new cooling system was not overly exotic in concept. It worked pretty much like watercooling, except for a higher performance envelope for cooling objects.
 
-The device itself was a bulky apparatus, about the size of a minifridge, connected to something that generated a lot of heat.
+The device itself was a bulky apparatus, about the size of a minifridge, connected to another apparatus that can generate a lot of heat in a very short time period.
 
-The system worked, sort of, if only for two minutes last time, until something broke. Her new ice dust slurry spontaneously created ice dust inside the machine, cogging up the device.
+The system worked, sort of, if only for two minutes last time. It may worked like watercooling, but in practice, it was slightly more complicated than that. That resulted in all sort of breakage, forcing her to diagnose and fix before retesting it again. Last time, her new ice dust slurry spontaneously created ice dust inside the machine, cogging up the device, causing all sort of side effects, resulting in overheating and not enough cooling.
 
-So, her blender worked double time toward a new recipe. She understood how her formula worked, if quite unclear on the specific details. That wasn't important.
+So, her blender worked double time toward a new recipe. She understood how her formula worked, if quite unclear on the specific details. That wasn't important right now, only that she knew the direction where to take her new recipe.
 
-She wasn't looking to make it the best or perfect slurry, just a slurry that didn't break machine and achieve a performance benchmark.
+She wasn't looking to make it the best or perfect slurry, just a slurry that didn't break the machine and achieve the performance benchmark.
 
-The whirling stopped. The woman immediately poured the slurry into machine tank.
+The whirling stopped. The woman immediately poured the newly mixed slurry into the machine tank.
 
 "Test Thirty One, using new slurry formula seventy two," she said. Then she switched on both apparatuses.
 
-Data streamed in from the sensors.
+Data streamed in from the sensors to a monitor nearby.
+
+The cooling system chugged along with the low whine of the heating element.
 
 "So far so good...," she said at the five minute mark.
 
-If it worked, it would be quite revolutionary. She was assured by the Sidonians that she wouldn't be duplicating efforts. There wasn't a cooling solution anywhere in the database as good as her idea. It would improve anything from weapon barrel to computing performances.
+If it worked, it would be quite revolutionary. She was assured by the Sidonians that she wouldn't be wasting her time working on something that would be inferior to any solution that they have in their database.
 
 Seven minutes passed. Then, eight, nine, and finally, ten minutes.
 
-Satisfied, she switched off the machine.
+Satisfied, she switched off the machine. A smile was plastered on her face.
 
-She supposed that she could go further to test the limit of the machine's reliability, but it was already past lunch.
+She supposed that she could go further to test the limit of the machine's reliability, but it was already past lunch. Time to get lunch.
 
-In that case, after lunch, she will think about how to proceed.
 
 ***
 **September 30, 2015**
 
-The violent colored woman yawned as she muddled in her routine, fighting against a very strong desire to sleep.
+The violent colored woman yawned as she muddled in her routine, fighting against a very strong desire to go back to sleep, a consequence of working too late in the evening.
 
-She broke out Pumpkin Pete's cereal featuring a young redhead huntress on the cover, poured milk into the cereal, and settled down on her table to eat, and switched on the television morning news.
+She broke out Pumpkin Pete's cereal featuring a young redhead huntress on the cover, poured milk into the cereal bowl, settled down on her table to eat, and switched on the television morning news.
 
-"-spontaneously protest this morning against rumored new inventions coming out of the project that the protestors will say destroy their jobs. Despite assurance from the director to the public, the number of protestors continued to rise."
+"-spontaneously protest this morning against rumored new inventions coming out of the project that the protestors will say destroy their jobs. Despite assurance from the director to the public, the number of protestors continued to rise..."
 
 She almost spitted out her cereal in shock.
 
-The protestors were so much part of the background that she ignored it all in favor of her work and not getting fired. It didn't occur to her to think about her work in a larger context other than technological effects.
+The protestors were so much part of the background that she ignored it all in favor of her work and not getting fired. It didn't occur to her to think about her work in a larger context other than expanding the technological possibility.
 
-"Oh lord, I will have come to work today," she whined.
+"Oh no, I will have come to work today," she whined.
 
-The boss was on vacation and wasn't slated to return to work until a month later. It was usually his job to attend to the public and allay whatever concerns the public might have. He was the PR machine of the organization.
+Normally, the boss usually juggled public relation duties part time to defend the organization and raises its profile. However, the boss was still on vacation.
 
 How was she supposed to deal with this?
 
 ***
 
-The first thing she noticed was that there were a lot of policemen surrounding the research complex, and the protestors were set back more.
+It didn't take a genuis to notice that a lot more policement were present than the several weeks before. The protestors were also set back more than usual, behind police lines.
 
-Angry yells and slogan penetrated the street as she crossed the street to her workplace, trying to avoid any glance by the protestors.
+Angry yells and slogans still penetrated the street as she crossed the street to her workplace, trying to avoid any glances from the protestors.
 
-Finally, she arrived in the building and passed security.
+Finally, she arrived in the building's atrium. She presented her card and her scroll to security for verification, before finally passing through.
 
 She sighed.  
 
@@ -176,15 +177,15 @@ Since when did life became so complicated?
 
 "Hello?" she answered her scroll.
 
-"Is this Miss Amethyst?" a deep voice said.
+"Is this Miss Amethyst?" an unfamiliar male voice asked.
 
-'Yes?'
+"Yes?"
 
-"I am representing the Schnee Dust Company, and we just heard of a new breakthrough in cooling solutions based on the use of ice dust. Is that true."
+"I am representing the Schnee Dust Company, and we just heard of a new breakthrough in cooling solutions based on the use of ice dust. Is this true?"
 
 "How-" She decided to not ask that question until later. "Yes, it's true, but it's very exper-"
 
-"Of course, it might not pan out as a practical industrial solution. They didn't say research and development is unpredictable for nothing. Nonetheless, The Schnee Dust company recognize your expertise and we would like to capitalize on that opportunity. We would like to sign you on a fifty thousand lien bonus and twice the matching salary of their research fellow, free healthcare, unlimited first class airline tickets, your own office and secretary and of course, autonomy and freedom to pursue any dust-related research topics you so desired."
+"Of course, it might not pan out as a practical industrial solution. In our eperience, R&D is unpredictable. Nonetheless, The Schnee Dust company recognize your expertise and we would like to capitalize on that opportunity. We would like to offer you a fifty thousand lien bonus for signing on, twice the matching salary of their research fellow, free healthcare, unlimited first class airline tickets, your own office and secretary and of course, autonomy and freedom to pursue any dust-related research topics you so desire."
 
 "Wow, umm...let me think about it."
 
@@ -192,7 +193,7 @@ Since when did life became so complicated?
 
 "Tomorrow."
 
-Why would she stay here, and why she didn't answer 'yes'? Although she learned a lot from that bastard of a boss, she desired freedom from him and the bureaucracy, and she very liked the idea of being able to pursue research in peace
+Why would she stay here, and why she didn't answer 'yes'? Although she learned a lot from that bastard of a boss, she desired freedom from him and the bureaucracy, and she very liked the idea of being able to pursue research in peace.
 
 In spite of that, why Violent Amethyst was hesitating?
 
