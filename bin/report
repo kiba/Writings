@@ -12,7 +12,7 @@ generateDir () {
   fi
 }
 
-generateReports () {
+generateReport () {
   total=$(wc -w $1/chp*.md | tail -1)
   echo $total > "reports/$1/$(date +%Y-%m-%d.md)"
 }
@@ -20,7 +20,7 @@ generateReports () {
 for d in ${directories[@]}
 do
   generateDir $d
-  generateReports $d
+  generateReport $d
 done
 #
 # for d in ${directories[@]}
