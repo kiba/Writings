@@ -112,11 +112,11 @@ Appearances: 19, 20
 
 Appearances: 20
 
-**Walter Schnee** - CEO of the Schnee Dust Company and father of Weiss Schnee.
+**Walter Schnee** - CEO of the Schnee Dust Company and father of Weiss Schnee. He is paranoid about the new 'foreigners' who he thought might threatened his business. At the same time, he's opportunistic enough to recognize a new market if that present itself.
 
 Appearances: 22
 
-**Violent Amethyst** - A researcher who works under Archer.
+**Violent Amethyst** - A researcher who works under Archer. Her project in chapter twenty-two is a new cooling solution based on the use of a ice dust slurry designed for extreme cooling.
 
 Appearances: 20, 22
 
