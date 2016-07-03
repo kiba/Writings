@@ -185,7 +185,7 @@ Since when did life became so complicated?
 
 "How-" She decided to not ask that question until later. "Yes, it's true, but it's very exper-"
 
-"Of course, it might not pan out as a practical industrial solution. In our eperience, R&D is unpredictable. Nonetheless, The Schnee Dust company recognize your expertise and we would like to capitalize on that opportunity. We would like to offer you a fifty thousand lien bonus for signing on, twice the matching salary of their research fellow, free healthcare, unlimited first class airline tickets, your own office and secretary and of course, autonomy and freedom to pursue any dust-related research topics you so desire."
+"Of course, it might not pan out as a practical industrial solution. In our experience, R&D is unpredictable. Nonetheless, The Schnee Dust company recognize your expertise and we would like to capitalize on that opportunity. We would like to offer you a fifty thousand lien bonus for signing on, twice the matching salary of their research fellow, free healthcare, unlimited first class airline tickets, your own office and secretary and of course, autonomy and freedom to pursue any dust-related research topics you so desire."
 
 "Wow, umm...let me think about it."
 
