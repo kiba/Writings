@@ -39,34 +39,36 @@ Indistinct cheers erupted once the rocket fell silent, signaling success.
 
 "Impressive isn't it?" Tanba said. "We simply updated the materials used in the Colonial design and radically simplified the design. By itself, the rocket engines are a very impressive piece of Colonial engineering, even better than our own ion thrusters. With gravity plates, it's an absolute cakewalk."
 
-"It can escape the tyranny of gravity much easier than ours, but its relative specific impulse is terrible," Sasaki pointed out. "It's not great for long duration space journey, but their FTL drive will negate any need for it. Colonial civilization is based on mining ready-made tylium deposits, but we'll have to synthesize our own, ditto for the fire dust we mixed into it, until we can start importing the later."
+"It can overcome the tyranny of the rocket equation much easier than ours, but it's relative specific impulse is terrible," Sasaki pointed out. "It's not great for long duration space journey, but their FTL drive will negate any need for it. Colonial civilization is based on mining ready-made tylium deposits, but we'll have to synthesize our own, ditto for the fire dust we mixed into it, until we can start importing the later."
 
 "I supposed it would not be the kind of engines that you're going to use on a daily basis?" I asked.
 
-"The efficiency and recycling ethos of Sidonian society still is very strong," Tanba acknowledged. "But there are specific applications where Colonial rocket engines could make a difference, such as our gardes, which needed them for maneuverability to improve the already atrocious attrition rate. Improving survivability is a much bigger priority then making energy efficient war machines, but we were always constrained by logistics. Deploying more gardes in the field increased survivability, but it uses up more higeus supply."
+"The efficiency and recycling ethos of Sidonian society still is very strong," Tanba acknowledged. "But there are specific applications where Colonial rocket engines could make a difference, such as our gardes, which needed them for maneuverability to improve the already atrocious attrition rate. Improving survivability is a much bigger priority then making energy efficient war machines, but we were always constrained by logistics, which should be less of a problem over the next few years given access to FTL and trans-dimensional drives."
 
-"Our gardes could always use even better rocket engines to outmaneuver the gauna, but we simply don't have the resources to do anything better until now, but with trans-dimensional and FTL jump coming on the horizon, it can drastically improve its survivability."
+"But then your constraint will be manpower to man all the factories and processing facilities?"
 
-"But it requires greater resource extraction?" I questioned.
+"We'll deal with the constraint when we cross the bridge."
 
-"It does require a larger industry and more logistics," Tanba acknowledged. "There's no doubt about that. But you showed up, the entire equation change. If you have greater access to energy, then as long as there's a good reason as to why you should increase your energy consumption, you should go for it. Though we will always retain our value of energy efficiency in other areas. It served us well."
+"So, I won't see the engines in the next generation TDM?"
 
-"I see, but isn't the engines impractical? What am I going to use if we don't have tylium?"
+"We don't have the infrastructure in place," Sasaki noted. "Ion engines are all what we will be using in the foreseeable future. Even if that were the case Tylium-dust sublight engines will still be restricted to military vessels until the economy grows."
 
-"There's another TDM prototype that used the regular higeus ion drive system."
+"Bumper."
 
-"Oh."
+I could already see the possibility for tylium-dust engines and a space-borne capable TDM. We could travel back to the Colonials again.
 
-I was looking forward to this development. Having the TDM appears inside the ship is a bit touchy. The TDM could be stranded if the ship decided to change course. It hadn't done so in century, given that it hadn't ignited its engines in a century, but that could change at any moment.
+Alas, the Sidonians already have too much on their plate to try a first contact with a civilization that's possibility at war.
 
 ***
 **Walter Schnee**
 **September 27, 2015**
 **Schnee Dust Company HQ, Atlas**
 
-It wasn't alway like this. It was years ago that he didn't have any guards. The White Fang changed everything.
+It wasn't alway like this. It had been years ago that Walter Schnee would be able to go anywhere as he pleased, without guards hovering nearby. The White Fang changed everything.
 
-The White Fang targeted his company's infrastructure, retail locations, and other assets. Not only that, they dared assassinate members of the board, even family friends and relatives.
+The terrorist organization targeted his company's refining facilities, warehouses, retail locations, and other company infrastructure. They not only attacked the company's properties, but also the people who worked for the company, at all the level of the business' hierarchy. Members of the board, including family members were targets of assassination and bombing campaigns.
+
+There were no hostages, ransoms, not even dialogue. The only real response as far as Schnee can see, was to double down and not surrender an inch.
 
 The attacks has abated recently, but paranoia was still in the air, and as long that was the case, security will always be high until the White Fang are no longer around. He wasn't going to let down his guard, given his earlier mistakes. Therefore, a pair of guards accompanied him, part of a large security contingent of fifty men.
 
