@@ -68,37 +68,37 @@ It wasn't alway like this. It had been years ago that Walter Schnee would be abl
 
 The terrorist organization targeted his company's refining facilities, warehouses, retail locations, and other company infrastructure. They not only attacked the company's properties, but also the people who worked for the company, at all the level of the business' hierarchy. Members of the board, including family members were targets of assassination and bombing campaigns.
 
-There were no hostages, ransoms, not even dialogue. The only real response as far as Schnee can see, was to double down and not surrender an inch.
+There were no hostages, ransoms, or even dialogue. If they wanted to terrorize his company, then they're wrong. The only response Schnee and his company can give, is to double down and not surrender.
 
-The attacks has abated recently, but paranoia was still in the air, and as long that was the case, security will always be high until the White Fang are no longer around. He wasn't going to let down his guard, given his earlier mistakes. Therefore, a pair of guards accompanied him, part of a large security contingent of fifty men.
+Although the attacks has abated recently, the paranoia still permeated the air. As long as the White Fang still exists, he wasn't going to let down his guard, given that he had paid it too many times in the past. As such, he hired only human security professionals, and there was never less than a fifty guard strong contingent just to protect the board and his family, and at least a pair of guards that accompany him by his side to wherever he went.
 
-There was one location that a pair of guards aren't allowed to enter: his office. As soon as he made it to the door, the guards posted themselves to each side of the door.
+The only exception that security wasn't allowed in: his office. As soon as he made it, the guards posted themselves by the side of the door.
 
-He made no acknowledgement of their service. There was far too many people working for him doing all a sort of tasks to have time to thank anybody. His time was far too valuable.
+He made no acknowledgement of their service. There were far too many people who helped in his daily tasks small or large. His time was too valuable to say 'thanks' to every single individuals.
 
 As soon he entered his office, the atmosphere of paranoia changed. A new threat made itself the new focus, the foreigners.
 
-He remembered when they arrived. At the time, the only thing that the media wanted to talk about was first contact. He thought that there was a potential new market, but that was quickly dashed when the foreigners talked about something called the higeus particles and the higeus field, a theoretically unlimited source of energy and a deep and wide knowledge of non-dust physical sciences.
+He remembered when they arrived. At the time, the only thing that the media wanted to talk about was first contact. He thought that there might be a new potential market for his products, but that was quickly dashed when the foreigners talked about their 'Higeus' particles, a source of unlimited renewable energy, and their knowledge of engineer and science without dust that went beyond Remnant's technological prowness.
 
-They were a threat to everything his deceased father and he built.
+They probably have only peaceful intention, but they were a threat to the business that the Schnee family had built over the successive two generations.
 
 The elder head of the Schnee seated himself, started up his computer and logged into his email account.
 
 The headings of memos and reports filled the transparent holographic monitor, the computer downloading information from the cross continental transmit system.
 
-Something caught his eyes.
+A message caught his eyes.
 
-The demand of dust was predicted to grow next month, sending the price of dust upward.
+The demand of dusts was growing every month with no time of stopping, and projection predicted healthy demand, sending the price of dust slowly upward.
 
-It didn't make sense to him. His company and his rivals were doing everything to obstruct the development of higeus energy generation sources, and to dissuade dust users from jumping the ship, or even using more efficient dust processes.
+It didn't make sense to him. His company and his rivals were doing everything to obstruct the development of Higeus energy generation sources, and to dissuade dust users from jumping the ship, or even using more efficient dust processes pioneered by foreigners.
 
-Nothing was working, partly because it was all just a bunch of transparent attempts to dissuade customers from following in their best interests.
+Nothing was working in the slightest, or failed to reverse the flow to where it was in the past.
 
-So he dialed a bit back while he ordered his company's chemists to leverage new use of dusts, expecting to brace the coming storm.
+He thought about hiring more chemists and increasing the R&D budget to create new demand for dusts to try to stem the coming tide, dipping through the treasury and maybe even taking money from other departments.
 
-Yet there wasn't one.
+The question wasn't really should he do it, but how much at what expense.
 
-A bing, and there was a notification; a report from the intelligence director.
+A notification pinged; a report from the intelligence director.
 
 After reading the report, he laid back into his chair, thinking through the implications.
 It appeared that he made a major miscalculation. The foreigners were already buying bigger quantity of dusts, though currently at insignificant percentage of the market. He imagined that they could expand to even bigger purchases. It was however an unquantified probability.
