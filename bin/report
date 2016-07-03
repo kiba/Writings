@@ -1,8 +1,6 @@
 #!/bin/bash
 
 directories="for_science"
-#today=reports/$(date +%Y-%m-%d).md
-#yesterday=reports/$(date -v-1d +%Y-%m-%d).md
 
 generateDir () {
   dir="reports/$1"
@@ -40,11 +38,19 @@ averageChange () {
   echo Average Rate of Change for directory $directory: $average
 }
 
+todayChange (){
+  today="reports/$1/$(date +%Y-%m-%d.md)"
+  yesterday="reports/$(date -v-1d +%Y-%m-%d).md"
+
+  y_words=$(tail -1 $yesterday)
+}
+
 for d in ${directories[@]}
 do
   generateDir $d
   generateReport $d
   averageChange $d
+  todayChange $d
 done
 #
 # for d in ${directories[@]}
