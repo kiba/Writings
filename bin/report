@@ -40,7 +40,7 @@ averageChange () {
 
 todayChange (){
   today="reports/$1/$(date +%Y-%m-%d.md)"
-  yesterday="reports/$(date -v-1d +%Y-%m-%d).md"
+  yesterday="reports/$1/$(date -v-1d +%Y-%m-%d).md"
 
   y_words=$(tail -1 $yesterday)
 }
