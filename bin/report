@@ -40,7 +40,9 @@ todayChange (){
   today="reports/$1/$(date +%Y-%m-%d.md)"
   yesterday="reports/$1/$(date -v-1d +%Y-%m-%d).md"
 
-  y_words=$(tail -1 $yesterday)
+  y_words=( $(tail -1 $yesterday) )
+  t_words=( $(tail -1 $today) )
+  echo todayChanged: $(($t_words - $y_words))
 }
 
 for d in ${directories[@]}
