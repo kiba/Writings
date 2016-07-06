@@ -34,21 +34,40 @@ It was unreal and gruesome.
 
 "Oh, Mr. Morality, you're going to lecture me on why we should not eat meat when you have been eating meat all your life?"
 
-"My contemporary and I got more excuses for it. We don't grow meat."
+"My contemporary and I got more excuses for it. We don't grow meat cultures."
 
-"Uh huh," Sasaki said sarcastically. 
+"Uh huh." Her voice dripped with sarcasm. "In that case, the crab was going to die horribly by being eaten by a predator or some other means. At least this was a quick death."
+
+I sensed that this wasn't going anywhere. So I decided to drop it.
+
+Sasaki dropped the crab into a pot and then continued her crab hunting mini-excursion.
+
+So crab for breakfast, lunch, and dinner it is.
 
 ***
 
+It was sheer coincidence that I ended up doing the grilling. We did a rock-paper-scissor game to decide our chores, and I happen to end up winning.
+
+So I stood over an open flame letting the artificial meats and crab alike sizzle. Sasaki was out there again, hunting for more meat, and bringing down coconuts.
+
+Diana was nearby, preparing kebab for me to cook.
+
+"So, what do you think of us so far?" Diana broached the subject.
+
+"Great, I guess..."
+
+"So you say, except you scrunched up every time Sasaki and I mentioned our relations to others," she pointed out as she grinned. I knew that look. It was that malicious smile when she got off at my expense. I decided to avoid that subject.
+
+"I am the luckiest man in the world. Most guys don't get two women."
+
+
 
 ***
-
-What did Diana and James talked about?
-
-***
-
-Sasaki talks hypothetical about immortality.
 
 With no clouds in the region, we made a conscious decision to simply sleep under the night sky. With all the lights and electronics turned off, it was almost entirely dark. Yet there were lights from the stars, an ocean of them.
 
 Light pollution had obscured almost all of them where my home on Earth was located.
+
+"Beautiful isn't it?" Sasaki said.
+
+I almost forgot that there were two beautiful women right next to me. One of them was fast asleep.
