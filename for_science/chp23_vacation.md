@@ -2,11 +2,10 @@
 
 **James Archer**
 **October 3, 2015**
+**Deserted Island, Earth**
 
-Who would had thought that there's vacation spots in Sidonia? I didn't know of any such spots until Sasaki suggested to me. There's a beautiful beach with actual water and fishes, like on Earth. It's also strangely empty of anybody but us.
+It was the stereotypical deserted island, with palm tree and coconuts, and a beautiful beach. The nearest civilization on Earth was at least several hundred miles away. Which makes it all the more a perfect vacation spot. There was plenty of privacy and almost no way for other humans to bother us.
 
-I luxuriated in the shade while I watched Sasaki and Diana splashed water at each other in their beachwears.
+I arrived here with my TDM, transiting from Sidonia to this island, which was referenced from the Sidonian knowledge base, and then scouted. The last thing I wanted was some Grimms making its way to Earth. My girlfriends and I made sure to pack for a four day stay, with fridge, showerheads, water purifier, and other camping supplies. All of which were military issued for the new infantry branch. The only price was a detailed report for the firm that made it.
 
-If this were an anime, it would be a beach episode where we get to have fun while holding off earth-shattering consequences. No, there were no great evil to defeat or really an overarching goal I have in mind, despite my various accomplishments.
-
-My girlfriends began walking up to me as they chattered among themselves without me understanding any of it. 
+"So this is a beach on Earth," Sasaki said.
