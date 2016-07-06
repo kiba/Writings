@@ -1,6 +1,6 @@
 #!/bin/bash
 
-directories="for_science"
+directories="for_science atg"
 
 generateDir () {
   dir="reports/$1"
