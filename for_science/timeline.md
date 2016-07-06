@@ -35,3 +35,4 @@ September 21, 2015 - Chapter 21 - Delta met Director Polendina and his daughter,
 September 25, 2015 - Chapter 22 - Archer and Sasaki watched a technology demonstration for a new rocket engine derived from Colonial technology using dust-infused tylium.
 September 27, 2015 - Chapter 22 - Walter Schnee contemplates market impact of the 'foreigners'.
 September 29, 2015 - Chapter 22 - Violent Amethyst completed her project on an improved method of cooling by using a new ice dust slurry formula. Protest regarding the new invention occurred the next day, and she was offered a new job with generous terms by the Schnee Dust Company.
+October 3, 2015 - Chapter 23 - Sasaki, James, and Diana vacation on a deserted island on Earth.
