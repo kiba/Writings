@@ -154,6 +154,6 @@ Appearances: 13
 
 Appearances: 21
 
-**Penny Polendina** - Daughter of William Polendina and an artificial intelligence.
+**Penny Polendina** - Daughter of William Polendina. She is a gynoid with artificial intelligence and an aura.
 
 Appearances: 21
