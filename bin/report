@@ -42,6 +42,11 @@ averageChange () {
 }
 
 todayChange (){
+
+  files=$(ls -1 reports/$1/*.md | wc -l)
+  if [ $files -le 1 ]; then
+    return 1;
+  fi
   today="reports/$1/$(date +%Y-%m-%d.md)"
   yesterday="reports/$1/$(date -v-1d +%Y-%m-%d).md"
 
