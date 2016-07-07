@@ -54,24 +54,30 @@ Diana was nearby, preparing kebabs for me to cook.
 
 "I wanted to know...where are we going from here with this relationship?" Diana broached the topic.
 
-I closed my eyes to think a little bit. "I don't know. I loved you and Sasaki but I probably will not try this again in the foreseeable future." Though I don't think about it much, but there was no guarantee that we will be together forever.
+I closed my eyes to think a little bit. "I don't know. I loved you and Sasaki but I probably will not try this again in the foreseeable future." Though I don't think about it much, but I knew that it's unlikely that we will be together forever.
 
 Diana snorted. "Oh, what a guy wouldn't give for a harem?"
 
 I turned beet red, turning my head away from her. "Please..."
 
-"It helped that we enjoy our time with you."
+"If it helps, I couldn't think of any other guy who would be able to handle a relationship like ours."
 
-"Yeah, I guess," I stammered.
+"Well, I felt like a douchebag for just having the two of you as my girlfriends," I admitted. "It's like the rule of evil or something. It would mark you the greatest level of asshole or something. That's nonsense, but I can't shake it off."
 
-Somehow, I always pictured in my mind a person who have relationship with multiple women at the same time as a douchebag, or a rich person, or someone with moral depravity. 
+"At least you're not blushing as much as before when I mentioned our status to our friends."
+
+I could picture in my head the celebrity gossip in the magazine section about boring oh me and my girlfriends. It was not a secret at all. Also unmentioned is going to Diana's family and explaining to them what we are doing. They're not exactly the most open people around.
 
 ***
 
-With no clouds in the region, we made a conscious decision to simply sleep under the night sky. With all the lights and electronics turned off, it was almost entirely dark. Yet there were lights from the stars, an ocean of them.
+After some fun and sexy times, we went to bed with no blankets over us, letting the cool air flowed over us. It was a good thing that there was no clouds in the region for the next twenty-four hours.  With all the lights and electronics turned off, it was almost entirely dark. Yet there were lights from the stars, an ocean of them.
 
-Light pollution had obscured almost all of them where my home on Earth was located.
+Light pollution typically blocked any opportunity to view the night sky, as that was the case where my house on Earth was.
 
-"Beautiful isn't it?" Sasaki said.
+"Beautiful isn't it?" Sasaki said. Meteorites suddenly streaked though the sky, burning up in the atmosphere, creating shooting stars. "When I was younger, I used to go outside Sidonia in my suit and just look into the vacuum of space. All those lights took years, sometime thousands, millions, even billions to reach us."
 
-I almost forgot that there were two beautiful women right next to me. One of them was fast asleep.
+"Boy I wished I could live as long as those stars," I said. "There's so little time in a human lifespan to do anything."
+
+"Immortality. You're obsessed with it."
+
+"I wouldn't say obsessed, just that I have a healthy point of view." Most people, including my contemporary view death as inevitable, sometime crucial part of life. 
