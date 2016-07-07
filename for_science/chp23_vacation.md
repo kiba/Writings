@@ -50,17 +50,21 @@ It was sheer coincidence that I ended up doing the grilling. We did a rock-paper
 
 So I stood over an open flame letting the artificial meats and crab alike sizzle. Sasaki was out there again, hunting for more meat, and bringing down coconuts.
 
-Diana was nearby, preparing kebab for me to cook.
+Diana was nearby, preparing kebabs for me to cook.
 
-"So, what do you think of us so far?" Diana broached the subject.
+"I wanted to know...where are we going from here with this relationship?" Diana broached the topic.
 
-"Great, I guess..."
+I closed my eyes to think a little bit. "I don't know. I loved you and Sasaki but I probably will not try this again in the foreseeable future." Though I don't think about it much, but there was no guarantee that we will be together forever.
 
-"So you say, except you scrunched up every time Sasaki and I mentioned our relations to others," she pointed out as she grinned. I knew that look. It was that malicious smile when she got off at my expense. I decided to avoid that subject.
+Diana snorted. "Oh, what a guy wouldn't give for a harem?"
 
-"I am the luckiest man in the world. Most guys don't get two women."
+I turned beet red, turning my head away from her. "Please..."
 
+"It helped that we enjoy our time with you."
 
+"Yeah, I guess," I stammered.
+
+Somehow, I always pictured in my mind a person who have relationship with multiple women at the same time as a douchebag, or a rich person, or someone with moral depravity. 
 
 ***
 
