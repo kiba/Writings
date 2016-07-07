@@ -18,7 +18,6 @@ generateReport () {
 averageChange () {
   reports=$(ls reports/$1/*.md)
   files=$(ls -1 reports/$1/*.md | wc -l)
-  echo File count: $files
   if [ $files -le 1 ]; then
     return 1
   fi
