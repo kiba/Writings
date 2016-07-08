@@ -1,8 +1,9 @@
 Coding ideas:
 
-Index - generate an index of words and their locators.
-Dice - Write a program to roll dices for quests and such.
+index - generate an index of words and their locators.
+dice - Write a program to roll dices for quests and such.
+forum-layout - Write a program to generate a forum-layout for use in stories.
 
-Writing ideas: 
+Writing ideas:
 
 Multi-dimensional travel
