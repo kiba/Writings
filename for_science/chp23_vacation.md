@@ -70,14 +70,22 @@ I could picture in my head the celebrity gossip in the magazine section about bo
 
 ***
 
-After some fun and sexy times, we went to bed with no blankets over us, letting the cool air flowed over us. It was a good thing that there was no clouds in the region for the next twenty-four hours.  With all the lights and electronics turned off, it was almost entirely dark. Yet there were lights from the stars, an ocean of them.
+After some fun and sexy times, we elected to sleep outside under the sky, not even with blankets covering us. Instead, we let the cool air flowed over us. It was a good thing that there will be no inclement weather covering this island tonight. The only sounds were the waves crashing into the sand, which was oddly relaxing. With all the light sources turned off, it was almost entirely dark. Yet, there were an entire ocean of lights emanating from the stars.
 
-Light pollution typically blocked any opportunity to view the night sky, as that was the case where my house on Earth was.
+Unsurprisingly, it was like nothing I had seen back in the city where I lived just months before. Light pollution had stolen the view from urban residents.
 
-"Beautiful isn't it?" Sasaki said. Meteorites suddenly streaked though the sky, burning up in the atmosphere, creating shooting stars. "When I was younger, I used to go outside Sidonia in my suit and just look into the vacuum of space. All those lights took years, sometime thousands, millions, even billions to reach us."
+It was a shame that Diana was fast asleep as soon she hit the blanket.
+
+"Beautiful isn't it?" Sasaki said. Meteorites suddenly streaked though the sky, burning up in the atmosphere, creating shooting stars. "Sometime, I used to go outside Sidonia in my suit and just look into the vacuum of space. All those lights took years, sometime thousands, millions, even billions to reach us."
 
 "Boy I wished I could live as long as those stars," I said. "There's so little time in a human lifespan to do anything."
 
 "Immortality. You're obsessed with it."
 
-"I wouldn't say obsessed, just that I have a healthy point of view." Most people, including my contemporary view death as inevitable, sometime crucial part of life. 
+"I wouldn't say obsessed, just that I have a healthy point of view."
+
+"Death is not scary in a way. When you die, it's 'poof'. Actually, it's not even that. You're just gone. When I was young, what terrified me is growing old. Your body and mental faculty starts to break down until you're a shadow of yourself. Even though we can grow new organs to replace old ones, it can only do so much."
+
+"You know, I think trans-dimensional travel holds a possibility of finding a cure to aging. If even the Sidonians can't manage it..."
+
+"Hmm..."
