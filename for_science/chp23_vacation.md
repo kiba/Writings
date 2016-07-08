@@ -84,8 +84,18 @@ It was a shame that Diana was fast asleep as soon she hit the blanket.
 
 "I wouldn't say obsessed, just that I have a healthy point of view."
 
-"Death is not scary in a way. When you die, it's 'poof'. Actually, it's not even that. You're just gone. When I was young, what terrified me is growing old. Your body and mental faculty starts to break down until you're a shadow of yourself. Even though we can grow new organs to replace old ones, it can only do so much."
+"Death is not scary in a way. When you die, it's 'poof'. Actually, it's not even that. You're just gone. When I was young, what terrified me is growing old. Eventually, your body and mental faculty breaks down until you're a shadow of yourself. Even though we can grow new organs to replace old ones, it can only do so much."
 
 "You know, I think trans-dimensional travel holds a possibility of finding a cure to aging. If even the Sidonians can't manage it..."
 
 "Hmm..."
+
+"Come to think of it. There aren't gauna in my home reality, right?"
+
+"I hope not, even though the historical timeline matched up perfectly so far, though we expected the butterfly effect to strengthen even before first contact, before everything go out of the window because of first contact. In any case, Earth is our home, even if there is an infinity of them. I hate to see my ancestors dying again like this again."
+
+"But we have time, right? Both to perfect anti-aging technology and improve our capability to fight the gauna or whatever is out there in the multiverse."
+
+"There's a lot of technological immaturity in combining all of our worlds' unique technologies, but I wouldn't discount a lot of what is simply locked up in Sidonia's database. We didn't have the number or the resource back before the near destruction of Sidonia, and we didn't have it today. But if we could unlock the manpower, then that ceased to be a problem. We'll have lot of amazing things."
+
+Sasaki rolled over until her body laid on top of mine, her head resting against my chest.
