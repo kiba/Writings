@@ -1,8 +1,12 @@
 # **Chapter 2: Aftermath**
 
-After a well deserved slept-in, Colonel Johnathan 'Jack' O'Neill was back up again, standing outside one of his teammate's office.
+After a well deserved slept-in, Colonel Johnathan 'Jack' O'Neill found himself back in familiar routine, standing outside one of his teammate's office.
 
-He knocked on the door, which then opened up to the archaeologist's office.
+He knocked on the door.
+
+"Who is it?" the voice on the side of door asked.
+
+"I am back," O'Neill said simply.
 
 "Oh, hey Jack," the civilian greeted the Air Force special operator.
 
@@ -10,11 +14,11 @@ He knocked on the door, which then opened up to the archaeologist's office.
 
 "Right errr...let me find my Goa'uld worksheet."
 
-Unlike what some science fiction shows would had you believe, nobody in the galaxy conveniently spoke English. This fact was true on Earth, why wouldn't it be true in the galaxy at large? It was only thanks to Jackson and Teal'c that they were able to unravel the Goa'uld language, allowing Stargate Command to interact with Goa'uld influenced civilization.
+It would be convenient, like on some science fiction shows, if people in the galaxy conveniently spoke English for America's benefit. Alas, there's no magical universial translators available. However, the galaxy at large do speak an actual lingua franca, Goa'uld. Thanks to Jackson and Teal'c, Stargate command can interact with the galaxy at large without getting bogged down trying to learn yet another language.
 
-Since then, it became a staple of the local learning curriculum to learn Goa'uld. Throughout his career, O'Neill had to always learn something new, either as part of 'homework' or actually going to school. Since he was and still is special operation, part of his time was spent on learning the languages of his enemies, or his allies, such as German and Russian. His time at Stargate Command was no exception, except he got his homework directly from the source.
+To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld. Learning languages wasn't actually new for O'Neill. Throughout this special operation career, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. HIs time at this command was no exception.
 
-But god damn, this man needed to be better organized. The doctor was still ruffling through his mess to find O'Neill's homework.
+But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find homework.
 
 "I hope your office didn't eat my homework," the Colonel joked.
 
@@ -86,4 +90,4 @@ By then, the Tau'ri were used to this display of skills from a century old warri
 
 Several hands rose. Teal'c picked at individuals he hadn't seen recently. Several more bouts to go before he would proceed to showing a new kata.
 
-Two hours had passed and Teal'c was finally done with the class. 
+Two hours had passed and Teal'c was finally done with the class.
