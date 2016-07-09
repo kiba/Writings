@@ -52,7 +52,7 @@ The hostility posed by the secret police had faded into hospitality once they re
 
 My era was the 'dawn' of the modern age, following a series of unprecedented rights revolution in the later half of the 20th century and into the early 21st century, culminating into the Sophant Right Revolution starting in the 2020s.
 
-So it was not unsurprising that they considered us barbaric while at the same time hailing us heroes who overcame the prejudices of our time. Eventually, we would came to colonize Space. I learned that the Elon Musk of this timeline did remarkably well and achieved his dream before dying peacefully on Mars.
+So it was not unsurprising that they considered us barbaric while at the same time hailing us heroes who overcame the prejudices of our time. Eventually, we would came to colonize Space. I learned that the Eli Berkovitz of this timeline did remarkably well and achieved his dream before dying peacefully on Mars.
 
 Which was strange since the Sidonians looked and sounded like Japanese, and in some way acted like Japanese. Though I learned to the contrary that the Sidonia was an artificial culture, shaped to induce the greatest level of cooperation in their society.
 
