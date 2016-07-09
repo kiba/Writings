@@ -36,3 +36,4 @@ September 25, 2015 - Chapter 22 - Archer and Sasaki watched a technology demonst
 September 27, 2015 - Chapter 22 - Walter Schnee contemplates market impact of the 'foreigners'.
 September 29, 2015 - Chapter 22 - Violent Amethyst completed her project on an improved method of cooling by using a new ice dust slurry formula. Protest regarding the new invention occurred the next day, and she was offered a new job with generous terms by the Schnee Dust Company.
 October 3, 2015 - Chapter 23 - Sasaki, James, and Diana vacation on a deserted island on Earth.
+October 7, 2015 - chapter 23 - The vacationers meet the billionaire Eli Berkovitz.
