@@ -92,10 +92,20 @@ It was a shame that Diana was fast asleep as soon she hit the blanket.
 
 "Come to think of it. There aren't gauna in my home reality, right?"
 
-"I hope not, even though the historical timeline matched up perfectly so far, though we expected the butterfly effect to strengthen even before first contact, before everything go out of the window because of first contact. In any case, Earth is our home, even if there is an infinity of them. I hate to see my ancestors dying again like this again."
+"God, I hope not. The historical timeline matched up perfectly so far, though that's quickly going out the window. But I expect the gauna won't show up for about two century, if they're still out there. As far as we know, the gauna cannot do FTL."
 
-"But we have time, right? Both to perfect anti-aging technology and improve our capability to fight the gauna or whatever is out there in the multiverse."
+"Then we have some time. Time to improve our technological base to hopefully solve aging and being ready for the gauna. There got to be a solution in the multiverse, right?"
 
-"There's a lot of technological immaturity in combining all of our worlds' unique technologies, but I wouldn't discount a lot of what is simply locked up in Sidonia's database. We didn't have the number or the resource back before the near destruction of Sidonia, and we didn't have it today. But if we could unlock the manpower, then that ceased to be a problem. We'll have lot of amazing things."
+"Sidonian technology is limited by manpower more than anything else. Dust tech is still a very immature field. Colonial tech...however, beside from their solid engineering tradition, they're surprisingly not all that advanced aside from FTL drive, antigravity, and computer science. So we already got a lot of work cut out for us. Maybe opening a portal to another universe with a completely tech base will speed up, but it will also throw existing research effort into chaos, maybe even slow it down if the new tech isn't amazing enough."
 
-Sasaki rolled over until her body laid on top of mine, her head resting against my chest.
+"Shop talk...we never stop talking about it," I remarked. "Even on this beach on a deserted island."
+
+"James...that's pretty much the only thing you talked about. With Diana, we talked about normal human being stuff more."
+
+Jesus, am I really that terrible? Though my girlfriends do seem to talk amongst themselves a lot.
+
+"Then, you should tell me if I am boring the heck out of you."
+
+"I don't mind it at all."
+
+Then, for whatever reason, we stopped talking. 
