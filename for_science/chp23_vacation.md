@@ -4,7 +4,7 @@
 **October 3, 2015**
 **Deserted Island, Earth**
 
-It was the stereotypical deserted island, with palm tree and coconuts, and a beautiful beach. The nearest civilization on Earth was at least several hundred miles away. Which makes it all the more a perfect vacation spot. There was plenty of privacy and almost no way for other humans to bother us.
+It was the stereotypical deserted island, with palm trees and coconuts, and a beautiful beach. The nearest civilization on Earth was at least several hundred miles away. Which makes it all the more a perfect vacation spot. There was plenty of privacy and almost no way for other humans to bother us.
 
 I arrived here with my TDM, transiting from Sidonia to this island, which was referenced from the Sidonian knowledge base, and then scouted. The last thing I wanted was some Grimms making its way to Earth. My girlfriends and I made sure to pack for a four day stay, with fridge, showerheads, water purifier, and other camping supplies. All of which were military issue intended for the new infantry branch. The only price was a detailed report for the firm that made it and to military command.
 
@@ -106,6 +106,34 @@ Jesus, am I really that terrible? Though my girlfriends do seem to talk amongst 
 
 "Then, you should tell me if I am boring the heck out of you."
 
-"I don't mind it at all."
+"I don't mind it at all. Not at all."
 
-Then, for whatever reason, we stopped talking. 
+We stopped talking after that, letting the silence took over. It wasn't long before I fell into a slumber.
+
+***
+
+**October 7, 2015**
+
+"Damn," I said. "Somebody got the same idea." We were sure that the island was well and truly deserted, and made sure to verify our research before coming there beforehand.
+
+What I didn't apparently count on was a god damn yacht parked just off the coast, and a motorboat coming fast toward us. They either spotted us or it was just a coincidence.
+
+"What we do now?" Diana asked.
+
+"Whatever we do, we cannot simply take off," Sasaki answered. "That will leave more questions than answers. They will get really curious about us."
+
+The motorboat arrived, with just two figures. One face was a man that I instantaneously recognized. He immediately left the boat, and waded onto the beach.
+
+"You guys don't look too shabby for a couple of stranded castaways," the man said, darting his eyes over my girlfriends.
+
+"We aren't," I said. "We decided to vacation here." The truth is a lot easier to keep straight than lies. The trouble is giving away too much of our secrets, or having the billionaire discover the machine.
+
+"Really? You guys must be of some means, or you're stupid as hell."
+
+"If you don't-"
+
+"This is James, Diana, and I am Sasaki," my girlfriend interrupted.
+
+"What are you doing?" I wishpered quickly.
+
+"Nice to meet you, I am Eli Berthotivz, billionaire, founder of Berthoviz Space and Berthoviz Electric."
