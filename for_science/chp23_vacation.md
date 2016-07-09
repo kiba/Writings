@@ -134,6 +134,6 @@ The motorboat arrived, with just two figures. One face was a man that I instanta
 
 "This is James, Diana, and I am Sasaki," my girlfriend interrupted.
 
-"What are you doing?" I wishpered quickly.
+"What are you doing?" I whispered quickly.
 
-"Nice to meet you, I am Eli Berthotivz, billionaire, founder of Berthoviz Space and Berthoviz Electric."
+"Nice to meet you, I am Eli Berkovitz, billionaire, founder of Berkovitz Space and Berkovitz Electric."
