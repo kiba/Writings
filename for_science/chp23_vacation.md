@@ -126,9 +126,9 @@ The motorboat arrived, with just two figures. One face was a man that I instanta
 
 "You guys don't look too shabby for a couple of stranded castaways," the man said, darting his eyes over my girlfriends.
 
-"We aren't," I said. "We decided to vacation here." The truth is a lot easier to keep straight than lies. The trouble is giving away too much of our secrets, or having the billionaire discover the machine.
+"We aren't," I said. "We decided to vacation here." The truth is a lot easier to keep straight than lies. The trouble is giving away too much of our secrets, or having the billionaire discover the machine. There would be an awful lot of unanswered questions.
 
-"Really? You guys must be of some means, or you're stupid as hell."
+"Really? You guys must be of some means, or you're stupid as hell, or maybe both."
 
 "If you don't-"
 
@@ -136,4 +136,24 @@ The motorboat arrived, with just two figures. One face was a man that I instanta
 
 "What are you doing?" I whispered quickly.
 
-"Nice to meet you, I am Eli Berkovitz, billionaire, founder of Berkovitz Space and Berkovitz Electric."
+"Ah. Nice to meet you. I am Eli Berkovitz, billionaire, founder of Berkovitz Space and Berkovitz Electric."
+
+"You need no introduction, but what are you doing here? I didn't expect to meet a billionaire."
+
+"I didn't expect to meet vacationing castaways either. Come to think of it, there's no reliable source of freshwater on this island."
+
+"We got that problem licked," I said nervously. "The food as well. Sasaki here's a particularly good at hunting crabs."
+
+"If you say so...I was looking at islands to see if they're viable locations for a project I am thinking about. You know, it's a fantasy of mine to always own my own island."
+
+The three of us simply nodded at the billionaire.
+
+"Can you at least let us have this island to ourselves for the next seven days or so before you go around scouting it? You got other islands to go to, right?"
+
+"I don't know...there's other parts of the island I can scout without violating your privacy...unless you three have dinners with me tonight? You seemed to be quite interesting people to pick an out-of-the-way vacation spot."
+
+"It's a deal," Sasaki said immediately. My girlfriend immediately whispered to me what I should do. I nodded.
+
+Sending the machine back to Sidonia is a good idea, given that I did programmed coordinates into it just in case we need to go back in a jiffy. Sidonia should know that we made contact with an Earthling, though not hostile.
+
+***
