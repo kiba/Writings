@@ -157,3 +157,27 @@ The three of us simply nodded at the billionaire.
 Sending the machine back to Sidonia is a good idea, given that I did programmed coordinates into it just in case we need to go back in a jiffy. Sidonia should know that we made contact with an Earthling, though not hostile.
 
 ***
+
+It wasn't before we three arrived at a very distinctive yacht owned by the billionaire.
+
+"I would stow your luggage momentarily here if I were you," the billionaire said.
+
+"Why?" I asked.
+
+"We're going twenty thousand league under the sea," he said.
+
+Suddenly my head's gears are turning.
+
+"THIS IS A SUBMARINE?" I yelled.
+
+He made the most dramatic smile possible. "One and only, and a submarine that I worked very hard to keep secret. It wasn't easy to fool the media into thinking it's being manufactured for someone else. Though I don't expect the secrecy to last very long, certainly that won't be case since I am already introducing strangers to my yacht. I guess...I can't stop bragging about it now it's complete."
+
+"ALL PERSONNELS AND GUESTS, WE ARE PREPARING TO DIVE in THRITY SECONDS!" the PA said.
+
+"In case you were wondering," Eli preempted. "We're going to be underwater, but we'll not be moving anywhere. The internet will still be available via a buoy we deployed, which is connected by armored fiber optic cable. You should be able to get satellite internet access."
+
+This man...damn it..He's more of a god damn James Bond villain with secret islands and secret bases rather than Tony Stark or Howard Hughes.
+
+By sheer coincidence, we were able to meet the billionaire pioneer and see his secret sub.
+
+***
