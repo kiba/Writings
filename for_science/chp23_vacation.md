@@ -120,7 +120,7 @@ What I didn't apparently count on was a god damn yacht parked just off the coast
 
 "What we do now?" Diana asked.
 
-"Whatever we do, we cannot simply take off," Sasaki answered. "That will leave more questions than answers. They will get really curious about us."
+"Whatever we do, we cannot simply take off," Sasaki answered. "Not with everything strewn around. That will leave more questions than answers. They will get really curious about us."
 
 The motorboat arrived, with just two figures. One face was a man that I instantaneously recognized. He immediately left the boat, and waded onto the beach.
 
@@ -128,12 +128,12 @@ The motorboat arrived, with just two figures. One face was a man that I instanta
 
 "We aren't," I said. "We decided to vacation here." The truth is a lot easier to keep straight than lies. The trouble is giving away too much of our secrets, or having the billionaire discover the machine.
 
-"Really? You guys must be of some means, or you're stupid as hell."
+"Really? You guys must be of some means to get there. I hope you aren't completely idiotic to come to this island without the necessary preparation."
 
 "If you don't-"
 
-"This is James, Diana, and I am Sasaki," my girlfriend interrupted.
+"This is James, Diana, and I am Sasaki," my girlfriend interrupted. "We're all engineers in something."
 
-"What are you doing?" I whispered quickly.
+"What are you doing?" I whispered quickly before being elbowed by Sasaki.
 
-"Nice to meet you, I am Eli Berkovitz, billionaire, founder of Berkovitz Space and Berkovitz Electric."
+"Nice to meet you, I am Eli Berkovitz, billionaire, founder of Berkovitz Space and Berkovitz Electric," the eccentric billionaire introduced himself. This is it. I am meeting the most transformative person of my time. He may be imperfect in many respect, but it cannot be denied that his achievements were extraordinary. This much, I gathered from the Sidonian knowledge database. Even before I have access to that database, I knew that. He is one of my personal hero. 
