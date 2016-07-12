@@ -136,4 +136,18 @@ The motorboat arrived, with just two figures. One face was a man that I instanta
 
 "What are you doing?" I whispered quickly before being elbowed by Sasaki.
 
-"Nice to meet you, I am Eli Berkovitz, billionaire, founder of Berkovitz Space and Berkovitz Electric," the eccentric billionaire introduced himself. This is it. I am meeting the most transformative person of my time. He may be imperfect in many respect, but it cannot be denied that his achievements were extraordinary. This much, I gathered from the Sidonian knowledge database. Even before I have access to that database, I knew that. He is one of my personal hero. 
+"Nice to meet you, I am Eli Berkovitz, billionaire and founder of Berkovitz Space and Berkovitz Electric," the eccentric billionaire introduced himself. This is it. I am meeting the most transformative person of my time, one of my personal hero.
+
+On the other hand, there's no way I am going to let him know anything about us.
+
+"What are you doing here checking out an uninhabitated island? We chose this island for privacy."
+
+"James!" Diana scolded, more for my tone, than anything else.
+
+"I wanted to check out deserted island candidates for a secret project I am working on."
+
+I raised my eyebrow. I never heard of the billionaire taking on a project like this before. Was it because of the butterfly effect or the timeline was already divergent even before I jumped to their Sidonia?
+
+"We appreciated it if you left us alone," Sasaki said in a more friendly tone. "The whole island for the next two weeks please."
+
+"Hmm...I could scout the rest of the island without invading your privacy...unless you're three are willing to come on board for dinner? You must be very interesting to go that far to vacation on this tiny island."
