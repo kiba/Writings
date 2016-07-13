@@ -3,3 +3,17 @@ Gaia is essentially a re-mixed version of Earth, with different nations, timelin
 It does not mean for example, that there is a UK, or Greece, or Japan, though there would be analogies. I intended to make significant use of Earth history(thus requiring historical research) to craft Gaia's own.
 
 I do plan to set at least one well-defined story in this universe, but it will be helped if I actually do enough worldbuilding beforehand.
+
+## Nation-states
+
+**Yipang**: An island nation to the world's most powerful monarchy in a world where monarchs are increasingly weakened, given way to republican form of governments championed by Lonica.
+**Lonica**: The world's oldest democracy.
+
+## Characters
+
+**Empress Hoshizaki** - Ruler of Yipang. Face is completely unknown to the public as it is completely covered up.
+
+## timeline
+
+1016-1020 - World War One.
+1047-1054 - World War Two.
