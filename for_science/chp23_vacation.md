@@ -109,45 +109,74 @@ Jesus, am I really that terrible? Though my girlfriends do seem to talk amongst 
 "I don't mind it at all. Not at all."
 
 We stopped talking after that, letting the silence took over. It wasn't long before I fell into a slumber.
+***
+**October 7, 2015**
+
+It was out of the blue. Sasaki interrupted a board game session and called for us to discuss something important, immediately. Though it wasn't so urgent, apparently given that we have teacups and teapots. We assembled in a circle on around of a badly made wooden board I was working on to satisfy my restlessness.
+
+There were a whole of silence as our eyes rested on Sasaki.
+
+She closed her eyes and made deep sigh. I could tell that it wasn't going to be easy for her.
+
+"Diana wasn't awake during the first night when we discussed immortality," she said. "The idea that we do not possess immortality is a lie. There's a conspiracy and I am part of it."
+
+Wait, what?
+
+"Excuse me?" Diana said.
+
+"I am immortal."
+
+"Is this your idea of a joke?" I said, looking to see if Sasaki is stiffing a laugh.
+
+There wasn't any forthcoming. Instead, she looked even more serious.
+
+"No. It's not a joke. There's really a conspiracy to keep the tech from the population. It has been going on even well before the apocalypse a hundred years ago."
+
+"For what fucking reason?"
+
+"There were justifications. Some good and not-so-good reasons. Social control, monopoly on power, concerns about population growth and social dynamism."
+
+Fuck. I don't know what to think. I want to be angry at her, I really do, but I also loved her.
+
+"Why now?" Diana questioned. "Why us of all people?"
+
+"I didn't want to tell you until now. I want to enjoy all the time that I have left, before the upcoming constitutional crisis. Everything is going to go to shit once the conspiracy is blown wide open. The power that may be decided it's better to do it now rather than risk it later, rather than plunging the whole of Sidonia. The outsider's view provided a perspective that would otherwise be ignored and that got people to questions what they see in front of them."
+
+"Well, there goes our vacation," Diana said softly.
+
+"Well....I am going to take a walk to process this situation," I decided just now.
+
+"Don't be gone so long. We're not done talking," Sasaki said.
 
 ***
 
-**October 7, 2015**
+After finishing my walk, Diana and I listened to Sasaki talked a very long story about the immortal ship committee and how they came into being, how they retain power, one of which was subverting conspiracy theorists into patsies, and how subtle social control works. Why censor when you can self-censor? Why oppress when you can make people ignore certain things?
 
-"Damn," I said. "Somebody got the same idea." We were sure that the island was well and truly deserted, and made sure to verify our research before coming there beforehand.
+That, of course, is coming fast apart, beginning with my arrival, and then accelerating with Remnant.
 
-What I didn't apparently count on was a god damn yacht parked just off the coast, and a motorboat coming fast toward us. They either spotted us or it was just a coincidence.
+Was there's a point in doing anything on the last day? No matter what I do, I couldn't even begin to relax. So I just plopped my body in the shade. Sasaki was already dressed up, ready to go, resting her head against my shoulder. Diana was off somewhere, hunting for crabs, doing as much as possible to avoid Sasaki.
 
-"What we do now?" Diana asked.
+Sasaki shouldn't be my ally. I should be on the side of Sidonians who had been denied life-saving medicine for all their lives.
 
-"Whatever we do, we cannot simply take off," Sasaki answered. "Not with everything strewn around. That will leave more questions than answers. They will get really curious about us."
+But this woman wormed my way to my heart. She was genuine in her friendship and romance, just as she was ordered by her boss, Captain Kobayashi. A boss that I grew to dislike even more, even as I understood her reasoning for her actions.
 
-The motorboat arrived, with just two figures. One face was a man that I instantaneously recognized. He immediately left the boat, and waded onto the beach.
+***
+**October 10, 2015**
 
-"You guys don't look too shabby for a couple of stranded castaways," the man said, darting his eyes over my girlfriends.
+"Damn," I said. "Somebody got the same idea." We made sure that the island was truly deserted, and we did that by cross-checking current Earth database against the Sidonian historical database.
 
-"We aren't," I said. "We decided to vacation here." The truth is a lot easier to keep straight than lies. The trouble is giving away too much of our secrets, or having the billionaire discover the machine.
+But nobody said that a submersible yacht was coming to check out the island out, especially as it creeped ever closer.
 
-"Really? You guys must be of some means to get there. I hope you aren't completely idiotic to come to this island without the necessary preparation."
+"Let's not stick around to find out. Pack everything. We're going home."
 
-"If you don't-"
+The trio of us scrambled away from the beach, running toward our campsite. The whole point of choosing this island was secrecy before first contact. Now we're scrambling to take away technological artifact strewn all over the place.
 
-"This is James, Diana, and I am Sasaki," my girlfriend interrupted. "We're all engineers in something."
+"I see a motorboat launching! Are we good?"
 
-"What are you doing?" I whispered quickly before being elbowed by Sasaki.
+"We got everything!" Diana said. It was a good thing that we had a plan in place, and that there were rules for ensuring that we got everything back. Most importantly, most things were already packed.
 
-"Nice to meet you, I am Eli Berkovitz, billionaire and founder of Berkovitz Space and Berkovitz Electric," the eccentric billionaire introduced himself. This is it. I am meeting the most transformative person of my time, one of my personal hero.
+"Nothing unaccounted for," Sasaki concurred.
 
-On the other hand, there's no way I am going to let him know anything about us.
+"Great, let's us rev up the engine."
 
-"What are you doing here checking out an uninhabitated island? We chose this island for privacy."
-
-"James!" Diana scolded, more for my tone, than anything else.
-
-"I wanted to check out deserted island candidates for a secret project I am working on."
-
-I raised my eyebrow. I never heard of the billionaire taking on a project like this before. Was it because of the butterfly effect or the timeline was already divergent even before I jumped to their Sidonia?
-
-"We appreciated it if you left us alone," Sasaki said in a more friendly tone. "The whole island for the next two weeks please."
-
-"Hmm...I could scout the rest of the island without invading your privacy...unless you're three are willing to come on board for dinner? You must be very interesting to go that far to vacation on this tiny island."
+Just as the motorboat were closing in, we disappeared into thin air.
