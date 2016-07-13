@@ -74,11 +74,11 @@ I could picture in my head the celebrity gossip in the magazine section about bo
 
 After some fun and sexy times, we elected to sleep outside under the sky, not even with blankets covering us. Instead, we let the cool air flowed over us. It was a good thing that there will be no inclement weather covering this island tonight. The only sounds were the waves crashing into the sands, which added to the positive ambient experience. With all the light sources turned off, it was almost entirely dark. Yet, there were an entire ocean of lights emanating from the stars.
 
-Unsurprisingly, it was like nothing I had seen back on Vale. Light pollution had stolen the view from urban residents.
+Unsurprisingly, it was like nothing I had seen back on Vale or back in the states. Light pollution had stolen the view from urban residents.
 
 It was a shame that Diana was fast asleep as soon she hit the blanket.
 
-"Beautiful isn't it?" Sasaki said. Meteorites suddenly streaked though the sky, burning up in the atmosphere, creating shooting stars. "Sometime, I used to go outside Sidonia in my suit and just look into the vacuum of space. All those lights took years, sometime thousands, millions, even billions to reach us."
+"Beautiful isn't it?" Sasaki said. Meteorites suddenly streaked though the sky, creating shooting stars. "Sometime, I used to go outside Sidonia in my suit and just look into the vacuum of space. All those lights took years, sometime thousands, millions, even billions to reach us."
 
 "Boy I wished I could live as long as those stars," I said. "There's so little time in a human lifespan to do anything."
 
@@ -88,21 +88,21 @@ It was a shame that Diana was fast asleep as soon she hit the blanket.
 
 "Death is not scary in a way. When you die, it's 'poof'. Actually, it's not even that. You're just gone. When I was young, what terrified me is growing old. Eventually, your body and mental faculty breaks down until you're a shadow of yourself. Even though we can grow new organs to replace old ones, it can only do so much."
 
-"You know, I think trans-dimensional travel holds a possibility of finding a cure to aging. If even the Sidonians can't manage it..."
+"I think trans-dimensional travel holds the answer of finding a cure to aging. If even the Sidonians can't manage it..."
 
 "Hmm..."
 
 "Come to think of it. There aren't gauna in my home reality, right?"
 
-"God, I hope not. The historical timeline matched up perfectly so far, though that's quickly going out the window. But I expect the gauna won't show up for about two century, if they're still out there. As far as we know, the gauna cannot do FTL."
+"God, I hope not. The historical timeline matched up perfectly so far, though that's quickly going out the window. However, I don't expect the gauna to show until two centuries later. We never encountered any gauna capable of FTL travel, so we have plenty of time to prepare Earth."
 
 "Then we have some time. Time to improve our technological base to hopefully solve aging and being ready for the gauna. There got to be a solution in the multiverse, right?"
 
-"Sidonian technology is limited by manpower more than anything else. Dust tech is still a very immature field. Colonial tech...however, beside from their solid engineering tradition, they're surprisingly not all that advanced aside from FTL drive, antigravity, and computer science. So we already got a lot of work cut out for us. Maybe opening a portal to another universe with a completely tech base will speed up, but it will also throw existing research effort into chaos, maybe even slow it down if the new tech isn't amazing enough."
+"Sidonian technology is limited by manpower more than anything else. Dust tech is still a very immature field. Colonial tech...however, beside from their solid engineering tradition, Colonial tech still isn't as sophisticated as Sidonian, though they have marked superority in some fields. So we already got a lot of work cut out for us. Maybe opening a portal to another universe with a completely tech base will speed up, but it will also throw existing research effort into chaos, maybe even slow it down if the new tech isn't amazing enough."
 
 "Shop talk...we never stop talking about it," I remarked. "Even on this beach on a deserted island."
 
-"James...that's pretty much the only thing you talked about. With Diana, we talked about normal human being stuff more."
+"James...that's pretty much the only thing you talked about. With Diana, we talked like normal human beings. Not just girl stuff, but social stuff as well."
 
 Jesus, am I really that terrible? Though my girlfriends do seem to talk amongst themselves a lot.
 
@@ -120,7 +120,7 @@ There were a whole of silence as our eyes rested on Sasaki.
 
 She closed her eyes and made deep sigh. I could tell that it wasn't going to be easy for her.
 
-"Diana wasn't awake during the first night when we discussed immortality," she said. "The idea that we do not possess immortality is a lie. There's a conspiracy and I am part of it."
+"Diana wasn't awake during the first night when we discussed immortality," she said. "The idea that we do not possess the tech to implement youthful immortality is a lie. There's a conspiracy and I am part of it."
 
 Wait, what?
 
@@ -142,7 +142,7 @@ Fuck. I don't know what to think. I want to be angry at her, I really do, but I 
 
 "Why now?" Diana questioned. "Why us of all people?"
 
-"I didn't want to tell you until now. I want to enjoy all the time that I have left, before the upcoming constitutional crisis. Everything is going to go to shit once the conspiracy is blown wide open. The power that may be decided it's better to do it now rather than risk it later, rather than plunging the whole of Sidonia. The outsider's view provided a perspective that would otherwise be ignored and that got people to questions what they see in front of them."
+"I didn't want to tell you until now. I want to enjoy all the time that I have left, before the upcoming constitutional crisis. Everything is going to go to shit once the conspiracy is blown wide open. The power that may be decided it's better to do it now rather than risk it later, rather than plunging the whole of Sidonia into chaos and potential self-destruction. The outsider's view provided a perspective that would otherwise be ignored and that got people to questions what they see in front of them."
 
 "Well, there goes our vacation," Diana said softly.
 
@@ -156,7 +156,7 @@ After finishing my walk, Diana and I listened to Sasaki talked a very long story
 
 That, of course, is coming fast apart, beginning with my arrival, and then accelerating with Remnant.
 
-Was there's a point in doing anything on the last day? No matter what I do, I couldn't even begin to relax. So I just plopped my body in the shade. Sasaki was already dressed up, ready to go, resting her head against my shoulder. Diana was off somewhere, hunting for crabs, doing as much as possible to avoid Sasaki.
+Was there's a point in doing anything on the last day? No matter what I do, I couldn't even begin to relax. My stomach were so tied up that it's very uncomfortable. So I just plopped my body in the shade. Sasaki was already dressed up, ready to go, resting her head against my chest. Diana was off somewhere, hunting for crabs, doing as much as possible to avoid Sasaki.
 
 Sasaki shouldn't be my ally. I should be on the side of Sidonians who had been denied life-saving medicine for all their lives.
 
@@ -165,7 +165,7 @@ But this woman wormed my way to my heart. She was genuine in her friendship and 
 ***
 **October 10, 2015**
 
-"Damn," I said. "Somebody got the same idea." We made sure that the island was truly deserted, and we did that by cross-checking current Earth database against the Sidonian historical database.
+"Damn," I said. "Somebody got the same idea." We made sure that the island was truly deserted in the first place.
 
 But nobody said that a submersible yacht was coming to check out the island out, especially as it creeped ever closer.
 
