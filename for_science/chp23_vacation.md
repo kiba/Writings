@@ -4,39 +4,41 @@
 **October 3, 2015**
 **Deserted Island, Earth**
 
-It was the stereotypical deserted island, with palm trees and coconuts, and a beautiful beach. The nearest civilization on Earth was at least several hundred miles away. Which makes it all the more a perfect vacation spot. There was plenty of privacy and almost no way for other humans to bother us.
+It was the stereotypical deserted island, with palm trees and coconuts, and a beautiful picture perfect beach. The nearest civilization on Earth was at least several hundred miles away, which makes it all the more a perfect vacation spot. There was plenty of privacy and almost no way for other humans to bother us. So there's little chance of first contact being made here, creating an out-of-control situation for the Sidonians.
 
-I arrived here with my TDM, transiting from Sidonia to this island, which was referenced from the Sidonian knowledge base, and then scouted. The last thing I wanted was some Grimms making its way to Earth. My girlfriends and I made sure to pack for a four day stay, with fridge, showerheads, water purifier, and other camping supplies. All of which were military issue intended for the new infantry branch. The only price was a detailed report for the firm that made it and to military command.
+Of course, I transited to this tiny island using a TDM, from Sidonia. We made sure that this island wasn't on anyone's map, neither in the Sidonian knowledge base nor on google or any other sources. Lastly, we scouted the island to make extra sure.
 
-"So this is a beach on Earth," Sasaki observed. "Existing in a vast expanse of resilient biosphere."
+ My girlfriends and I made sure to pack for a two weeks stay, with fridge, showerheads, water purifier, and other camping supplies. All of which were military issue intended for the new infantry branch. The only price was a detailed report for the firm that made it and to military command, as well a return of all equipment at the end of our vacation.
 
-I wasn't really thinking about that, but thinking about how Sasaki and Diana made it their mission to maximally embarrass me in public by proclaiming their relationships with me in front of me with other people once they overcame their reservation.
+"So this is a beach on Earth," Sasaki observed. "It exists in a vast expanse of a very resilient biosphere."
 
-Worst, I couldn't convince myself to tell them to stop, especially when they were talking to remnan humans.
+I wasn't really thinking about that, but thinking about how Sasaki and Diana made it their mission to maximally embarrass me in public by proclaiming their relationships with me in front of me with other people.
 
-Now, there was no way of that happening, since there aren't other people around, and I could sit back and relax.
+Worst, I couldn't convince myself to tell them to stop. It wasn't my purpose to make our relationship secret, as if I was involved in an illicit affair.
+
+It was to my releif that there were to be no other people around, and I could sit back and relax, without feeling all too conscious of myself.
 
 "Well, what you're waiting for?" Diana said, dragging me by my hand into the water. Sasaki followed along as well. We splashed into the water of the Pacific Ocean.
 
 ***
 
-A crab tattered about in the sand before Sasaki. My girlfriend didn't look the slightest scared. It appeared that she got boots on her legs where it was only bare footed only minutes ago.
+A crab tattered about in the sand before Sasaki. My girlfriend didn't look the slightest scared. Only minutes ago, she was barefooted, and now she already got boots on her feets.
 
-Quickly, she stomped the crab in one motion with her left foot. The crab cracked.
+Quickly, she stomped the crab in one motion with her left foot. The crab cracked like a sand of soda, its limbs lashing out in one final death keel before ceasing altogether.
 
 It was unreal and gruesome.
 
 "Do you really need to kill that crab?" I said in dismay.
 
-"What's the problem?" Sasaki asked. "We're getting local food. Don't they said that local is the best."
+"What's the problem?" Sasaki asked. "We're getting local food. Don't they said that local is the best?"
 
 "I am sure that's a myth. But killing an animal is unnecessary when we got a freezer full of artificially grown meat. We're not savages."
 
-"Oh, Mr. Morality, you're going to lecture me on why we should not eat meat when you have been eating meat all your life?"
+"Oh, Mr. Morality, you're going to lecture me on why we should not eat meat when you have been eating meat all your life, especially on Remnant?"
 
 "My contemporary and I got more excuses for it. We don't grow meat cultures."
 
-"Uh huh." Her voice dripped with sarcasm. "In that case, the crab was going to die horribly by being eaten by a predator or some other means. At least this was a quick death."
+"Uh huh." Her voice dripped with sarcasm. "In that case, the crab was going to die horribly by being eaten by a predator or some other means. At least this was a quick death." A quick and painful death, maybe.
 
 I sensed that this wasn't going anywhere. So I decided to drop it.
 
@@ -46,7 +48,7 @@ So crab for breakfast, lunch, and dinner it is.
 
 ***
 
-It was sheer coincidence that I ended up doing the grilling. We did a rock-paper-scissor game to decide our chores, and I happen to end up winning.
+It was sheer coincidence that I ended up doing the grilling, which was traditonally a male role. We did a rock-paper-scissor game to decide our chores, and I happened to end up winning.
 
 So I stood over an open flame letting the artificial meats and crab alike sizzle. Sasaki was out there again, hunting for more meat, and bringing down coconuts.
 
@@ -54,7 +56,7 @@ Diana was nearby, preparing kebabs for me to cook.
 
 "I wanted to know...where are we going from here with this relationship?" Diana broached the topic.
 
-I closed my eyes to think a little bit. "I don't know. I loved you and Sasaki but I probably will not try this again in the foreseeable future." Though I don't think about it much, but I knew that it's unlikely that we will be together forever.
+I closed my eyes to think a little bit. "I don't know. I loved you and Sasaki but I probably will not try this again in any future relationships." Though I don't think about it much, but I knew that it's unlikely that we will be together forever.
 
 Diana snorted. "Oh, what a guy wouldn't give for a harem?"
 
@@ -64,15 +66,15 @@ I turned beet red, turning my head away from her. "Please..."
 
 "Well, I felt like a douchebag for just having the two of you as my girlfriends," I admitted. "It's like the rule of evil or something. It would mark you the greatest level of asshole or something. That's nonsense, but I can't shake it off."
 
-"At least you're not blushing as much as before when I mentioned our status to our friends."
+"At least you're not blushing as much as before. I'll keep doing it until you stopped being so embarrassed and scared."
 
 I could picture in my head the celebrity gossip in the magazine section about boring oh me and my girlfriends. It was not a secret at all. Also unmentioned is going to Diana's family and explaining to them what we are doing. They're not exactly the most open people around.
 
 ***
 
-After some fun and sexy times, we elected to sleep outside under the sky, not even with blankets covering us. Instead, we let the cool air flowed over us. It was a good thing that there will be no inclement weather covering this island tonight. The only sounds were the waves crashing into the sand, which was oddly relaxing. With all the light sources turned off, it was almost entirely dark. Yet, there were an entire ocean of lights emanating from the stars.
+After some fun and sexy times, we elected to sleep outside under the sky, not even with blankets covering us. Instead, we let the cool air flowed over us. It was a good thing that there will be no inclement weather covering this island tonight. The only sounds were the waves crashing into the sands, which added to the positive ambient experience. With all the light sources turned off, it was almost entirely dark. Yet, there were an entire ocean of lights emanating from the stars.
 
-Unsurprisingly, it was like nothing I had seen back in the city where I lived just months before. Light pollution had stolen the view from urban residents.
+Unsurprisingly, it was like nothing I had seen back on Vale. Light pollution had stolen the view from urban residents.
 
 It was a shame that Diana was fast asleep as soon she hit the blanket.
 
