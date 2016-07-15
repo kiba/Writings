@@ -181,4 +181,4 @@ The trio of us scrambled away from the beach, running toward our campsite. The w
 
 "Great, let's us rev up the engine."
 
-Just as the motorboat were closing in, we disappeared into thin air.
+Just as the motorboat was closing in, we disappeared into thin air.
