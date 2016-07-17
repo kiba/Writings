@@ -18,7 +18,10 @@ Just like that, Sasaki was gone.
 
 "We still have to unpack," Diana noted.
 
-"Well, it will keep us busy and not thinking too hard about this situation....I guess"
+"Well, it will keep us busy and not thinking too hard about this situation....I guess."
 
 ***
 **Hours ago...**
+**Cindy Blue**
+
+Correspondent Cindy Blue of the Vale News Network never love her job more than today. She was there, on Sidonia, being one of the few handful Remnan allowed on the ark ship at any given moment.
