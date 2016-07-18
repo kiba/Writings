@@ -6,3 +6,8 @@ def generate_dir dir
     Dir.mkdir("reports/" + dir)
   end
 end
+
+def list_files dir
+  Dir[dir]
+  Dir.glob(dir + "/chp*.md")
+end
