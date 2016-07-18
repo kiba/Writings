@@ -11,3 +11,7 @@ def list_chapters dir
   Dir[dir]
   Dir.glob(dir + "/chp*.md")
 end
+
+def count_words files
+
+end
