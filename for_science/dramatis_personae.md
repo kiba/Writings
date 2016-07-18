@@ -19,14 +19,14 @@ With his engineering knowledge, he used it to reverse engineer the often convolu
 
 As the story progressed, he became less and less important, while still remaining a central character, enabling the process of trans-dimensional travel and the discovery of other civilizations in the multiverse.
 
-Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21, 22
+Appearances: 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21, 22, 23
 
 
 **Diana Rose** - First Appearance: Chapter 7. A mechanical engineer who became a live-in girlfriend after her discovery of Archer's secrets. She has blue eyes, and red hair tied up in a ponytail.
 
 Ex-girlfriend of physicist and mechanical engineer Doctor Rodney McKay.
 
-Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19, 20, 21
+Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19, 20, 21, 22, 23
 
 **Captain Kobayashi** - Commander-in-chief and overall leader of Sidonia. She initially has an antagonistic relationship with the Earthlings as a result of a strong-armed negotiation.
 
@@ -95,6 +95,10 @@ Appearances: 18, 21
 **Lisa Lavender** - Anchorwoman for the Vales News Network.
 
 Appearances: 19
+
+**Cindy Blue** - Correspondent for the Vales News Network.
+
+Appearances: 24
 
 **Blake Belladonna** - A huntress-in-training and teammate of Ruby Rose at Beacon Academy. She wished to meet with James Archer for a discussion about hatred.
 
