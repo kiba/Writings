@@ -7,7 +7,7 @@ def generate_dir dir
   end
 end
 
-def list_files dir
+def list_chapters dir
   Dir[dir]
   Dir.glob(dir + "/chp*.md")
 end
