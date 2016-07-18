@@ -24,4 +24,14 @@ Just like that, Sasaki was gone.
 **Hours ago...**
 **Cindy Blue**
 
-Correspondent Cindy Blue of the Vale News Network never love her job more than today. She was there, on Sidonia, being one of the few handful Remnan allowed on the ark ship at any given moment.
+The rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
+
+Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances through both fashion, body type, and colors. Of Last not lest, they were also foreigners in a very strange and small world.
+
+Blue chewed through her first sushi, trying to get a deep impression of the taste, before swallowing. It was a new...experience.
+
+"So how was it?"
+
+She nodded. "It's good. I am not sure how to describe it? I am not a food critic."
+
+If the Sidonians were cultureless as some Remnan thought, then why do they went through the whole trouble of inventing tasty food? 
