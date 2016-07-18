@@ -112,7 +112,7 @@ Jesus, am I really that terrible? Though my girlfriends do seem to talk amongst 
 
 We stopped talking after that, letting the silence took over. It wasn't long before I fell into a slumber.
 ***
-**October 7, 2015**
+**October 9, 2015**
 
 It was out of the blue. Sasaki interrupted a board game session and called for us to discuss something important, immediately. Though it wasn't so urgent, apparently given that we have teacups and teapots. We assembled in a circle on around of a badly made wooden board I was working on to satisfy my restlessness.
 
