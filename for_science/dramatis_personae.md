@@ -92,11 +92,11 @@ Appearances: 18
 
 Appearances: 18, 21
 
-**Lisa Lavender** - Anchorwoman for the Vales News Network.
+**Lisa Lavender** - Anchorwoman for the Vales News Network who at one time conducted an interview with our protagonist, James Archer.
 
 Appearances: 19
 
-**Cindy Blue** - Correspondent for the Vales News Network.
+**Cindy Blue** - Correspondent for the Vales News Network who is visiting Sidonia.
 
 Appearances: 24
 
