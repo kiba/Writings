@@ -34,4 +34,4 @@ Blue chewed through her first sushi, trying to get a deep impression of the tast
 
 She nodded. "It's good. I am not sure how to describe it? I am not a food critic."
 
-If the Sidonians were cultureless as some Remnan thought, then why do they went through the whole trouble of inventing tasty food? 
+If anything, her stay had not been boring at all.
