@@ -13,5 +13,7 @@ def list_chapters dir
 end
 
 def count_words files
-
+  files.each do
+    
+  end
 end
