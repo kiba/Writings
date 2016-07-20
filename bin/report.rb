@@ -13,7 +13,14 @@ def list_chapters dir
 end
 
 def count_words files
-  files.each do
-    
+  words = 0
+  files.each do |f|
+    content = File.open(f,"r") do |content|
+      content.read()
+    end
+    words += content.split(" ").size()
   end
+  puts words
 end
+
+count_words(list_chapters("for_science"))
