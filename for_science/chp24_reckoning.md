@@ -69,4 +69,18 @@ It didn't take long to input her genetic identity and her public key, and for th
 
 Kobayashi sighed a deep breath before talking. "For your first question, it is largely a question of 'when'. The arrival of the trans-dimensional traveler introduced new thought process and ideas, going around our blind spot. Eventually, sooner or later, this will result in a constitutional crisis, possibly at a bad time. Worse case scenario? We might lose our disunity, even fracturing. Better we deal with it now, rather than later."
 
+Once again, the parliament broke into confused arguments.
+
+"ORDER! ORDER!" the speaker yelled.
+
+This was going to be a long day.
+
 ***
+**Nagai Juri**
+**Conference Room, Sidonia**
+
+The allegation and revelation made by the captain was just too much to process, making debates in parliament impossible to advance.
+
+Representative Nagai Juri was always suspicious of the idea that the mask will avoid assassination, but she avoided voicing that particular concern, not seeing how it was any of her business to interfere with something works.
+
+"Political assassination, illegal genetic engineering and cloning, immortality! All behind our back!" an older representative, Seki Kyuwa complained. 
