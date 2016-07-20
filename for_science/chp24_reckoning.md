@@ -55,6 +55,18 @@ She continued reporting as best as she can, trying to inform viewers about somet
 ***
 **Captain Kobayashi**
 
-Every fiber of her being screamed out at her recklessness. By announcing to the public at large that she is an immortal and revealing her face, she risked the ire of the Sidonian, and opening the way for political violence. It also completely necessary for her to do so.
+As the Sidonian Diet were thrown into parliament, she found herself breathing hard while trying to keep calm. Every part of her were repulsed by her own recklessness. She had just unmasked herself to the public, and revealed herself to be an immortal, and now she felt completely safe, at the mercy of potentially very angry Sidonians. It was at this point that political violence became a very real possibility.
 
-She couldn't risk the collapse of Sidonia, save for the greater certainty of violence directed at her person.
+But it was also necessary. Sidonia was her home, her life, and her family as much as Nagate and Hiroki were. Escape wasn't an option at all. She must held faith in her people and herself to overcome this.
+
+"Order! Order!" the Speaker of the House commanded. The representatives quickly quieted down. "Captain Kobayashi, can you please verify your identity cryptographically to prove that you are not an imposter."
+
+"I will," she answered.
+
+It didn't take long to input her genetic identity and her public key, and for the verification to complete.
+
+"Very good. I will assume for the time being that we aren't being taken for fools. But, Captain, why now? How are you able to be immortal?"
+
+Kobayashi sighed a deep breath before talking. "For your first question, it is largely a question of 'when'. The arrival of the trans-dimensional traveler introduced new thought process and ideas, going around our blind spot. Eventually, sooner or later, this will result in a constitutional crisis, possibly at a bad time. Worse case scenario? We might lose our disunity, even fracturing. Better we deal with it now, rather than later."
+
+***
