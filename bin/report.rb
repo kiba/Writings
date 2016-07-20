@@ -1,4 +1,5 @@
-directories = ["for_science","atg"]
+require "date"
+
 
 def generate_dir dir
   if Dir.exist?("reports/" + dir) == false
@@ -20,7 +21,18 @@ def count_words files
     end
     words += content.split(" ").size()
   end
-  puts words
+  words
 end
 
 count_words(list_chapters("for_science"))
+
+directories = ["for_science","atg"]
+
+directories.each do |d|
+  words = count_words(list_chapters(d))
+  today = Date.today()
+  filename = "reports/" + d + "/" + today.strftime("%Y-%m-%d") + ".md"
+  File.open(filename, "w") {|f|
+    f.write(words.to_s + " total")
+  }
+end
