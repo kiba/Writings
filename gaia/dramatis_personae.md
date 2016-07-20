@@ -1,3 +1,3 @@
-**James Archer** - An overly paranoid anti-government computer nerd, though not a conspiracy theorist type. Black hair, brown eye.
+**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. Black hair, brown eye, and possessing a tall lanky body. He made his accidental fortune through the buying and selling of a new form of internet money. He used his newfound wealth to fund and develop a trans-dimensional travel machine.
 
-**Alice Archer**  - Mother of James Archer. Apple colored hair.
+**Alice Archer**  - James Archer's mother is named Alice Archer, who had passed away. She is still apparently alive on Gaia. She has apple colored hair and is shorter than James. In both realities, she emphasized education for her son, hoping for a better future.
