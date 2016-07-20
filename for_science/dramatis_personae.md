@@ -32,7 +32,7 @@ Appearances: 7, 8, 9, 10, 11, 12, 13, 14, 16, 17, 19, 20, 21, 22, 23
 
 Kobayashi ordered the assassination of the entire immortal council when she viewed them as too disloyal and treasonous to Sidonia. With the elimination of the council, she was given free reign to pursue her trans-dimensional ambition of relocating Sidonians to somewhere safe and fulfill Sidonia's mission as a seedship.
 
-Appearances: 9, 10, 11, 12, 14, 17, 18, 21
+Appearances: 9, 10, 11, 12, 14, 17, 18, 21, 24
 
 **Ochiai** - A cyborg who is a confidant and assistant to Captain Kobayashi.
 
@@ -42,7 +42,7 @@ Appearances: 9, 10
 
 She is fearful of automative travel, thinking that it will kill her at any moment.
 
-Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21
+Appearances: 9, 10, 11, 12, 13, 14, 16, 17, 18, 19, 20, 21, 22, 23, 24
 
 **Yure Shinatose** - Chief Medical Officer of Sidonia. Her major achievement was genetically engineering the population of Sidonia to posess Higeus photosynthesis capability.
 
