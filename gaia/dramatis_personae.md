@@ -1,4 +1,4 @@
-**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. He made his accidental fortune through the buying and selling of a new form of internet money. He used his newfound wealth to fund and develop a trans-dimensional travel machine.
+**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. He made his accidental fortune through the buying and selling of a new form of internet money. He used his newfound wealth to fund and develop a trans-dimensional travel machine. He did not think such a machine would work, but he felt compelled to develop it nonetheless. 
 
 Physical characteristics:
 
