@@ -79,8 +79,22 @@ This was going to be a long day.
 **Nagai Juri**
 **Conference Room, Sidonia**
 
-The allegation and revelation made by the captain was just too much to process, making debates in parliament impossible to advance.
+In a conference room, members of a fraction gathered. 
 
-Representative Nagai Juri was always suspicious of the idea that the mask will avoid assassination, but she avoided voicing that particular concern, not seeing how it was any of her business to interfere with something works.
+Representative Nagai Juri was always suspicious of the captain. She couldn't help but feel that mask was trying to hide something. It turned out that she was right after all, but that wasn't all that she hoped or wished for.
 
-"Political assassination, illegal genetic engineering and cloning, immortality! All behind our back!" an older representative, Seki Kyuwa complained. 
+It would be nice if the conspiracy theories that filled the brains of the deluded were wrong.
+
+"Political assassination, illegal genetic engineering and cloning, immortality! All behind our back!" an older representative, Seki Kyuwa crowed. "How far? How deep?!"
+
+He wildly eyed the people around him. "Some of you could be immortals..."
+
+She put her hand up, signaling for everyone to shut up. "Representative Sako Shiro, I would like you to refrain from spreading paranoia and fear among our elected officials here. We must have faith in the laws and the democratic process even if our captain have subverted the process for hundred of years."
+
+"That's what they want [i]you to say[/i]. All reasonable sounding, but it's a mind control trick! I know it! I opposed the captain all my life. I know all her tricks!" Shiro argued back.
+
+Juri faceplammed, wondering if Shiro was actually an agent of Kobayashi instead.
+
+She grinned silently to herself. If Kobayashi was behind this, there was no possiblity of victory after all. It's all an illusion. A wide pervading conspiracy that one can predict and know about in advanced yet cannot do anything about until now? That's absolutely laughable.
+
+***
