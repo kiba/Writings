@@ -1,4 +1,6 @@
-Our trans-dimensional traveler managed to invent a machine to travel between one universe to another. Unfortunately, it costs a gobble of money and expertise to make and had numerous limitations that boiled down to him being able to make only one journey in a span of twenty four hours. How he got this money? A hard drive full of cash, essentially.
+
+
+James Archer managed to invent a machine to travel between universes.  Unfortunately, it costs a gobble of money and expertise to make and had numerous limitations that boiled down to him being able to make only one journey in a span of twenty four hours. How he got this money? A hard drive full of cash, essentially.
 
 He was certain that it's baloney of an idea(due to physicists rejecting it out of hand as crackpottery and his own skepticalism), but he tried it anyway.
 
