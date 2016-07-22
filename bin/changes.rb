@@ -1,5 +1,7 @@
 require "optparse"
 
+directories = ["for_science","atg"]
+
 options = {}
 OptionParser.new do |opts|
   opts.banner = "Usage: changes.rb [options]"
