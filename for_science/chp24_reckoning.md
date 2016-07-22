@@ -79,7 +79,7 @@ This was going to be a long day.
 **Nagai Juri**
 **Conference Room, Sidonia**
 
-In a conference room, members of a fraction gathered. 
+In a conference room, members of a fraction gathered.
 
 Representative Nagai Juri was always suspicious of the captain. She couldn't help but feel that mask was trying to hide something. It turned out that she was right after all, but that wasn't all that she hoped or wished for.
 
@@ -95,6 +95,34 @@ She put her hand up, signaling for everyone to shut up. "Representative Sako Shi
 
 Juri faceplammed, wondering if Shiro was actually an agent of Kobayashi instead.
 
-She grinned silently to herself. If Kobayashi was behind this, there was no possiblity of victory after all. It's all an illusion. A wide pervading conspiracy that one can predict and know about in advanced yet cannot do anything about until now? That's absolutely laughable.
+She grinned silently to herself. If Kobayashi was behind this, there was no possibility of victory after all. It's all an illusion. A wide pervading conspiracy that one can predict and know about in advanced yet cannot do anything about until now? That's absolutely laughable.
 
 ***
+**October 13, 2016**
+
+Juri stared across the parliament against the opposition leader, member of the pro-Kobayashi fraction.
+
+Despite the captain's confession of her crimes, which she had certified as not under duress, the pro-Kobayashi fraction didn't shrink as fast as she hoped.
+
+No, they were stubborn in their support for the captain, throwing every wrench into any proceeding that they can, persuading people on the fence to support their cause. Why? Just why? The immortals had shamed the name of Sidonia through their illegal activities and social manipulation. If anything, they should be thrown out of the airlock, every single one of them, even the alleged 'hero' Hiroki Saitou. That wasn't likely to happen. Sidonia was too civilized to allow that kind of barbaric things to happen.
+
+"All those who favored the impeachment of Kobayashi and other immortal officers of Sidonia?"
+
+People pressed their button.
+
+The votes were instantaneously tallied after everyone finished. Fifty-three percent voted 'yes'.
+
+She smiled. Yes, this was a victory. Already, she could see the impassive leader's face frown slightly.
+
+**October 14, 2016**
+**James Archer**
+
+Diana did not want to talk to her. She had heard all that things on the beach and it distrubed her. Sasaki was part of that whole conspiracy.
+
+I didn't blame her, but she wasn't the one in love with Sasaki. I was.
+
+Sasaki voluntarily entered detention along with Kobayashi and the others, but she didn't look the slightest happy about it. She looked irritated and angry.
+
+"Hi," I said through a phone in front of a guard. "You looked pissed."
+
+"Damn right, I am. I got time to think about it. Kobayashi screwed up. She couldn't think of anything better to resolve the situation. I am here as part of my duty to Sidonia."
