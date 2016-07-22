@@ -9,6 +9,10 @@ OptionParser.new do |opts|
   opts.on("-t", "--today", "Sum up today's changes compared to last available report.") do |a|
     options[:all] = a
   end
+
+  opts.on("-h", "--help", "Print all commands.") do
+    puts opts
+  end
 end.parse!
 
 p options
