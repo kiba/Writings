@@ -1,4 +1,5 @@
 require "optparse"
+require "date"
 
 directories = ["for_science","atg"]
 
