@@ -2,7 +2,7 @@
 
 James Archer managed to invent a machine to travel between universes.  Unfortunately, it costs a gobble of money and expertise to make and had numerous limitations that boiled down to him being able to make only one journey in a span of twenty four hours. How he got this money? A hard drive full of cash, essentially.
 
-He was certain that it's baloney of an idea(due to physicists rejecting it out of hand as crackpottery and his own skepticalism), but he tried it anyway.
+He was certain that it's baloney of an idea(due to physicists rejecting it out of hand as crackpottery and his own skepticism), but he tried it anyway.
 
 Lo and behold. He jumped to a different dimension, but not without some preparation, such as gold jewelries and a concealed weapon.
 
@@ -18,7 +18,7 @@ Confused, our intrepid traveler journeyed home to this woman's abode.
 
 The woman wanted to know why our protagonist went away to fight in a civil war halfway around for Republican Amerika(I haven't much details on this world other than it's in an equivalent of WW2).
 
-Drama ensues. The traveler realized that this woman is a droppleganger. How should he proceed? Do he take the place of his son? Can he convince her that he's like his son?
+Drama ensues. The traveler realized that this woman is a doppelganger. How should he proceed? Do he take the place of his son? Can he convince her that he's like his son?
 
 He couldn't answer the question about why he's fighting in a country so far away. Instead, he tried to tell the truth.
 
