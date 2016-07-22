@@ -16,5 +16,7 @@ OptionParser.new do |opts|
 end.parse!
 
 if options[:all] == true
-  puts "beep"
+  today = Date.today
+  status = File.exist?("reports/for_science/" + today.to_s + ".md")
+  puts status
 end
