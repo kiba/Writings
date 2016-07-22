@@ -17,6 +17,10 @@ end.parse!
 
 if options[:all] == true
   today = Date.today
-  status = File.exist?("reports/for_science/" + today.to_s + ".md")
-  puts status
+  filename = "reports/for_science/" + today.to_s + ".md"
+  if File.exist?(filename)
+    puts "file exists."
+  else
+    puts "file don't."
+  end
 end
