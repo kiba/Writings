@@ -135,8 +135,51 @@ I could understand her viewpoint, but I still loved Sasaki.
 
 "I-I-I love you." God, that was so cheesy.
 
-She smiled. "That's sweet of you, Archer. But there will always be other fishes in the sea. I haven't been your girlfriend for a long time, but I have a very nice time."
+She smiled. "That's sweet of you, Archer. But there will always be other fishes in the sea. I haven't been your girlfriend for a long time, but it was a very nice time together."
 
-I slumped hard.
 
 **October 15, 2015**
+**Cindy Blue**
+
+How was Cindy Blue supposed to feel about the crisis at hand? There were lockdowns curfew, and yet, there were also reasoned debates by actual citizens.
+
+In fact, as a member of the press, she was given free reign to transmit information back and forth from Sidonia to Remnant, which necessitate the help of James Archer, who was very clearly closely associated with one of the immortals.
+
+The curfews passed quickly and things were already returning to normal. She found herself on the street with her camera crew looking for any passerby.
+
+"Hey, hello?" she said, catching a female Sidonian's attention.
+
+"Excuse me?"
+
+"What do you think of the crisis so far now that things return to normal for the moment?"
+
+"Oh...um...errr..I don't know? Uhhhh. I think the whole idea of a conspiracy is crazy, but evidently it's real...and yet society isn't exploding?"
+
+She sighed to herself. Great. It wasn't only her that felt unsure about this. She pressed on. "What do you think of Kobayashi, who after allegedly hundred of years decided to surrender."
+
+The Sidonian 'hmm' for a bit before answering. "I think what she did that day was brave and moral. Frankly, I don't know of anybody who can do that."
+
+Blue nodded. "Back on Remnant, civil wars and revolutions are generally not peaceful. The people in charge are usually deposed of in some way, sometime ended up being murdered if not simply forced out."
+
+"Umm...we don't have civil war and revolutions on Sidonia. We barely recovered from a near-annihilation a hundred year ago. Or at least that's what the historical archive told us."
+
+"Do you trust the historical archive at all?"
+
+"It's the only thing we can trust, right?"
+
+That's the heart of it. Sidonia didn't tear itself out in an orgy of violence. From what she understood, that could be absolutely disastrous, more disastrous then if it happens on Remnant.
+
+Yet, those people managed to hold on to their sanity, and conduct peacefully among themselves.
+
+That's the really amazing part.
+
+**October 17, 2015**
+**James Archer**
+
+Everything went to shit. Seriously.
+
+I arrived back in my apartment after some grocery shopping and some other business to take care of. Just like that, Diana was gone. She left a fucking note that she couldn't stay with me any longer.
+
+I chose nothing. For Diana, as far as she was concerned, that means choosing Sasaki.
+
+Once again, I slumped down in defeat and started crying.
