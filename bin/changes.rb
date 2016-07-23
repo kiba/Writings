@@ -22,6 +22,10 @@ if options[:today] == true
     dir = "reports/for_science"
     Dir[dir]
     reports = Dir.glob(dir + "/*.md")
+    n = 0
+    reports.each do |report|
+      n += 1
+    end
     puts "file exists."
   else
     puts "Error: today's report haven't been generated."
