@@ -117,12 +117,26 @@ She smiled. Yes, this was a victory. Already, she could see the impassive leader
 **October 14, 2016**
 **James Archer**
 
-Diana did not want to talk to her. She had heard all that things on the beach and it distrubed her. Sasaki was part of that whole conspiracy.
+I was here, alone. Diana decided she wouldn't do anything with Sasaki.
 
-I didn't blame her, but she wasn't the one in love with Sasaki. I was.
+I could understand her viewpoint, but I still loved Sasaki.
 
-Sasaki voluntarily entered detention along with Kobayashi and the others, but she didn't look the slightest happy about it. She looked irritated and angry.
+"Hi," I said through a phone, connecting to the other side. Guards were present on both sides. "How are you?"
 
-"Hi," I said through a phone in front of a guard. "You looked pissed."
+"Holding up. You? How's Diana?"
 
-"Damn right, I am. I got time to think about it. Kobayashi screwed up. She couldn't think of anything better to resolve the situation. I am here as part of my duty to Sidonia."
+"I am doing everything as normal as I can, though my stress level hadn't gone down. Diana's not coming to bat for you."
+
+"Figures. The next thing Diana will do is make you decide between her and me."
+
+"No."
+
+"Yes. Trust me, I been around enough to know how relationships work."
+
+"I-I-I love you." God, that was so cheesy.
+
+She smiled. "That's sweet of you, Archer. But there will always be other fishes in the sea. I haven't been your girlfriend for a long time, but I have a very nice time."
+
+I slumped hard.
+
+**October 15, 2015**
