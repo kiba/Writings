@@ -19,6 +19,9 @@ if options[:today] == true
   today = Date.today
   filename = "reports/for_science/" + today.to_s + ".md"
   if File.exist?(filename)
+    dir = "reports/for_science"
+    Dir[dir]
+    reports = Dir.glob(dir + "/*.md")
     puts "file exists."
   else
     puts "Error: today's report haven't been generated."
