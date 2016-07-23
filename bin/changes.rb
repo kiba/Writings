@@ -21,6 +21,6 @@ if options[:today] == true
   if File.exist?(filename)
     puts "file exists."
   else
-    puts "file don't."
+    puts "Error: today's report haven't been generated."
   end
 end
