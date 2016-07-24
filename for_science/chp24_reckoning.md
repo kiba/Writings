@@ -83,13 +83,29 @@ There she said it. It was like swallowing poison.
 ***
 **October 10, 2015**
 
-Kobayashi overlooked a TDM that was being prepped for departure to Remnant. She was still willing to die for Sidonia, but that doesn't preclude her son. 
+Kobayashi overlooked a TDM that was being prepped for departure to Earth. If she was going to walk into parliament and reveal her face to the public at large, she needed to be assured of her son's safety.
 
-"You don't have to do this," Lala Hiyama said.
+"You know, I never thought I see the day when I stopped wearing the life support suit," Lala Hiyama said. She wasn't dressed in the traditional Sidonian uniform, but instead, twenty-first century clothing.
 
-"Oh, are we talking about turning back?" Kobayashi responded.
+"To be honest, I was never crazy on this whole bear suit idea. Well, you asked, and Ochiai answered."
 
+"I wished...Ochiai didn't go crazy. Ochiai today, he's not...him. He's not the Ochiai I know. He's someone else."
 
+"I know. That's what we have to live with. All those mistakes, we can't undo."
+
+Hiyama nodded. They stood together for a while, before Hiyama left to prepare for departure.
+
+Only several minutes later, it was time. Hiyama linked her hands with Nagate, before climbing onto the TDM.
+
+Finally, they disappeared into thin air.
+
+Thirty minutes later, the TDM returned safely, empty of its human passengers. The records were scrubbed.
+
+It was entirely up to Lala Hiyama to make it work. Luckily, she has been studying Earth customs and languages, and careful preparation had been made to insert Lala Hiyama's existence into the bureaucracy of Japan. It wasn't easy, and only time will tell if it works.
+
+Hopefully, it won't be long before Tanikaze and Hiyama were back on Sidonia.
+
+The safety of her family guaranteed for the moment, Kobayashi steeled herself for the upcoming task, ushering chaos into Sidonia before it's too late.
 
 ***
 
