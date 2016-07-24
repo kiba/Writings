@@ -24,7 +24,7 @@ Just like that, Sasaki was gone.
 **Hours ago...**
 **Cindy Blue**
 
-The rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
+The totally bogus rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
 
 Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances through both fashion, body type, and colors. Of Last not lest, they were also foreigners in a very strange and small world.
 
@@ -53,7 +53,45 @@ No captain had ever revealed their face to the public before...
 She continued reporting as best as she can, trying to inform viewers about something she barely understand herself.
 
 ***
+**October 9, 2015**
 **Captain Kobayashi**
+
+Months had passed, and yet she already found herself in an unenviable position. Kobayashi watched on as her family ate dinner. Her adopted son's eyes were directed at the television, absorbing information about the world that he's still very much learning. Saitou looked at nothing in particular, just bringing food into his mouth.
+
+Sometime they talked during dinners, sometime they don't.
+
+Frequently, Kobayashi didn't eat, as her dietary needs were reduced.
+
+Dinners were nice, relaxing.
+
+Unfortunately, that will soon come to an end. This may be the last dinner the family will ever have together.
+
+Political realities demanded it. Her duties to her people demanded it.
+
+Saitou glanced expectantly at Kobayashi, waiting for her to do her job.
+
+"Nagate?" Kobayashi said.
+
+"Yes, grandma?" the boy responded.
+
+"All of us need to have a very important talk about what's going to happen to us over the next few days."
+
+There she said it. It was like swallowing poison.
+
+"OK."
+
+***
+**October 10, 2015**
+
+Kobayashi overlooked a TDM that was being prepped for departure to Remnant. She was still willing to die for Sidonia, but that doesn't preclude her son. 
+
+"You don't have to do this," Lala Hiyama said.
+
+"Oh, are we talking about turning back?" Kobayashi responded.
+
+
+
+***
 
 As the Sidonian Diet were thrown into parliament, she found herself breathing hard while trying to keep calm. Every part of her were repulsed by her own recklessness. She had just unmasked herself to the public, and revealed herself to be an immortal, and now she felt completely safe, at the mercy of potentially very angry Sidonians. It was at this point that political violence became a very real possibility.
 
@@ -172,14 +210,3 @@ That's the heart of it. Sidonia didn't tear itself out in an orgy of violence. F
 Yet, those people managed to hold on to their sanity, and conduct peacefully among themselves.
 
 That's the really amazing part.
-
-**October 17, 2015**
-**James Archer**
-
-Everything went to shit. Seriously.
-
-I arrived back in my apartment after some grocery shopping and some other business to take care of. Just like that, Diana was gone. She left a fucking note that she couldn't stay with me any longer.
-
-I chose nothing. For Diana, as far as she was concerned, that means choosing Sasaki.
-
-Once again, I slumped down in defeat and started crying.
