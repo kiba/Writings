@@ -52,7 +52,9 @@ Appearances: 9, 21
 
 **Saito Hiroki** - First Appearance: Chapter 10. Mentioned by Diana as the mecha pilot of Tsugumori.
 
-**Lala Hiyama** - First Appearance: Chapter 10. A woman in bear suit who is the dorm mother of a dormitory for Gardes pilot-trainees.
+**Lala Hiyama** - A woman in bear suit who is the dorm mother of a dormitory for Gardes pilot-trainees.
+
+Appearances: 10, 24
 
 **Daichi Chou** - First Appearance: Chapter 14. An engineering advisor from Sidonia.
 
