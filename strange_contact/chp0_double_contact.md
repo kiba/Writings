@@ -3,7 +3,6 @@ A/N: Don't expect any regular updates.
 This is a crossover of two fanfic, nuBSG: The Scattering, and RWBY: Emergence.
 
 And this chapter is quick and dirty, to scratch my itch so I can write more of other things.
----
 
 ---
 
@@ -33,6 +32,6 @@ The president nodded at that. "Let turn our attention to Remnant for a quick mom
 
 Someone handed the POTUS a phone. "Yes. We're already on our way. Actually, I need to tell you something...."
 
-"Mr. President," the national security advisor continued where we left off. "Under a threat from outer space, we should retreat to a nuclear bunker and disperse our functionalities and get our submarines in order, as futile that may be. We do not have any capabilities to counter any orbital strike should they turn out to be hostile."
+"Mr. President," the national security advisor continued where we left off. "Under a threat from outer space, we should retreat to a nuclear bunker and disperse our functionalities and get our submarines in order. It is probably futile, as we do not have any capabilities to counter any orbital strike should they turn out to be hostile, but it's better than nothing."
 
 The meeting wasn't in the least sense of being done, but the president, along with his staff and family began moving to a nearby bunker. DEFCON ONE was declared and the nation was on high alert. In response, other nations on Earth began to mobilize their military and nuclear arsenal.
