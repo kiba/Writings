@@ -100,34 +100,49 @@ She exhaled sharply as she looked upon her people, representatives elected by th
 
 *This is it*, she thought to herself. *No turning back now.*
 
-"Many of you were wondering why you had been called forth to this meeting. I will tell you right now. Months had passed since two of our ancestors, perhaps from a different time, had shown up. We discovered a new world, and a way back to our ancestral home, new scientific fields and technologies. But it also unleashed a torrent of ideas, some criticism and commentary on our society and how we govern ourselves. One that they remarked most often is the use of masks for the highest level of leadership, a position that is unelected."
+"Many of you were wondering why you had been called forth to this meeting. I will tell you right now. As you know, it had been months since James Archer chose to work together with us, providing us both science and technology for trans-dimensional travel. Since then we discovered a new world, and a way back to our ancestral home, new fields of science and technologies. But it also unleashed a torrent of ideas, some criticism and commentary on our society and how we govern ourselves. One that they remarked most often is the use of mask by the highest level of leadership."
 
+Kobayashi unmasked herself at that very moment, revealing a youthful face. The crowd grasps. They had never seen their leader's face before.
 
+She smiled. "I am much older than I looked. The conspiracy theorists have it right. That there is a secret group of immortals that had been ruling this society for centuries."
 
+It was at this moment that the chaos claimed parliament. Some were shouting, other were in disbelef. Some even fainted.
 
-As the Sidonian Diet were thrown into parliament, she found herself breathing hard while trying to keep calm. Every part of her were repulsed by her own recklessness. She had just unmasked herself to the public, and revealed herself to be an immortal, and now she felt completely safe, at the mercy of potentially very angry Sidonians. It was at this point that political violence became a very real possibility.
+Kobayashi's heart beats rapidly. Unease and nervousness invaded every part of her body.
 
-But it was also necessary. Sidonia was her home, her life, and her family as much as Nagate and Hiroki were. Escape wasn't an option at all. She must held faith in her people and herself to overcome this.
+"Order! Order!" the Speaker of the House commanded. To emphasize this stronger, the speaker used a pallet to rein in the chaos.
 
-"Order! Order!" the Speaker of the House commanded. The representatives quickly quieted down. "Captain Kobayashi, can you please verify your identity cryptographically to prove that you are not an imposter."
+The elected officials calmed down rapidly. Afterward, the speaker turned to her.
+
+"Is it true? Are you absolutely telling the truth?" the speaker asked.
+
+"Yes. Every word I said is true. It is at this moment that I am stepping down, leaving everything to Colonel Seii. He did not know about this. "
+
+"Can you please authenticate yourself?"
 
 "I will," she answered.
 
 It didn't take long to input her genetic identity and her public key, and for the verification to complete.
 
-"Very good. I will assume for the time being that we aren't being taken for fools. But, Captain, why now? How are you able to be immortal?"
+The speaker looked at her intently. "The authentication is as good as it can be. I hope this isn't a joke?"
 
-Kobayashi sighed a deep breath before talking. "For your first question, it is largely a question of 'when'. The arrival of the trans-dimensional traveler introduced new thought process and ideas, going around our blind spot. Eventually, sooner or later, this will result in a constitutional crisis, possibly at a bad time. Worse case scenario? We might lose our disunity, even fracturing. Better we deal with it now, rather than later."
+"No, speaker," Kobayashi said. "I am absolutely sane. Everything I said is the truth or can be verified as such. Moreover, it is by necessity that I must speak truth to power for Sidonia to survive. The immortal ship committee must be revealed to the public, including everything it had accomplished, and every crime that was committed under their purview."
 
-Once again, the parliament broke into confused arguments.
+Once again, the parliament broke into chaos.
 
-"ORDER! ORDER!" the speaker yelled.
-
-This was going to be a long day.
+This is going to be a long day.
 
 ***
 **Nagai Juri**
-**Conference Room, Sidonia**
+**A Conference Room, Sidonia**
+
+Nagai Juri walked back and forth. As a member of the assembly, she had seen and heard everything. But this? This just take the cake. She...just couldn't believe it!
+
+As soon as she got out of the room. She was already a believer. Everything was too complicated and complex to be a work of an obviously mad young woman. A young woman that weeks ago was an hostel host, selling a room. She recognized that face.
+
+More so, what she said, alleged that the committee did, do more to stroke paranoia than anything else.
+
+Kobayashi had the entire assembly spellbounded by her allegation for hours.
 
 In a conference room, members of a fraction gathered.
 
