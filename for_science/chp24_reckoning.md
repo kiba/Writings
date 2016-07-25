@@ -1,38 +1,6 @@
 # **Chapter Twenty-four: Reckoning**
 
 ***
-**Hours later**
-**Cindy Blue**
-
-The totally bogus rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
-
-Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances through both fashion, body type, and colors. Of Last not lest, they were also foreigners in a very strange and small world.
-
-Blue chewed through her first sushi, trying to get a deep impression of the taste, before swallowing. It was a new...experience.
-
-"So how was it?"
-
-She nodded. "It's good. I am not sure how to describe it? I am not a food critic."
-
-Cheers and whistles followed. It's obvious that that the Sidonians took pride in their culture, and they should. Never let any Remnan bigots tells them otherwise!
-
-Her previous experience already told them everything she knew. They were not totalitarians as Archer put it.
-
-"Turn on to the news network! There's something happening in the parliament building!" someone shouted.
-
-She did not understood what that someone say, but her gaze were directed to where the television was located in the restaurant.
-
-The screen flickered to a channel, showing the captain taking off her mask to reveal a beautiful woman's face. This was before a sword laid on the table. Murmurs erupted as chaos broke out on television. Incessant shouting and conversations continued as Blue tried to make sense of the context.
-
-No captain had ever revealed their face to the public before...
-
-"Cindy? This is really important," one of the camerman said.
-
-"Oh, right. Let get started then." She postured herself before a rolling camera before launching herself into the performance. "This is Cindy Blue of the Vales News Network. There's something happening in the Sidonian Diet, the primary lawmaking body of the colony..."
-
-She continued reporting as best as she can, trying to inform viewers about something she barely understand herself.
-
-***
 **October 9, 2015**
 **Captain Kobayashi**
 
@@ -87,7 +55,41 @@ Hopefully, it won't be long before Tanikaze and Hiyama were back on Sidonia.
 
 The safety of her family guaranteed for the moment, Kobayashi steeled herself for the upcoming task, ushering chaos into Sidonia before it's too late.
 
+
 ***
+**Hours later**
+**Cindy Blue**
+
+The totally bogus rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
+
+Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances through both fashion, body type, and colors. Of Last not lest, they were also foreigners in a very strange and small world.
+
+Blue chewed through her first sushi, trying to get a deep impression of the taste, before swallowing. It was a new...experience.
+
+"So how was it?"
+
+She nodded. "It's good. I am not sure how to describe it? I am not a food critic."
+
+Cheers and whistles followed. It's obvious that that the Sidonians took pride in their culture, and they should. Never let any Remnan bigots tells them otherwise!
+
+Her previous experience already told them everything she knew. They were not totalitarians as Archer put it.
+
+"Turn on to the news network! There's something happening in the parliament building!" someone shouted.
+
+She did not understood what that someone say, but her gaze were directed to where the television was located in the restaurant.
+
+The screen flickered to a channel, showing the captain taking off her mask to reveal a beautiful woman's face. This was before a sword laid on the table. Murmurs erupted as chaos broke out on television. Incessant shouting and conversations continued as Blue tried to make sense of the context.
+
+No captain had ever revealed their face to the public before...
+
+"Cindy? This is really important," one of the camerman said.
+
+"Oh, right. Let get started then." She postured herself before a rolling camera before launching herself into the performance. "This is Cindy Blue of the Vales News Network. There's something happening in the Sidonian Diet, the primary lawmaking body of the colony..."
+
+She continued reporting as best as she can, trying to inform viewers about something she barely understand herself.
+
+***
+**Kobayashi**
 
 As the Sidonian Diet were thrown into parliament, she found herself breathing hard while trying to keep calm. Every part of her were repulsed by her own recklessness. She had just unmasked herself to the public, and revealed herself to be an immortal, and now she felt completely safe, at the mercy of potentially very angry Sidonians. It was at this point that political violence became a very real possibility.
 
