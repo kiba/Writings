@@ -1,27 +1,7 @@
 # **Chapter Twenty-four: Reckoning**
 
-**James Archer**
-**October 10, 2015**
-**Sidonia**
-
-I stressed out immediately the moment we arrived back on Sidonia. I can already see some very serious grim looking men with the character 'MP' stenciled on their helmet. They were the military police.
-
-We stepped out, still in our swimsuit.
-
-"Miss Sasaki? Will you please come with us to the police station?" a man in suit said. I sworn under my breath.
-
-"See ya later," Sasaki said casually even as she was led away by military police at both of her side.
-
-Just like that, Sasaki was gone.
-
-"God damn it1" I said out loud, frustrated at not being able to help, and worried about the whole damn thing collapsing like a house of cards.
-
-"We still have to unpack," Diana noted.
-
-"Well, it will keep us busy and not thinking too hard about this situation....I guess."
-
 ***
-**Hours ago...**
+**Hours later**
 **Cindy Blue**
 
 The totally bogus rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
@@ -101,7 +81,7 @@ Finally, they disappeared into thin air.
 
 Thirty minutes later, the TDM returned safely, empty of its human passengers. The records were scrubbed.
 
-It was entirely up to Lala Hiyama to make it work. Luckily, she has been studying Earth customs and languages, and careful preparation had been made to insert Lala Hiyama's existence into the bureaucracy of Japan. It wasn't easy, and only time will tell if it works.
+It was entirely up to Lala Hiyama to make it work. Luckily, she has been studying Earth customs and languages, and careful preparation had been made to insert Lala Hiyama's cover existence into the bureaucracy of Japan. It wasn't easy, and only time will tell if it works.
 
 Hopefully, it won't be long before Tanikaze and Hiyama were back on Sidonia.
 
@@ -167,62 +147,3 @@ People pressed their button.
 The votes were instantaneously tallied after everyone finished. Fifty-three percent voted 'yes'.
 
 She smiled. Yes, this was a victory. Already, she could see the impassive leader's face frown slightly.
-
-**October 14, 2016**
-**James Archer**
-
-I was here, alone. Diana decided she wouldn't do anything with Sasaki.
-
-I could understand her viewpoint, but I still loved Sasaki.
-
-"Hi," I said through a phone, connecting to the other side. Guards were present on both sides. "How are you?"
-
-"Holding up. You? How's Diana?"
-
-"I am doing everything as normal as I can, though my stress level hadn't gone down. Diana's not coming to bat for you."
-
-"Figures. The next thing Diana will do is make you decide between her and me."
-
-"No."
-
-"Yes. Trust me, I been around enough to know how relationships work."
-
-"I-I-I love you." God, that was so cheesy.
-
-She smiled. "That's sweet of you, Archer. But there will always be other fishes in the sea. I haven't been your girlfriend for a long time, but it was a very nice time together."
-
-
-**October 15, 2015**
-**Cindy Blue**
-
-How was Cindy Blue supposed to feel about the crisis at hand? There were lockdowns curfew, and yet, there were also reasoned debates by actual citizens.
-
-In fact, as a member of the press, she was given free reign to transmit information back and forth from Sidonia to Remnant, which necessitate the help of James Archer, who was very clearly closely associated with one of the immortals.
-
-The curfews passed quickly and things were already returning to normal. She found herself on the street with her camera crew looking for any passerby.
-
-"Hey, hello?" she said, catching a female Sidonian's attention.
-
-"Excuse me?"
-
-"What do you think of the crisis so far now that things return to normal for the moment?"
-
-"Oh...um...errr..I don't know? Uhhhh. I think the whole idea of a conspiracy is crazy, but evidently it's real...and yet society isn't exploding?"
-
-She sighed to herself. Great. It wasn't only her that felt unsure about this. She pressed on. "What do you think of Kobayashi, who after allegedly hundred of years decided to surrender."
-
-The Sidonian 'hmm' for a bit before answering. "I think what she did that day was brave and moral. Frankly, I don't know of anybody who can do that."
-
-Blue nodded. "Back on Remnant, civil wars and revolutions are generally not peaceful. The people in charge are usually deposed of in some way, sometime ended up being murdered if not simply forced out."
-
-"Umm...we don't have civil war and revolutions on Sidonia. We barely recovered from a near-annihilation a hundred year ago. Or at least that's what the historical archive told us."
-
-"Do you trust the historical archive at all?"
-
-"It's the only thing we can trust, right?"
-
-That's the heart of it. Sidonia didn't tear itself out in an orgy of violence. From what she understood, that could be absolutely disastrous, more disastrous then if it happens on Remnant.
-
-Yet, those people managed to hold on to their sanity, and conduct peacefully among themselves.
-
-That's the really amazing part.
