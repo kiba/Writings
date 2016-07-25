@@ -46,9 +46,9 @@ At least those homework weren't the bullshit mandated by the bureaucrats, or god
 
 As a precaution, General Hammond shut down gate explorations until further notice after the near disastrous black hole incident. An incident review procedure was initialized. Everyone involved in the incident were interviewed by an independent team, who also exhaustively examined everything. Then there were the debriefing with the higher-ups. Finally, changes was made to SGC's standard operating procedures to never let this happen again.
 
-The black hole, however rare and improbable, almost engulfed Stargate Command, and by extension, possibily Earth as well. Surviving by the skin of the teeth and keep going as if it never happened? Unacceptable. 
+The black hole, however rare and improbable, almost engulfed Stargate Command, and perhaps Earth as well. Surviving by the skin of the teeth and keep going as if it never happened? Unacceptable.
 
-Captain Carter's own improvised solution became a ready-made solution and a drill. A shaped charge bomb became reserved for this type of incident as well as several components required for a successful denotation.
+Captain Carter's own improvised solution became a ready-made solution and a new set of exercise. A shaped charge bomb became reserved for this type of incident as well as several components required for a successful denotation.
 
 Pretty soon, Stargate Command personnel will be drilled regularly so that the response can be delivered in the right time. The only problem was that the bomb would refuse to stay parallel to the ground with no practical way to simulate the powerful force of gravity emanating from the stargate.
 
