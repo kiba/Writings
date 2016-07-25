@@ -12,7 +12,7 @@ Frequently, Kobayashi didn't eat, as her dietary needs were reduced.
 
 Dinners were nice, relaxing.
 
-Unfortunately, that will soon come to an end. This may be the last dinner the family will ever have together.
+Unfortunately, that will soon come to an end. This dinner, an activity she came so much to value, may be the family's last.
 
 Political realities demanded it. Her duties to her people demanded it.
 
@@ -55,7 +55,6 @@ Hopefully, it won't be long before Tanikaze and Hiyama were back on Sidonia.
 
 The safety of her family guaranteed for the moment, Kobayashi steeled herself for the upcoming task, ushering chaos into Sidonia before it's too late.
 
-
 ***
 **Hours later**
 **Cindy Blue**
@@ -90,6 +89,21 @@ She continued reporting as best as she can, trying to inform viewers about somet
 
 ***
 **Kobayashi**
+
+She already made sure to schedule the meeting entirely in advanced, after working out the details of hiding Nagate Tanikaze from the ravage and chaos of what was about to happen.
+
+Nonetheless, Kobayashi felt a strong resistance, as she walked past the entrance into the assembly. Guards were on her side, everyone in their seats. They knew nothing. Very few mortals do.
+
+The speaker began formal initialization of the meeting before letting Kobayashi set the stage.
+
+She exhaled sharply as she looked upon her people, representatives elected by the people themselves.
+
+*This is it*, she thought to herself. *No turning back now.*
+
+"Many of you were wondering why you had been called forth to this meeting. I will tell you right now. Months had passed since two of our ancestors, perhaps from a different time, had shown up. We discovered a new world, and a way back to our ancestral home, new scientific fields and technologies. But it also unleashed a torrent of ideas, some criticism and commentary on our society and how we govern ourselves. One that they remarked most often is the use of masks for the highest level of leadership, a position that is unelected."
+
+
+
 
 As the Sidonian Diet were thrown into parliament, she found herself breathing hard while trying to keep calm. Every part of her were repulsed by her own recklessness. She had just unmasked herself to the public, and revealed herself to be an immortal, and now she felt completely safe, at the mercy of potentially very angry Sidonians. It was at this point that political violence became a very real possibility.
 
