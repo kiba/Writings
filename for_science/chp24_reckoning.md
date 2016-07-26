@@ -152,3 +152,39 @@ They were old. Their skins wrinkled, hairs thinned and gray.
 She wondered if there are immortals disguised as old men and women.
 
 Juri even caught a couple of paranoid glares.
+
+How ironic, she thought.
+
+"My fellow representatives..." she said. "I am sure that you are shocked as I am. Paranoia already started to rule us. Already I have been given the stink eyes by some of you here. But to fear me based simply on the party I belonged to? Remember that in such an elaborate conspiracy, they have already run. Whatever their gambit we think we saw, they have another. They are invincible."
+
+"You're right. If we tried to play mind games with them, we already have lost", an old man, Sako Shiro said. "The conspiracy is not based on some impossibly high level cooperation of agents that any conspiracy theorists can see though. They have subverted them after all. But what do you propose, representative Juri? How do we fix this?"
+
+"You think I have a solution? I have only got my bearing on this issue."
+
+"I know what we should already do. We force a transition from the military to the civilian leadership. All this happened was because the military is in charge."
+
+"Do you really absolutely believe that to be the solution? Would it happen any other way around if the civilian leadership is in charge and that the military is not?"
+
+"Regardless, the transition is necessary. We will go home back to Earth. Then we cannot live as if we needed to be at war at all time. What will our ancestors think of us when we stick to our ship cannons and gardes?"
+
+"Shiro, you're getting off topic. Now of all time, you picked this to argue your views."
+
+"I am proposing a solution. You did not have any."
+
+She stared at him with enmity. "I do not know why they keep electing you. But rushing in implementing your program is not the solution."
+
+He sneered. "Keeping the military in charge? They are the one who aided and gave comfort to the 'immortals'."
+
+"They don't know anything."
+
+"Maybe you're one of the immortal's lackey?"
+
+"Excuse me?!"
+
+"That's right. You're a lackey, an advocate for their tyranny."
+
+"Why you!!!"
+
+The conference room broke into chaos as Juri tried to throw a punch, before both were restrained.
+
+***
