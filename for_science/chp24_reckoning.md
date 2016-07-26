@@ -126,7 +126,7 @@ It didn't take long to input her genetic identity and her public key, and for th
 
 The speaker looked at her intently. "The authentication is as good as it can be. I hope this isn't a joke?"
 
-"No, speaker," Kobayashi said. "I am absolutely sane. Everything I said is the truth or can be verified as such. Moreover, it is by necessity that I must speak truth to power for Sidonia to survive. The immortal ship committee must be revealed to the public, including everything it had accomplished, and every crime that was committed under their purview."
+"No, speaker," Kobayashi said. "I am absolutely sound of mind. Everything I said is the truth, but you don't need to believe only my words. I have provided evidence for public consumption, and medicine as well. Medicine that will allow humanity to live long lives without suffering. Regardless of what fate will befell me and my fellow immortals, they are gifts, not to be held hostage in some protracted negotiation."
 
 Once again, the parliament broke into chaos.
 
@@ -136,45 +136,19 @@ This is going to be a long day.
 **Nagai Juri**
 **A Conference Room, Sidonia**
 
-Nagai Juri walked back and forth. As a member of the assembly, she had seen and heard everything. But this? This just take the cake. She...just couldn't believe it!
+An old woman walked back and forth, anxious in her movement. Nagai Juri was a long time member of the assembly and one of the oldest living crewmember, having saw society changed radically before her eyes for the last eighty years or so. Change wasn't some strange thing to her.
 
-As soon as she got out of the room. She was already a believer. Everything was too complicated and complex to be a work of an obviously mad young woman. A young woman that weeks ago was an hostel host, selling a room. She recognized that face.
+But that hostel host! She once vacationed at her hotel! That young woman, an immortal? She couldn't believe her ears and her eyes!
 
-More so, what she said, alleged that the committee did, do more to stroke paranoia than anything else.
+The alleged Kobayashi nonetheless spellbounded the assembly.
 
-Kobayashi had the entire assembly spellbounded by her allegation for hours.
+The worst thing was that she was already a believer in her story. Everything was too complicated and self-consistent to be the work of an insane personality or an enormously elaborate hoax.
 
-In a conference room, members of a fraction gathered.
+More so, what she said, alleged that the committee did, do more to stroke paranoia than anything else. They twisted the words of dissenters and promoted conspiracies about themselves to discredit it in the eyes of the public. Stories and ideas were crafted slowly over time to create blindspots in the public.
+The door opened, members of the assembly flooded in.
 
-Representative Nagai Juri was always suspicious of the captain. She couldn't help but feel that mask was trying to hide something. It turned out that she was right after all, but that wasn't all that she hoped or wished for.
+They were old. Their skins wrinkled, hairs thinned and gray.
 
-It would be nice if the conspiracy theories that filled the brains of the deluded were wrong.
+She wondered if there are immortals disguised as old men and women.
 
-"Political assassination, illegal genetic engineering and cloning, immortality! All behind our back!" an older representative, Seki Kyuwa crowed. "How far? How deep?!"
-
-He wildly eyed the people around him. "Some of you could be immortals..."
-
-She put her hand up, signaling for everyone to shut up. "Representative Sako Shiro, I would like you to refrain from spreading paranoia and fear among our elected officials here. We must have faith in the laws and the democratic process even if our captain have subverted the process for hundred of years."
-
-"That's what they want [i]you to say[/i]. All reasonable sounding, but it's a mind control trick! I know it! I opposed the captain all my life. I know all her tricks!" Shiro argued back.
-
-Juri faceplammed, wondering if Shiro was actually an agent of Kobayashi instead.
-
-She grinned silently to herself. If Kobayashi was behind this, there was no possibility of victory after all. It's all an illusion. A wide pervading conspiracy that one can predict and know about in advanced yet cannot do anything about until now? That's absolutely laughable.
-
-***
-**October 13, 2016**
-
-Juri stared across the parliament against the opposition leader, member of the pro-Kobayashi fraction.
-
-Despite the captain's confession of her crimes, which she had certified as not under duress, the pro-Kobayashi fraction didn't shrink as fast as she hoped.
-
-No, they were stubborn in their support for the captain, throwing every wrench into any proceeding that they can, persuading people on the fence to support their cause. Why? Just why? The immortals had shamed the name of Sidonia through their illegal activities and social manipulation. If anything, they should be thrown out of the airlock, every single one of them, even the alleged 'hero' Hiroki Saitou. That wasn't likely to happen. Sidonia was too civilized to allow that kind of barbaric things to happen.
-
-"All those who favored the impeachment of Kobayashi and other immortal officers of Sidonia?"
-
-People pressed their button.
-
-The votes were instantaneously tallied after everyone finished. Fifty-three percent voted 'yes'.
-
-She smiled. Yes, this was a victory. Already, she could see the impassive leader's face frown slightly.
+Juri even caught a couple of paranoid glares.
