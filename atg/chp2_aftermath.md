@@ -30,7 +30,7 @@ After a good minute or two, the archaeologist found the team's homework. He hand
 
 "I am not just that good at computers. When I was a professor, this is what I always do."
 
-"Daniel, it's not good enough."
+"I am sure you do, but this is not good enough."
 
 The doctor shrugged.
 
