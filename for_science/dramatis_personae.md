@@ -134,8 +134,7 @@ Appearances: 22
 
 Appearances: 24
 
-**Sako Shiro** - Male Sidonian politican who opposed Kobayashi. Ranted out a full blown conspiracy by Kobayashi and the immortal council.
-
+**Sako Shiro** - An elderly male Sidonian politican. Thought to be opposed to the military leadership.
 Appearances: 24
 
 ##Machine Characters
