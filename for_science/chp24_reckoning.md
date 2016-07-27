@@ -157,34 +157,39 @@ How ironic, she thought.
 
 "My fellow representatives..." she said. "I am sure that you are shocked as I am. Paranoia already started to rule us. Already I have been given the stink eyes by some of you here. But to fear me based simply on the party I belonged to? Remember that in such an elaborate conspiracy, they have already run. Whatever their gambit we think we saw, they have another. They are invincible."
 
-"You're right. If we tried to play mind games with them, we already have lost", an old man, Sako Shiro said. "The conspiracy is not based on some impossibly high level cooperation of agents that any conspiracy theorists can see though. They have subverted them after all. But what do you propose, representative Juri? How do we fix this?"
+"You're right. If we tried to play mind games with them, we already have lost", another representative, Sako Shiro said. "The conspiracy is not based on some impossibly high level cooperation of agents that any conspiracy theorists can see though. They have subverted them after all. But what do you propose, representative Juri? How do we fix this?"
 
-"You think I have a solution? I have only got my bearing on this issue."
+"You think I have a solution? I don't have a bearing on the situation in the first place."
 
 "I know what we should already do. We force a transition from the military to the civilian leadership. All this happened was because the military is in charge."
 
 "Do you really absolutely believe that to be the solution? Would it happen any other way around if the civilian leadership is in charge and that the military is not?"
 
-"Regardless, the transition is necessary. We will go home back to Earth. Then we cannot live as if we needed to be at war at all time. What will our ancestors think of us when we stick to our ship cannons and gardes?"
+"A military controlled government by definition is authoritarian. It desired that its members to obey order without question as to carry out its function to protect Sidonia from the gauna threat. We had let that government run amok, never stopping to think about who was behind that mask or about the power structure. An opportunity presented itself to lead the transition to democracy."
 
-"Shiro, you're getting off topic. Now of all time, you picked this to argue your views."
+Juri sneered. "We are already a democracy, and the military adhere closely to the will of the people."
 
-"I am proposing a solution. You did not have any."
+"I doubt that in light of what we are told. How can we trust anyone in the military? For all we know, they might be immortal."
 
-She stared at him with enmity. "I do not know why they keep electing you. But rushing in implementing your program is not the solution."
+"They might be, but haste make waste," Juri countered. "You think there is a solution already before we had ascertained the situation."
 
-He sneered. "Keeping the military in charge? They are the one who aided and gave comfort to the 'immortals'."
-
-"They don't know anything."
-
-"Maybe you're one of the immortal's lackey?"
-
-"Excuse me?!"
-
-"That's right. You're a lackey, an advocate for their tyranny."
-
-"Why you!!!"
-
-The conference room broke into chaos as Juri tried to throw a punch, before both were restrained.
+Shiro scowled as he stepped back into the crowd. "Fine. It looked like nobody agree with me anywhere. But mark my words, you'll come to regret not making the necessary decisive move in time."
 
 ***
+**Takei Nori**
+
+Takei Nori kept flipping through the channel, increasingly agitated that the only thing on there was breaking news over parliament.
+
+He scarely care anymore. This was to be the young person's game. It will be the young who determined the fate of Sidonia, not an old groggy man like him.
+
+Will Sidonia survive? He hoped that they will in this new era, but what can he do?
+
+There was a knock on the door.
+
+He sighed. Are the secret police coming to take him away? Probably not. He answered the door anyway.
+
+"Nagai Juri?" he said, surprised that the representative showed up at his door.
+
+"Good day Takei Nori," she said. "I require your service for Sidonia."
+
+He knew what was going on. There was only one thing he could answer, "What can I do for you?"
