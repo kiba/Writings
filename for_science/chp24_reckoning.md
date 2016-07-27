@@ -4,42 +4,48 @@
 **October 9, 2015**
 **Captain Kobayashi**
 
-Months had passed, and yet she already found herself in an unenviable position. Kobayashi watched on as her family ate dinner. Her adopted son's eyes were directed at the television, absorbing information about the world that he's still very much learning. Saitou looked at nothing in particular, just bringing food into his mouth.
+Kobayashi watched on as her family ate dinner. Her adopted son's eyes were directed at the television, absorbing information about the world that he's still very much learning. Saitou looked at nothing in particular, just bringing food into his mouth.
 
 Sometime they talked during dinners, sometime they don't.
 
-Frequently, Kobayashi didn't eat, as her dietary needs were reduced.
+Frequently, Kobayashi didn't eat, as her body has reduced dietary needs.
 
-Dinners were nice, relaxing.
+Every dinenrs they had was a chance to relax and reconnect together as a family.
 
 Unfortunately, that will soon come to an end. This dinner, an activity she came so much to value, may be the family's last.
 
-Political realities demanded it. Her duties to her people demanded it.
+Political reality are already intruding in, and her duties to her people required a demand.
 
-Saitou glanced expectantly at Kobayashi, waiting for her to do her job.
+Saitou glanced expectantly at Kobayashi, waiting for her to do her job. She nodded.
 
-"Nagate?" Kobayashi said.
+"Nagate?" Kobayashi said suddenly.
 
 "Yes, grandma?" the boy responded.
 
 "All of us need to have a very important talk about what's going to happen to us over the next few days."
 
-There she said it. It was like swallowing poison.
+There she said it. It was like swallowing glasses.
 
 "OK."
 
 ***
 **October 10, 2015**
 
-Kobayashi overlooked a TDM that was being prepped for departure to Earth. If she was going to walk into parliament and reveal her face to the public at large, she needed to be assured of her son's safety.
+From a gantry walkway, Kobayashi overlooked a TDM that was being prepped for departure to Earth. If she was going to walk into parliament and reveal her face to the public at large, she needed to be assured of her son's safety.
 
 "You know, I never thought I see the day when I stopped wearing the life support suit," Lala Hiyama said. She wasn't dressed in the traditional Sidonian uniform, but instead, twenty-first century clothing.
 
-"To be honest, I was never crazy on this whole bear suit idea. Well, you asked, and Ochiai answered."
+"To be honest, I was never crazy on this whole bear suit idea," Kobayashi said. "You asked, and Ochiai obliged."
+
+Hiyama's eyes were suddenly downcast.
 
 "I wished...Ochiai didn't go crazy. Ochiai today, he's not...him. He's not the Ochiai I know. He's someone else."
 
-"I know. That's what we have to live with. All those mistakes, we can't undo."
+"I know. That's what we have to live with. We can't undo the mistakes of the past."
+
+"I'll try my best to make Tanikaze's live comfortable."
+
+"I know that you will do what I ask you to do. Nagate Tanikaze is innocent in all of this."
 
 Hiyama nodded. They stood together for a while, before Hiyama left to prepare for departure.
 
@@ -49,7 +55,7 @@ Finally, they disappeared into thin air.
 
 Thirty minutes later, the TDM returned safely, empty of its human passengers. The records were scrubbed.
 
-It was entirely up to Lala Hiyama to make it work. Luckily, she has been studying Earth customs and languages, and careful preparation had been made to insert Lala Hiyama's cover existence into the bureaucracy of Japan. It wasn't easy, and only time will tell if it works.
+It was entirely up to Lala Hiyama to make it work. The woman has already been studying Earth customs and languages, even going so far as to occasionally visit Earth. Careful preparation had been made to insert Lala Hiyama's cover existence into the bureaucracy of Japan. It wasn't easy, and only time will tell if it works.
 
 Hopefully, it won't be long before Tanikaze and Hiyama were back on Sidonia.
 
@@ -59,9 +65,9 @@ The safety of her family guaranteed for the moment, Kobayashi steeled herself fo
 **Hours later**
 **Cindy Blue**
 
-The totally bogus rumors of the Sidonians never having any culture can't scarcely be further away from the truth, especially when correspondent Cindy Blue swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network.
+The Sidonians? Having no culture at all and no emotion? Clearly a bunch of hogwash even before she stepped inside a TDM and transited to Sidonia. It was not true on Remnant, and certainly not true on Sidonia, especially when correspondent Cindy Blue just swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network. There's no way such yummy cuisine could be created without a vibrant culture.
 
-Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances through both fashion, body type, and colors. Of Last not lest, they were also foreigners in a very strange and small world.
+Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances. The sidonians all wore one uniform for their day to day business and she was told that the first generation after the apocalypse were the products of genetic engineerings. As a result, they often looked very much the same.
 
 Blue chewed through her first sushi, trying to get a deep impression of the taste, before swallowing. It was a new...experience.
 
@@ -71,15 +77,15 @@ She nodded. "It's good. I am not sure how to describe it? I am not a food critic
 
 Cheers and whistles followed. It's obvious that that the Sidonians took pride in their culture, and they should. Never let any Remnan bigots tells them otherwise!
 
-Her previous experience already told them everything she knew. They were not totalitarians as Archer put it.
+Her previous experience already told them everything she knew. They were not 'totalitarians' as Archer put it.
 
 "Turn on to the news network! There's something happening in the parliament building!" someone shouted.
 
-She did not understood what that someone say, but her gaze were directed to where the television was located in the restaurant.
+She did not understood what that someone say, but her gaze were already directed to where the television was located in the restaurant.
 
 The screen flickered to a channel, showing the captain taking off her mask to reveal a beautiful woman's face. This was before a sword laid on the table. Murmurs erupted as chaos broke out on television. Incessant shouting and conversations continued as Blue tried to make sense of the context.
 
-No captain had ever revealed their face to the public before...
+She was told that no captain had ever revealed their face to the public before...
 
 "Cindy? This is really important," one of the camerman said.
 
@@ -90,7 +96,7 @@ She continued reporting as best as she can, trying to inform viewers about somet
 ***
 **Kobayashi**
 
-She already made sure to schedule the meeting entirely in advanced, after working out the details of hiding Nagate Tanikaze from the ravage and chaos of what was about to happen.
+She already made sure to schedule the meeting entirely in advanced, after making sure that Nagate Tanikaze escaped safely to Earth.
 
 Nonetheless, Kobayashi felt a strong resistance, as she walked past the entrance into the assembly. Guards were on her side, everyone in their seats. They knew nothing. Very few mortals do.
 
@@ -100,7 +106,7 @@ She exhaled sharply as she looked upon her people, representatives elected by th
 
 *This is it*, she thought to herself. *No turning back now.*
 
-"Many of you were wondering why you had been called forth to this meeting. I will tell you right now. As you know, it had been months since James Archer chose to work together with us, providing us both science and technology for trans-dimensional travel. Since then we discovered a new world, and a way back to our ancestral home, new fields of science and technologies. But it also unleashed a torrent of ideas, some criticism and commentary on our society and how we govern ourselves. One that they remarked most often is the use of mask by the highest level of leadership."
+"Many of you were wondering why you just been called forth to this meeting. I will tell you right now. As you know, it had been months since James Archer chose to work together with us, providing us both science and technology for trans-dimensional travel. Since then we discovered a new world, and a way back to our ancestral home, new fields of science and technologies. But it also unleashed a torrent of ideas, some criticism and commentary on our society and how we govern ourselves. One that they remarked most often is the use of the masks by the highest level of leadership."
 
 Kobayashi unmasked herself at that very moment, revealing a youthful face. The crowd grasps. They had never seen their leader's face before.
 
@@ -138,16 +144,17 @@ This is going to be a long day.
 
 An old woman walked back and forth, anxious in her movement. Nagai Juri was a long time member of the assembly and one of the oldest living crewmember, having saw society changed radically before her eyes for the last eighty years or so. Change wasn't some strange thing to her.
 
-But that hostel host! She once vacationed at her hotel! That young woman, an immortal? She couldn't believe her ears and her eyes!
+But that hostel host! She once vacationed at her business place! That young woman, an immortal? She couldn't believe her ears and her eyes!
 
 The alleged Kobayashi nonetheless spellbounded the assembly.
 
 The worst thing was that she was already a believer in her story. Everything was too complicated and self-consistent to be the work of an insane personality or an enormously elaborate hoax.
 
 More so, what she said, alleged that the committee did, do more to stroke paranoia than anything else. They twisted the words of dissenters and promoted conspiracies about themselves to discredit it in the eyes of the public. Stories and ideas were crafted slowly over time to create blindspots in the public.
+
 The door opened, members of the assembly flooded in.
 
-They were old. Their skins wrinkled, hairs thinned and gray.
+Many of them were middle age or older. Their skins wrinkled, hairs thinned and gray.
 
 She wondered if there are immortals disguised as old men and women.
 
@@ -155,7 +162,7 @@ Juri even caught a couple of paranoid glares.
 
 How ironic, she thought.
 
-"My fellow representatives..." she said. "I am sure that you are shocked as I am. Paranoia already started to rule us. Already I have been given the stink eyes by some of you here. But to fear me based simply on the party I belonged to? Remember that in such an elaborate conspiracy, they have already run. Whatever their gambit we think we saw, they have another. They are invincible."
+"My fellow representatives..." she said. "I am sure that you are shocked as I am. Paranoia already started to rule us. Already I have been given the stink eyes by some of you here. But to fear me based simply on the party I belonged to? Remember that in such an elaborate conspiracy, they have already won. Whatever their gambit we think we saw, they have another. They are invincible. We have to assume that more is not amongst us, or we risk immense civil disorder."
 
 "You're right. If we tried to play mind games with them, we already have lost", another representative, Sako Shiro said. "The conspiracy is not based on some impossibly high level cooperation of agents that any conspiracy theorists can see though. They have subverted them after all. But what do you propose, representative Juri? How do we fix this?"
 
@@ -180,7 +187,7 @@ Shiro scowled as he stepped back into the crowd. "Fine. It looked like nobody ag
 
 Takei Nori kept flipping through the channel, increasingly agitated that the only thing on there was breaking news over parliament.
 
-He scarely care anymore. This was to be the young person's game. It will be the young who determined the fate of Sidonia, not an old groggy man like him.
+He scarcely care anymore. This was to be the young person's game. It will be the young who determined the fate of Sidonia, not an old groggy man like him.
 
 Will Sidonia survive? He hoped that they will in this new era, but what can he do?
 
