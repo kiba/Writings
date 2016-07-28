@@ -166,37 +166,35 @@ How ironic, she thought.
 
 "You're right. If we tried to play mind games with them, we already have lost", another representative, Sako Shiro said. "The conspiracy is not based on some impossibly high level cooperation of agents that any conspiracy theorists can see though. They have subverted them after all. But what do you propose, representative Juri? How do we fix this?"
 
-"You think I have a solution? I don't have a bearing on the situation in the first place."
+"You think I already have a solution? I don't have a bearing on the situation in the first place."
 
 "I know what we should already do. We force a transition from the military to the civilian leadership. All this happened was because the military is in charge."
 
 "Do you really absolutely believe that to be the solution? Would it happen any other way around if the civilian leadership is in charge and that the military is not?"
 
-"A military controlled government by definition is authoritarian. It desired that its members to obey order without question as to carry out its function to protect Sidonia from the gauna threat. We had let that government run amok, never stopping to think about who was behind that mask or about the power structure. An opportunity presented itself to lead the transition to democracy."
+"A military controlled government by definition is authoritarian. It desired that its members to obey order without question in order to carry out its function to protect Sidonia from the gauna threat. In our hope for the ultimate survival of humanity, we let that government run amok, never stopping to think about who was behind that mask or thinking much of the power structure. Now, an opportunity presented itself for us to lead the transition to democracy."
 
 Juri sneered. "We are already a democracy, and the military adhere closely to the will of the people."
 
-"I doubt that in light of what we are told. How can we trust anyone in the military? For all we know, they might be immortal."
+"I doubt that in light of what we were told. How can we trust anyone in the military? For all we know, they might be immortal."
 
-"They might be, but haste make waste," Juri countered. "You think there is a solution already before we had ascertained the situation."
+"They might be, but haste make waste," Juri countered. "And you think you already know what's going and what the solution is even before an official investigation took place."
 
-Shiro scowled as he stepped back into the crowd. "Fine. It looked like nobody agree with me anywhere. But mark my words, you'll come to regret not making the necessary decisive move in time."
+Shiro scowled as he stepped back into the crowd. "Fine. It looked like nobody here agreed with me anyway. But mark my words, you'll come to regret not making the necessary decisive move in time."
 
 ***
 **Takei Nori**
 
-Takei Nori kept flipping through the channel, increasingly agitated that the only thing on there was breaking news over parliament.
+Takei Nori kept flipping through the channel, increasingly agitated that the only thing on there was breaking news over parliament. It was very important news and so it was highly justified to be spread across all the channels.
 
-He scarcely care anymore. This was to be the young person's game. It will be the young who determined the fate of Sidonia, not an old groggy man like him.
+Yet, this was to be the young person's game. They got their whole life ahead of them. So what if tyranny had infested Sidonia from its very foundation? An old man like him will soon be dead anyway.
 
-Will Sidonia survive? He hoped that they will in this new era, but what can he do?
-
-There was a knock on the door.
+A doorbell rung.
 
 He sighed. Are the secret police coming to take him away? Probably not. He answered the door anyway.
 
 "Nagai Juri?" he said, surprised that the representative showed up at his door.
 
-"Good day Takei Nori," she said. "I require your service for Sidonia."
+"Good day Takei Nori," she said. "I require your service for Sidonia, immediately."
 
-He knew what was going on. There was only one thing he could answer, "What can I do for you?"
+He knew absolutely what was going on. There was an etho drilled to him from the day he was born. An obligation of duty that he cannot deny, for it meant death for this small world. There was only one thing he could answer, "What can I do for you?"
