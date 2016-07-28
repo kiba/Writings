@@ -4,13 +4,15 @@
 **October 9, 2015**
 **Captain Kobayashi**
 
-Kobayashi watched on as her family ate dinner. Her adopted son's eyes were directed at the television, absorbing information about the world that he's still very much learning. Saitou looked at nothing in particular, just bringing food into his mouth.
+Kobayashi watched on as her family ate dinner. Her adopted son's eyes were directed at the television, absorbing information about the world that he's still very much learning. Years of living underground limited his knowledge, leaving him more than most, unprepared to handle the rapidly changing world. With ernest effort, he's in a better place now.
+
+Saitou, on the other hand, looked at nothing in particular, just bringing food into his mouth and going through the motion of mechanically chewing the food before swallowing. It was still alright. Who was she to demand that Hiroki Saitou to be happy for all occasion?
 
 Sometime they talked during dinners, sometime they don't.
 
 Frequently, Kobayashi didn't eat, as her body has reduced dietary needs.
 
-Every dinenrs they had was a chance to relax and reconnect together as a family.
+Every dinner they had was a chance to relax and reconnect together as a family. That's what important.
 
 Unfortunately, that will soon come to an end. This dinner, an activity she came so much to value, may be the family's last.
 
@@ -33,7 +35,7 @@ There she said it. It was like swallowing glasses.
 
 From a gantry walkway, Kobayashi overlooked a TDM that was being prepped for departure to Earth. If she was going to walk into parliament and reveal her face to the public at large, she needed to be assured of her son's safety.
 
-"You know, I never thought I see the day when I stopped wearing the life support suit," Lala Hiyama said. She wasn't dressed in the traditional Sidonian uniform, but instead, twenty-first century clothing.
+"You know, I never thought I see the day when I stopped wearing the life support suit," Lala Hiyama said. The woman no longer looked like a bear. She wasn't even dressed in the traditional Sidonian uniform, but instead, twenty-first century clothing.
 
 "To be honest, I was never crazy on this whole bear suit idea," Kobayashi said. "You asked, and Ochiai obliged."
 
@@ -65,9 +67,9 @@ The safety of her family guaranteed for the moment, Kobayashi steeled herself fo
 **Hours later**
 **Cindy Blue**
 
-The Sidonians? Having no culture at all and no emotion? Clearly a bunch of hogwash even before she stepped inside a TDM and transited to Sidonia. It was not true on Remnant, and certainly not true on Sidonia, especially when correspondent Cindy Blue just swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network. There's no way such yummy cuisine could be created without a vibrant culture.
+The Sidonians? Having no culture at all and no emotion? Clearly a bunch of hogwash even before she stepped inside a TDM and transited to Sidonia. It was not true on Remnant, and certainly not true on Sidonia itself, especially when correspondent Cindy Blue just swallowed her first sushi in a lively and beautiful restaurant in front of the camera crew for the Vales News Network. There's no way such yummy cuisine could be created without a vibrant culture.
 
-Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances. The sidonians all wore one uniform for their day to day business and she was told that the first generation after the apocalypse were the products of genetic engineerings. As a result, they often looked very much the same.
+Surrounding her was a whole bunch of same-face in their characteristic uniform intently watching her. The Vale News crew were an obvious aberration in the order of things, standing out not only with camera equipment, but also with more variation of appearances. The Sidonians all wore one uniform for their day to day business. She was also told that the first generation after the apocalypse were the products of genetic engineerings. As a result, they often looked very similiar to each other.
 
 Blue chewed through her first sushi, trying to get a deep impression of the taste, before swallowing. It was a new...experience.
 
@@ -132,11 +134,11 @@ It didn't take long to input her genetic identity and her public key, and for th
 
 The speaker looked at her intently. "The authentication is as good as it can be. I hope this isn't a joke?"
 
-"No, speaker," Kobayashi said. "I am absolutely sound of mind. Everything I said is the truth, but you don't need to believe only my words. I have provided evidence for public consumption, and medicine as well. Medicine that will allow humanity to live long lives without suffering. Regardless of what fate will befell me and my fellow immortals, they are gifts, not to be held hostage in some protracted negotiation."
+"No, speaker," Kobayashi said. "I am absolutely sound of mind. Everything I said is the truth, but you don't need to believe only my words. I have provided evidence for public consumption. More importantly, there's medicine available as well. Medicine that will allow humanity to live long lives without suffering the ravage of aging. Regardless of what fate will befell me and my fellow immortals, they are gifts, not to be held hostage in some protracted negotiation."
 
 Once again, the parliament broke into chaos.
 
-This is going to be a long day.
+This was going to be a long day.
 
 ***
 **Nagai Juri**
@@ -168,7 +170,7 @@ How ironic, she thought.
 
 "You think I already have a solution? I don't have a bearing on the situation in the first place."
 
-"I know what we should already do. We force a transition from the military to the civilian leadership. All this happened was because the military is in charge."
+"I know what we should already do. We should force a transition from the military to the civilian leadership. All this happened was because the military is in charge."
 
 "Do you really absolutely believe that to be the solution? Would it happen any other way around if the civilian leadership is in charge and that the military is not?"
 
@@ -181,6 +183,8 @@ Juri sneered. "We are already a democracy, and the military adhere closely to th
 "They might be, but haste make waste," Juri countered. "And you think you already know what's going and what the solution is even before an official investigation took place."
 
 Shiro scowled as he stepped back into the crowd. "Fine. It looked like nobody here agreed with me anyway. But mark my words, you'll come to regret not making the necessary decisive move in time."
+
+He melted away into crowd, letting other voices be heard.
 
 ***
 **Takei Nori**
@@ -197,4 +201,4 @@ He sighed. Are the secret police coming to take him away? Probably not. He answe
 
 "Good day Takei Nori," she said. "I require your service for Sidonia, immediately."
 
-He knew absolutely what was going on. There was an etho drilled to him from the day he was born. An obligation of duty that he cannot deny, for it meant death for this small world. There was only one thing he could answer, "What can I do for you?"
+He knew absolutely what was going on. There was an etho drilled into him from the day he was born. An obligation of duty that he cannot deny, for it meant death for this small world. There was only one thing he could answer, "What can I do for you?"
