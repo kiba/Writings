@@ -60,7 +60,7 @@ Still, it would be on her head if anything were to be missing. So Carter was inv
 
 These are the latest cesium atomic clock. She came up with a proposal to tie the atomic clock to the SGC sensor grid and to the DHD to act as an early warning system for faster than normal time dilation. Time dilation was a fact of physics in this universe, even on Earth, though it depend on where you are at any given moment.
 
-Physics wise, it shouldn't be anything out of her depth. Einstein's theory of relativity came into play, but not hyperspace, faster than light, or subspace. Any of those concepts would give the best physicists a headache any time of the day, and she was one of the best.
+Physics wise, it shouldn't be anything out of her depth. Einstein's theory of relativity came into play, but not hyperspace, faster than light, or subspace. Any of those concepts would give her a  hugeheadache any time of the day, and she was one of the best of her generation.
 
 There was a knock on the door.
 
@@ -82,14 +82,12 @@ On the contrary, they can be excellent warriors and soldiers, as good as any Tau
 
 "3...2...1....begin."
 
-His opponents rushed the Jaffa as soon as they began. The First Prime grabbed the nearest Tau'ri and made him the victim of a blue on blue attack.
+His opponents rushed the Jaffa as soon as they began. The First Prime grabbed the nearest Tau'ri, allowing to be punched by another airman. He dropped the opponent on the ground, and grabbed another man before dropping him to the ground.
 
-He soon made quick work of the rest of his sparring partners, almost as if Teal'c was in a martial art movie. Finally, with all five airmen scrawling on the ground, Teal'c bowed to the sounds of applause from the spectators.
+He soon made quick work of the rest of his sparring partners, almost as if Teal'c was in a martial art movie. Finally, with all five airmen scrawling on the ground, Teal'c bowed.
 
-By then, the Tau'ri were used to this display of skills from a century old warrior.
+Polite applause came. By then, the Tau'ri were used to this display of skills from a century old warrior.
 
 "Anyone would like to try?" he asked the audience.
 
 Several hands rose. Teal'c picked at individuals he hadn't seen recently. Several more bouts to go before he would proceed to showing a new kata.
-
-Two hours had passed and Teal'c was finally done with the class.
