@@ -106,7 +106,7 @@ The speaker began formal initialization of the meeting before letting Kobayashi 
 
 She exhaled sharply as she looked upon her people, representatives elected by the people themselves.
 
-*This is it*, she thought to herself. *No turning back now.*
+[i]This is it[/i], she thought to herself. [i]No turning back now.[/i]
 
 "Many of you were wondering why you just been called forth to this meeting. I will tell you right now. As you know, it had been months since James Archer chose to work together with us, providing us both science and technology for trans-dimensional travel. Since then we discovered a new world, and a way back to our ancestral home, new fields of science and technologies. But it also unleashed a torrent of ideas, some criticism and commentary on our society and how we govern ourselves. One that they remarked most often is the use of the masks by the highest level of leadership."
 
