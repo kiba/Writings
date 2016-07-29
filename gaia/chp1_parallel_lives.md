@@ -1,18 +1,19 @@
 # Chapter One: Parallel Lives
 
-Given an infinite universe, you'll get an infinite copies of Earth. Branching universes as a result of quantum physics mean an infinite timeline of each Earth in the universe.
 
-Some say that the multiverse could contain literally everything. Every story of fiction is true, they say. Not so; the law of causality must hold sway. That rule is ironclad. For every effect, there must be a cause. The law of physics may differ from universe to universe, but causality is ironclad.
+The earliest memory that James remembered was a peculiar dream that kept repeating throughout his childhood. A black obsidan ball of some sort, dull in reflection, suddenly shattered into multiple directions into the totally black background. That was the clearest part.
 
-So, even in the infinities of universes, there's necessarily universes that cannot exist. Not all fiction is true.
+What wasn't always clear was what happened after that. Over the course of many dreams, he can discern a theme. A piece of the obsidian ball, a shard, sometime big, sometime small, always landed in the vincity of a boy and a mother. The location was always different blue and brown ball, with swiveling white clouds. Maybe it was nighttime, so in that case, it was frequently black with pinprick of light, or sometime nothing at all.
 
-However to date, nobody can conceive of any way to travel between those universes. What if one can? What could be the consequences?
+***
+**Five years old**
 
-There are many possibilities to play with...
+Alice Archer wondered what was that all about.
 
+Lately, her son kept drawing the same thing over and over again over the last few days. The drawings wasn't always the same, but it always depicted some sort of black ball, sometime in the process of shattering.
 
----
+She wondered what did she expose her son to.
 
-A structure shattered into the multiverse; breaking off into self-contained shards. Finite in number, they searched across realities for individuals with the same genetic code and base personalities.
+There wasn't any books or television program that she exposed to what would impress her son on this drawing.
 
----
+"That's great!" she praised as her son completed yet another drawing. 
