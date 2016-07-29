@@ -24,3 +24,33 @@ He heard the footsteps of Glynda Goodwitch.
 "Still working out the Sidonian crisis?"
 
 "I have no doubt about the importance of the arkship to our future. I just don't understand the direction that Sidonia will take. Maybe the Sidonians don't themselves either. This is an unprecedented situation."
+
+"Governments change from time to time in both of their histories."
+
+"But they don't really match up, do they? Professor Obleck said that history don't repeat itself, but it rhymes."
+
+Goodwitch watched the broadcast for a bit. The correspondent, Cindy Blue was interviewing a man named Sako Shiro, rambling on about democracy and civilian rule.
+
+"Democracies. I don't understand how they work."
+
+Ozpin chuckled. "They don't, not really. They have a highly qualified civil service branch that papered over much of that. Unlike here, they seemed to believe that democracy is a direct expression of liberty, but they also have check and balance that ensured that the individuals are not run over."
+
+Goodwitch scoffed. "Sounded like a contradictory system."
+
+"It is what it is. If you look at ours, it's not like we're any better. We have a system that works, mostly."
+
+"They're going through a crisis, right now."
+
+"And we been through ours several decades ago. Their system works for over a century until this trans-reality revolution happens."
+
+"We disgress long enough, what's your feel for this situation?"
+
+Ozpin sighed. "The worst case scenario would be that they turned militant, turn their eyes on us and Earth. I don't see it as likely. Their leadership and politicans extended their hands out to us, and Cindy Blue is still on Sidonia."
+
+"She seemed totally unconcerned."
+
+"I agreed. The fact that they haven't banned us and allowed coverage for Remnant is good news. We could similarly consider isolationism an unlikely possibility. Of course, it's still early days, so we should not be caught off-guard."
+
+"And your likely scenarios? More optimistic?"
+
+"More optimistic yes. We might get a flood of refugees or migrants. I believed the councilmembers are hoping for exactly that. "
