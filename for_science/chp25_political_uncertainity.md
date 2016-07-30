@@ -62,3 +62,26 @@ Ozpin sighed. "The worst case scenario would be that they turned militant, turn 
 "I can see the worry, but I just don't know how we would effect the outcome to our favor."
 
 "That's why the four kingdoms are sending diplomats. We're trying to connect with as many fraction as possible, get more ears on their ground floor, and hope that we'll be able to continue our relationship as before."
+
+Goodwitch sighed. "It seems that we huntsmen are unable to contribute a solution to this crisis. I guess our students won't be able to complain about their humanity classes for quite awhile..."
+
+"The best we can do is simply watch and re-adjust..."
+
+***
+**Takei Nori**
+
+It was a white room, completely clinical and utterly devoid of almost all features. A beautiful woman sat before him.
+
+He knew that she wasn't a young woman. Allegedly, she is one of those immortals that ruled Sidonia from behind, now unseated from their powers. its members either fleeing away from authority or are on the run.
+
+"You are six hundred years old," Takei Nori said. "Yet only until five days ago, you revealed your existence to us. I was dragged out of retirement simply because they couldn't trust all the youthful faces. This is the younger generation's problem, not mine. I am about to bite the dust."
+
+"The situation changed. There's a medicine out there that will make this your problem."
+
+"My problem? I don't trust a word out of your mouth. You see...you lied to us for my whole life. You think I can turn around and just ingest a new type of pill that hadn't been verified by the medical committee, a committee that's potentially compromised by more of those 'youthful' faces?"
+
+"I eliminated most of the immortal ship committee. They can't be everywhere at once."
+
+"Yeah, that's just another problem. You murdered them, or you ordered that assistant of your to assassinate them. That mean that you were living in an abnormal environment that twisted your morality and thought process."
+
+"Now that's in the open. That will no longer be an issue."
