@@ -25,9 +25,9 @@ He heard the footsteps of Glynda Goodwitch.
 
 "I have no doubt about the importance of the arkship to our future. I just don't understand the direction that Sidonia will take. Maybe the Sidonians don't themselves either. This is an unprecedented situation."
 
-"Governments change from time to time in both of their histories."
+"Governments change from time to time in both of their histories and ours."
 
-"But they don't really match up, do they? Professor Obleck said that history don't repeat itself, but it rhymes."
+"But they don't really match up, do they? Professor Obleck said that history don't really repeat itself, but it rhymes."
 
 Goodwitch watched the broadcast for a bit. The correspondent, Cindy Blue was interviewing a man named Sako Shiro, rambling on about democracy and civilian rule.
 
@@ -51,6 +51,14 @@ Ozpin sighed. "The worst case scenario would be that they turned militant, turn 
 
 "I agreed. The fact that they haven't banned us and allowed coverage for Remnant is good news. We could similarly consider isolationism an unlikely possibility. Of course, it's still early days, so we should not be caught off-guard."
 
-"And your likely scenarios? More optimistic?"
+"The next likely scenario?"
 
-"More optimistic yes. We might get a flood of refugees or migrants. I believed the councilmembers are hoping for exactly that. "
+"We might get a flood of refugees or aslyum seekers. I believed our political masters are hoping exactly for that, but I explicitly forewarned them not to expect any aslyum applications. Even if we were to accept aslyum seekers sometime in the near future, integration is also a concern. Professor Oobleck pointed out that Remnant do not have any experience in assimilating foreign people into any of our kingdoms."
+
+"The Sidonians are easily the most educated people I know. I can see why they want to snap them up."
+
+"Indeed, they would prove a boon to our kingdoms, but as is, we already are benefiting from them. We also need to consider the negatives of a weakened kingdom of the ark. Supposed that there are aslyum seekers, but not to enough to offset the damage to our trade relationship. If they pulled back to focus on their own internal affair, we would lose out."
+
+"I can see the worry, but I just don't know how we would effect the outcome to our favor."
+
+"That's why the four kingdoms are sending diplomats. We're trying to connect with as many fraction as possible, get more ears on their ground floor, and hope that we'll be able to continue our relationship as before."
