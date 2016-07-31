@@ -69,6 +69,8 @@ Goodwitch sighed. "It seems that we huntsmen are unable to contribute a solution
 
 ***
 **Takei Nori**
+**October 13, 2015**
+**Sidonia**
 
 It was a white room, completely clinical and utterly devoid of almost all features. A beautiful woman sat before him.
 
@@ -105,3 +107,23 @@ There was no change in composure, just more of her steely eyes.
 "A tyrant who acknowledged her crime. That's something."
 
 "I am not a tyrant. People outside of my circle never had their political freedom violated in any way, and everyone served in a meritocracy, or as best as I can manage it."
+
+"We'll see what the politician thinks when the impeachment trial take place."
+
+***
+**Cindy Blue**
+**October 17, 2015**
+
+She sighed loudly as she collapsed into a couch inside a room that Vale news crew were renting for the stay. The crisis was in its seventh day and it shown no sign of abatement. On the other hand, they hadn't kicked her news crew out, nor was were any kind of violence. Even more astounding, more Remnans came on board to witness the crisis or to intermingle with the Sidonians.
+
+Political subfractions began forming at a rapid place, all with different opinions on how to do things. It was pure chaos. At least the Remnan political scenes are simpler.
+
+Blue wasn't a political correspondent. Yet, she became one by sheer necessity.
+
+A phone rang just now.
+
+"Make it go away," she said, her voice hoarse from all the talking.
+
+Unfortunately, the director have to do her job.
+
+All she heard was the director's side of the conversation, but she knew it was more of the same job.
