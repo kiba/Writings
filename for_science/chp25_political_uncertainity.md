@@ -72,16 +72,36 @@ Goodwitch sighed. "It seems that we huntsmen are unable to contribute a solution
 
 It was a white room, completely clinical and utterly devoid of almost all features. A beautiful woman sat before him.
 
-He knew that she wasn't a young woman. Allegedly, she is one of those immortals that ruled Sidonia from behind, now unseated from their powers. its members either fleeing away from authority or are on the run.
+He knew that she wasn't in any way, young. A literal six hundred years old was sitting before him, the connection before the apocalypse that nearly wiped out one of the last known bastion of humanity. Allegedly, she was part of a powerful conspiracy to rule Sidonia from behind, now revealed to him and the public.
 
-"You are six hundred years old," Takei Nori said. "Yet only until five days ago, you revealed your existence to us. I was dragged out of retirement simply because they couldn't trust all the youthful faces. This is the younger generation's problem, not mine. I am about to bite the dust."
+ Allegedly, she is one of those immortals that ruled Sidonia from behind, now unseated from their powers. its members either fleeing away from authority or are on the
+
+"You are six hundred years old," Takei Nori said. "Yet only until five days ago, you revealed your existence to us. I was dragged out of retirement simply because they couldn't trust all those youthful faces. This is the younger generation's problem, not mine. I am about to bite the dust."
 
 "The situation changed. There's a medicine out there that will make this your problem."
 
-"My problem? I don't trust a word out of your mouth. You see...you lied to us for my whole life. You think I can turn around and just ingest a new type of pill that hadn't been verified by the medical committee, a committee that's potentially compromised by more of those 'youthful' faces?"
+"My problem? I don't trust a word out of your mouth. You see...you lied to us for my whole life, and perhaps my parents as well, and my grand-parents, and countless generations before that. You think I can turn around and just ingest a new type of pill that hadn't been verified by the medical committee, a committee that's potentially compromised by more of those 'youthful' faces?"
 
 "I eliminated most of the immortal ship committee. They can't be everywhere at once."
 
-"Yeah, that's just another problem. You murdered them, or you ordered that assistant of your to assassinate them. That mean that you were living in an abnormal environment that twisted your morality and thought process."
+"Yeah, that's just another problem. You murdered them, or you ordered that assistant of your to carry them out. That mean that you were living in an abnormal environment that twisted your morality and thought process."
 
-"Now that's in the open. That will no longer be an issue."
+There was no change in composure, just more of her steely eyes.
+
+"An abnormal environment that also twisted their thought process," she said. "At some point, they stopped thinking of you and everyone else as their progeny. The progeny we educated, donated our genes to, and genetically engineered for life after the apocalypse. I made the decision to protect all of you from the decisions they would had made once they forced me from my position."
+
+"That is not how Sidonia do things. We would never let someone do that in our name."
+
+"No. That is not the Sidonian way. But it is survival."
+
+"That's your excuse? I don't believe it's good enough. Frankly, I am disgusted, not by your clearly illegal rule, but by your immoral actions against those alleged tyrants. What I want to know is...why now? Why did you disclose? Expose every terrible secrets?"
+
+"Duty. Isn't that enough? Haven't I told you? Won't you believe me?"
+
+"I think you are a tyrant, elder," he said with venom. "Tyrants all throughout history frequently rationalize their actions as some part of some moral program, but that doesn't make them just or normal."
+
+"I know what I did, and I did it for my own reason. It was necessary to get rid of the committee, but I couldn't bring myself to expose this to the public. At that time, the cost-benefit analysis to Sidonia seemed to be poor. I'll also admit that it's self serving. Even after six hundred years, I still do not tired of life."
+
+"A tyrant who acknowledged her crime. That's something."
+
+"I am not a tyrant. People outside of my circle never had their political freedom violated in any way, and everyone served in a meritocracy, or as best as I can manage it."
