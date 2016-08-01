@@ -133,4 +133,34 @@ But that's neither here nor there. She wasn't the one on trial.
 Juri at once stood up, making her way toward the exit.
 ***
 
-The impeachment trial will assuredly lead to the removal of all known immortal officers, and criminal prosecution against Kobayashi and 'Ochiai'.
+Juri was weary, at once the idea of hidden immortals, and at the idea of incriminating someone who's not an immortal. Ultimately, however, the politicians of Sidonia decided not to initiate a purge of the military, trusting that they had accounted for all immortals.
+
+There was one exception, however.
+
+"Acting Captain Seii, how soon will we be able to apprehend Hiyama and take into custody one Nagate Tanikaze?" Juri questioned.
+
+"Ever since the internal security investigation started, we were delayed several weeks," he answered. "So far, we turned up nobody who's an immortal sympathizer or hidden immortals."
+
+She felt a bitter taste in her mouth.
+
+"We need to find them immediately, before they get away."
+
+"We could do that if we let our agents immediately go to work. Then again, we would be risking sabotage from within."
+
+"How likely is that?"
+
+"Highly likely. The former captain selected everyone carefully from the start to ensure operational success. However, there is a way to guarantee their return, if politically unplatable."
+
+"You. Will. Not. Mention. That. Option."
+
+"Understood."
+
+Juri wondered if this acting captain could be trusted at all. Years of his life was spent serving with Kobayashi and overseeing the military. At the same time, there were no incriminating evidence linking him with Kobayashi beyond strictly professional relations.
+
+Moreover, he was the best man to maintain the operation of the military.
+
+She couldn't simply remove him based on the mere suspicion of his loyalty.
+
+No, that would be unwise. There were a growing fraction within Sidonia that admired Kobayashi. Any attempt to censor or ban would make the government looks very bad and would cause membership to explode.
+
+The impeachment trial was a forgone conclusion, but it needed to be concluded very fast.
