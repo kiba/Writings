@@ -111,19 +111,26 @@ There was no change in composure, just more of her steely eyes.
 "We'll see what the politician thinks when the impeachment trial take place."
 
 ***
-**Cindy Blue**
+**Nagai Juri**
 **October 17, 2015**
 
-She sighed loudly as she collapsed into a couch inside a room that Vale news crew were renting for the stay. The crisis was in its seventh day and it shown no sign of abatement. On the other hand, they hadn't kicked her news crew out, nor was were any kind of violence. Even more astounding, more Remnans came on board to witness the crisis or to intermingle with the Sidonians.
+"Umm...I see the captain as someone I can work with..." the young man on the witness stand said.
 
-Political subfractions began forming at a rapid place, all with different opinions on how to do things. It was pure chaos. At least the Remnan political scenes are simpler.
+"But is it true that she coerced you into agreeing with her deal?" the senator on the ground floor asked.
 
-Blue wasn't a political correspondent. Yet, she became one by sheer necessity.
+"Yes, but-"
 
-A phone rang just now.
+"This is how Kobayashi treated one of our ancestor?"
 
-"Make it go away," she said, her voice hoarse from all the talking.
+Truth be told, Juri thought it was the right decision that the head of the state would take, if not necessarily the most moral choice. She wondered if she would make that kind of choice if she were faced with a dimensional traveler?
 
-Unfortunately, the director have to do her job.
+On the other hand, many tears and death were had as people were continuously disenfranchised throughout the twentieth and twenty-first century. Realpolitik was in truth, neither practical nor moral.
 
-All she heard was the director's side of the conversation, but she knew it was more of the same job.
+But that's neither here nor there. She wasn't the one on trial.
+
+"Alright, we will reconvene at the same time tomorrow morning," the speaker of the house said, declaring that today's session was over.
+
+Juri at once stood up, making her way toward the exit.
+***
+
+The impeachment trial will assuredly lead to the removal of all known immortal officers, and criminal prosecution against Kobayashi and 'Ochiai'.
