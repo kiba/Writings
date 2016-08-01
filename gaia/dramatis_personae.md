@@ -1,4 +1,4 @@
-**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. He made his accidental fortune through the buying and selling of a new form of internet money. He used his newfound wealth to fund and develop a trans-dimensional travel machine. He did not think such a machine would work, but he felt compelled to develop it nonetheless. 
+**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. He made his accidental fortune through the buying and selling of a new form of internet money. He used his newfound wealth to fund and develop a trans-dimensional travel machine. He did not think such a machine would work, but he felt compelled to develop it nonetheless.
 
 Physical characteristics:
 
@@ -6,7 +6,7 @@ Physical characteristics:
 * Eye color: Brown
 * Height: 177 cm.
 
-**Alice Archer**  - The doppelganger mother of James Archer. Archer's mother on Earth passed away, but she's still alive on Gaia.
+**Alice Archer (Gaia)**  - Droppleganger mother. Is strongly religious, attend church. Believe strongly in education.
 
 Physical characteristics:
 
