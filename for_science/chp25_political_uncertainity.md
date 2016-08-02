@@ -15,7 +15,7 @@ In Sidonia, he carefully cultivated his sources in varying industries and occupa
 
 Alas, there's only so much information he could have gathered. Anything that the government wants secret, will usually stay secret.
 
-He expected to be caught by surprise, but he never thought of this.
+He expected to be caught by surprise, but he never thought of this. Already, in hindsight, it was plainly obvious, but that didn't matter a bit. What was more important was that he knew that it was a possibility in the first place.
 
 Ozpin heard the footsteps of Glynda Goodwitch.
 
