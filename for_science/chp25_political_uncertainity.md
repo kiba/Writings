@@ -5,21 +5,23 @@
 **Headmaster Ozpin**
 **Beacon Academy, Remnant**
 
-The interdimensional news washed over Ozpin as he sipped his coffee at four AM in the morning. While it was embarrassing to admit, the informants were no better than the correspondent reporting from Sidonia.
+The interdimensional news washed over Ozpin as he sipped his coffee at four AM in the morning. The last few days had hit him like a sledgehammer, forcing him to reevaluate his strategy for the defense of Remnant. At a first superfical glance, it would seem that the inner working of Sidonia shouldn't matter to a headmaster in charge of training a new generation of huntsmen and defense of the kingdom. In reality, the effect would be far reaching, affecting Remnant's access to advanced weapon systems, ideas, and expertise, which ultimately affect the survivality of the kingdoms. For example, if he has access to spaceflight capable mechs, he would be able to offer more support for huntsmen in the field.
 
-Even before inter-dimensional travel became a thing, he made it his business to stay on top of political matters, even as boring as bills, so he can best accomplish his job under the political reality.
+If there's one embarrassing thing to admit, the informants were no better than the correspondent reporting from Sidonia. He couldn't simply see it coming.
 
-In Sidonia, he carefully cultivated his sources in varying industries and occupations, taking care not to be 'spying' or commiting any acts that might be construed as 'espionage'. After all, the information should all be open source, all above ground, not state secrets. It was information that anyone could get, but it was hard to collate unless one have an information network.
+Even before inter-dimensional travel became a thing, he made it his business to stay on top of political matters, even as boring as bills, so he can best accomplish his job under those political constraint. After the great war, the huntsmen were organized under the influence of international politics, and those political influences could still change policies surrounding his profession.
 
-Alas, there's only so much information he could have gathered.
+In Sidonia, he carefully cultivated his sources in varying industries and occupations, taking care not to be 'spying' or committing any acts that might be construed as 'espionage'. After all, the information should all be open source, all above ground, not state secrets. It was information that anyone could get, but it was hard to collate unless one has an information network.
+
+Alas, there's only so much information he could have gathered. Anything that the government wants secret, will usually stay secret.
 
 He expected to be caught by surprise, but he never thought of this.
 
-He heard the footsteps of Glynda Goodwitch.
+Ozpin heard the footsteps of Glynda Goodwitch.
 
 "Welcome," he greeted.
 
-"Good morning headmaster Ozpin," she responded.
+"Good morning headmaster Ozpin," she responded, while sipping her own coffee.
 
 "Still working out the Sidonian crisis?"
 
@@ -33,11 +35,11 @@ Goodwitch watched the broadcast for a bit. The correspondent, Cindy Blue was int
 
 "Democracies. I don't understand how they work."
 
-Ozpin chuckled. "They don't, not really. They have a highly qualified civil service branch that papered over much of that. Unlike here, they seemed to believe that democracy is a direct expression of liberty, but they also have check and balance that ensured that the individuals are not run over."
+Ozpin chuckled. "They don't, not in isolation. They have a highly qualified civil service branch that papered over much of that. Unlike here, they seemed to believe that democracy is a direct expression of liberty, but they also have check and balance that ensured that the individuals are simply ran over."
 
-Goodwitch scoffed. "Sounded like a contradictory system."
+Goodwitch scoffed. "Sounds like a contradictory system."
 
-"It is what it is. If you look at ours, it's not like we're any better. We have a system that works, mostly."
+"It is what it is. If you look at ours, it's not like we're any better. We have a system that works, most of the time."
 
 "They're going through a crisis, right now."
 
@@ -151,16 +153,16 @@ She felt a bitter taste in her mouth.
 
 "Highly likely. The former captain selected everyone carefully from the start to ensure operational success. However, there is a way to guarantee their return, if politically unplatable."
 
-"You. Will. Not. Mention. That. Option."
+"That option is simply unacceptable."
 
 "Understood."
 
-Juri wondered if this acting captain could be trusted at all. Years of his life was spent serving with Kobayashi and overseeing the military. At the same time, there were no incriminating evidence linking him with Kobayashi beyond strictly professional relations.
+Juri wondered if this acting captain could be trusted at all. Years of his life was spent serving with Kobayashi and her secret entourage. At the same time, there were no incriminating evidence linking him with Kobayashi beyond strictly professional relations.
 
-Moreover, he was the best man to maintain the operation of the military.
+Moreover, he was the best man to maintain and oversee the operation of the military, especially in the years to come.
 
 She couldn't simply remove him based on the mere suspicion of his loyalty.
 
-No, that would be unwise. There were a growing fraction within Sidonia that admired Kobayashi. Any attempt to censor or ban would make the government looks very bad and would cause membership to explode.
+No, that would be unwise. There were a growing fraction within Sidonia that admired Kobayashi. Any attempt to censor or ban on this group would make the government looks very bad.
 
 The impeachment trial was a forgone conclusion, but it needed to be concluded very fast.
