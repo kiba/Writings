@@ -42,4 +42,5 @@ October 10, 2015 - Chapter 23 - The vacationers escape back to Sidonia before th
 October 10, 2015 - Chapter 24 - Kobayashi sent Lala Hiyama and Nagate Tanikaze to Earth.
 October 10, 2015 - Chapter 24 - Captain Kobayashi unmasked herself and announced that she is a secret immortal, starting a constitutional crisis in Sidonia.
 October 10, 2015 - Chapter 24 - Cindy Blue, part of Vale News Network crew on assignment to Sidonia bear witness to the constitutional crisis unfolding in Sidonia.
-October 13, 2015 - chapter 25 - Impeachment trials against the immortals ongoing. James Arcer testified.
+October 17, 2015 - Chapter 25 - Impeachment trials against the immortals ongoing. James Arcer testified.
+October 17, 2015 - Chapter 25 - Nagi Juri discussed the retrieval of Lala Hiyama and Nagate Tanikaze with Colonel Seii.
