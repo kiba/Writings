@@ -39,8 +39,7 @@ October 3, 2015 - Chapter 23 - Sasaki, James, and Diana vacation on a deserted i
 October 9, 2015 - Chapter 23 - Sasaki confessed to the immortality secret.
 October 9, 2015 - Chapter 23 - Kobayashi talked to her family about what's going to happen to the government.
 October 10, 2015 - Chapter 23 - The vacationers escape back to Sidonia before they were discovered by Earthlings.
-October 10, 2015 - Chapter 24 - Kobayashi sent Lala Hiyama and Nagate Tanikaze to Earth. 
+October 10, 2015 - Chapter 24 - Kobayashi sent Lala Hiyama and Nagate Tanikaze to Earth.
 October 10, 2015 - Chapter 24 - Captain Kobayashi unmasked herself and announced that she is a secret immortal, starting a constitutional crisis in Sidonia.
 October 10, 2015 - Chapter 24 - Cindy Blue, part of Vale News Network crew on assignment to Sidonia bear witness to the constitutional crisis unfolding in Sidonia.
-October 10, 2015 - Chapter 24 - Upon return to Sidonia, Sasaki was escorted by military police for an interview.
-October 13, 2015 - chapter 24 - The Sidonia Diet impeach Kobayashi and any immortal officers.
+October 13, 2015 - chapter 25 - Impeachment trials against the immortals ongoing. James Arcer testified.
