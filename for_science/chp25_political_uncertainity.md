@@ -5,45 +5,45 @@
 **Headmaster Ozpin**
 **Beacon Academy, Remnant**
 
-The interdimensional news washed over Ozpin as he sipped his coffee at four AM in the morning. The last few days had hit him like a sledgehammer, forcing him to reevaluate his strategy for the defense of Remnant. At a first superfical glance, it would seem that the inner working of Sidonia shouldn't matter to a headmaster in charge of training a new generation of huntsmen and defense of the kingdom. In reality, the effect would be far reaching, affecting Remnant's access to advanced weapon systems, ideas, and expertise, which ultimately affect the survivality of the kingdoms. For example, if he has access to spaceflight capable mechs, he would be able to offer more support for huntsmen in the field.
+The interdimensional news washed over Ozpin as he sipped his coffee in the privacy of his office at four AM in the morning. The last few days had hit him like a sledgehammer, forcing him to reevaluate his strategy for the defense of Remnant. At a first superficial glance, it would seem that the inner working of Sidonia shouldn't matter to a headmaster in charge of training a new generation of huntsmen and defense of the kingdom. In reality, the effect would be far reaching, affecting Remnant's access to advanced weapon systems, ideas, and expertise, which ultimately affect the survivability of the kingdoms. For example, if he has access to Sidonia's spaceflight capable mechs, he would be able to offer more support for huntsmen in the field.
 
 If there's one embarrassing thing to admit, the informants were no better than the correspondent reporting from Sidonia. He couldn't simply see it coming.
 
-Even before inter-dimensional travel became a thing, he made it his business to stay on top of political matters, even as boring as bills, so he can best accomplish his job under those political constraint. After the great war, the huntsmen were organized under the influence of international politics, and those political influences could still change policies surrounding his profession.
+Even before inter-dimensional travel became a thing, he made it his business to stay on top of political matters, even as boring as bills, so he can best accomplish his job under those political constraint. After the great war, the huntsmen were organized under the influence of international politics, and those political influences could still change policies surrounding his profession, some of the effect Ozpin experienced first-hand.
 
-In Sidonia, he carefully cultivated his sources in varying industries and occupations, taking care not to be 'spying' or committing any acts that might be construed as 'espionage'. After all, the information should all be open source, all above ground, not state secrets. It was information that anyone could get, but it was hard to collate unless one has an information network.
+In Sidonia, he carefully cultivated his sources in varying industries and occupations, taking care not to be 'spying' or committing any acts that might be construed as 'espionage'. The last thing he wants to do is to damage the fragile working relationship between Remnant and Sidonia. The information are all be open source, all above ground, not state secrets. It was information that anyone could get, but it was hard to collate unless one has an information network.
 
-Alas, there's only so much information he could have gathered. Anything that the government wants secret, will usually stay secret.
+Alas, there's only so much information he could have gathered with an open source information network. Any information that the government wants secret, will usually stay secret.
 
 He expected to be caught by surprise, but he never thought of this. Already, in hindsight, it was plainly obvious, but that didn't matter a bit. What was more important was that he knew that it was a possibility in the first place.
 
 Ozpin heard the footsteps of Glynda Goodwitch.
 
-"Welcome," he greeted.
+"Welcome," he greeted, as the door opened to reveal one of Beacon's professor.
 
-"Good morning headmaster Ozpin," she responded, while sipping her own coffee.
+"Good morning headmaster Ozpin," she responded, while sipping her own coffee, and bringing another fresh cup of coffee to his table.
 
 "Still working out the Sidonian crisis?"
 
-"I have no doubt about the importance of the arkship to our future. I just don't understand the direction that Sidonia will take. Maybe the Sidonians don't themselves either. This is an unprecedented situation."
+"I have no doubt about the importance of the ark to our future. I just don't understand the direction that Sidonia will take. Maybe the Sidonians don't themselves either. This is an unprecedented situation."
 
 "Governments change from time to time in both of their histories and ours."
 
-"But they don't really match up, do they? Professor Obleck said that history don't really repeat itself, but it rhymes."
+"But they don't really match up, do they? Professor Obleck said that history don't really repeat itself, but it rhymes. We could draw on the lessons of the past, as Obleck kept emphasizing, but there's also novelty in this situation."
 
 Goodwitch watched the broadcast for a bit. The correspondent, Cindy Blue was interviewing a man named Sako Shiro, rambling on about democracy and civilian rule.
 
 "Democracies. I don't understand how they work."
 
-Ozpin chuckled. "They don't, not in isolation. They have a highly qualified civil service branch that papered over much of that. Unlike here, they seemed to believe that democracy is a direct expression of liberty, but they also have check and balance that ensured that the individuals are simply ran over."
+Ozpin chuckled. "They don't, not in isolation. They have a highly qualified civil service branch that papered over much of that. Unlike here, they seemed to believe that democracy is a direct expression of liberty, but they also have check and balance that ensured that the individuals are simply ran over. However, their executive leadership is military, rather than civilian. So it's much more of a meritocracy than a democracy."
 
 Goodwitch scoffed. "Sounds like a contradictory system."
 
 "It is what it is. If you look at ours, it's not like we're any better. We have a system that works, most of the time."
 
-"They're going through a crisis, right now."
+"But now they are in a crisis."
 
-"And we been through ours several decades ago. Their system works for over a century until this trans-reality revolution happens."
+"And we been through ours several decades ago. Their system works for over a century until this trans-reality revolution happens. Our system works right now..."
 
 "We disgress long enough, what's your feel for this situation?"
 
