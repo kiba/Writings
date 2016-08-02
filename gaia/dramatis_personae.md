@@ -6,7 +6,7 @@ Physical characteristics:
 * Eye color: Brown
 * Height: 177 cm.
 
-**Alice Archer (Gaia)**  - Droppleganger mother. Is strongly religious, attend church. Believe strongly in education.
+**Alice Archer (Gaia)**  - Doppelganger mother. Is strongly religious, attend church. Believe strongly in education.
 
 Physical characteristics:
 
