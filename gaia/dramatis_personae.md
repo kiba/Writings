@@ -5,7 +5,13 @@ Physical characteristics:
 * Hair color: Jet black.
 * Eye color: Brown
 * Height: 177 cm.
+* Scars, birthmark: None
 
+Social:
+
+* Familial relations: Alice Archer, mother, closest. John Archer, father, deceased. No other contacts.
+* Friends:
+* Career: 
 **Alice Archer (Gaia)**  - Doppelganger mother. Is strongly religious, attend church. Believe strongly in education.
 
 Physical characteristics:
@@ -13,6 +19,11 @@ Physical characteristics:
 * Hair color: Apple red
 * Eye color: Brown
 * Height: 165 cm.
+* Scars, birthmarks: None
+
+Social:
+
+* Familial relations: James Archer, son. John Archer, husband, deceased.
 
 **Sil Silver** - The perceptive owner of a pawnshop, *Silver Pawn*. Due to the possibility of dealing with stolen merchandise and having to return them, he developed an ability to detect lies from his customers to reduce losses and getting the most out of the goods he buy.
 
