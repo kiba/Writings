@@ -98,6 +98,11 @@ Appearances: 18, 21
 
 Appearances: 19
 
+**Captain Ichiro Seii** - Former second-in-command, and former Colonel for the Sidonian Army branch.
+
+Appearances: 16, 24, 25
+
+
 **Cindy Blue** - Correspondent for the Vales News Network who is visiting Sidonia.
 
 Appearances: 24
@@ -130,7 +135,7 @@ Appearances: 20, 22
 
 Appearances: 22
 
-**Nagi Juri** - Female Sidonian politician who wanted to impeach Kobayashi and other immortals. 
+**Nagi Juri** - Female Sidonian politician who wanted to impeach Kobayashi and other immortals.
 
 Appearances: 24, 25
 
