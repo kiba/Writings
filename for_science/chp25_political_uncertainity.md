@@ -166,5 +166,3 @@ She couldn't simply remove him based on the mere suspicion of his loyalty.
 No, that would be unwise. Any attempt to censor or ban on this group would make the government looks very bad.
 
 The impeachment trial was a forgone conclusion, but that wasn't the issue. There was that growing public sentient to deal with. The longer the trial dragged out, the bigger the immortals' support.
-
-None of their arguments would hold water, but that didn't matter.
