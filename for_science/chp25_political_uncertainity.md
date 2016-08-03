@@ -27,7 +27,7 @@ Ozpin heard the footsteps of Glynda Goodwitch.
 
 "I have no doubt about the importance of the ark to our future. I just don't understand the direction that Sidonia will take. Maybe the Sidonians don't themselves either. This is an unprecedented situation."
 
-"Governments change from time to time in both of their histories and ours."
+"Governments everywhere changeg from time to time. That's one of the commonality between Earth and Remnant."
 
 "But they don't really match up, do they? Professor Obleck said that history don't really repeat itself, but it rhymes. We could draw on the lessons of the past, as Obleck kept emphasizing, but there's also novelty in this situation."
 
@@ -43,31 +43,33 @@ Goodwitch scoffed. "Sounds like a contradictory system."
 
 "But now they are in a crisis."
 
-"And we been through ours several decades ago. Their system works for over a century until this trans-reality revolution happens. Our system works right now..."
+"And we been through ours several decades ago. Their system works for over a century until this trans-reality revolution happens. Our system works right now."
 
-"We disgress long enough, what's your feel for this situation?"
+"We digressed long enough, what's your feel for this situation?"
 
-Ozpin sighed. "The worst case scenario would be that they turned militant, turn their eyes on us and Earth. I don't see it as likely. Their leadership and politicans extended their hands out to us, and Cindy Blue is still on Sidonia."
+Ozpin sighed. "The worst case scenario would be that they turn militant, and cast their eyes on us and Earth. I don't see it as likely. Their leadership and politicians extended their hands out to us, and Cindy Blue is still on Sidonia."
 
-"She seemed totally unconcerned."
+"She does seem totally unconcerned."
 
-"I agreed. The fact that they haven't banned us and allowed coverage for Remnant is good news. We could similarly consider isolationism an unlikely possibility. Of course, it's still early days, so we should not be caught off-guard."
+"I agreed. My informants on Sidonia thought it unthinkable that they would censor information and ban foreigners. Freedom of speech and information access is one of the values we shared with them. We could similarly consider isolationism an unlikely possibility. Of course, it's still early days, so we should not be caught off-guard."
 
 "The next likely scenario?"
 
-"We might get a flood of refugees or aslyum seekers. I believed our political masters are hoping exactly for that, but I explicitly forewarned them not to expect any aslyum applications. Even if we were to accept aslyum seekers sometime in the near future, integration is also a concern. Professor Oobleck pointed out that Remnant do not have any experience in assimilating foreign people into any of our kingdoms."
+"We might get a flood of refugees or aslyum seekers. I believed our political masters are hoping exactly for that, but I explicitly forewarned them not to expect any aslyum applications. Even if we were to accept aslyum seekers sometime in the near future, integration is also a concern. Professor Oobleck pointed out that Remnant do not have any experience in assimilating such deeply foreign people into any of our kingdoms."
 
 "The Sidonians are easily the most educated people I know. I can see why they want to snap them up."
 
-"Indeed, they would prove a boon to our kingdoms, but as is, we already are benefiting from them. We also need to consider the negatives of a weakened kingdom of the ark. Supposed that there are aslyum seekers, but not to enough to offset the damage to our trade relationship. If they pulled back to focus on their own internal affair, we would lose out."
+"Indeed, they would prove a boon to our kingdoms, but as is, we already are benefiting from them. We also need to consider the negatives of a weakened kingdom of the ark. We could have aslyum seekers, but not to enough to offset the damage to our trade relationship. If they pulled back to focus on their own internal affair, we would lose out."
 
 "I can see the worry, but I just don't know how we would effect the outcome to our favor."
 
 "That's why the four kingdoms are sending diplomats. We're trying to connect with as many fraction as possible, get more ears on their ground floor, and hope that we'll be able to continue our relationship as before."
 
-Goodwitch sighed. "It seems that we huntsmen are unable to contribute a solution to this crisis. I guess our students won't be able to complain about their humanity classes for quite awhile..."
+"I presume you'll have Qrow on the case? I hope he's acting diplomatic."
 
-"The best we can do is simply watch and re-adjust..."
+"Believe me. He knows that it's a high stake situation. There are time that he will be totally sober."
+
+"I'll believe it when I see it."
 
 ***
 **Takei Nori**
@@ -76,35 +78,33 @@ Goodwitch sighed. "It seems that we huntsmen are unable to contribute a solution
 
 It was a white room, completely clinical and utterly devoid of almost all features. A beautiful woman sat before him.
 
-He knew that she wasn't in any way, young. A literal six hundred years old was sitting before him, the connection before the apocalypse that nearly wiped out one of the last known bastion of humanity. Allegedly, she was part of a powerful conspiracy to rule Sidonia from behind, now revealed to him and the public.
-
- Allegedly, she is one of those immortals that ruled Sidonia from behind, now unseated from their powers. its members either fleeing away from authority or are on the
+He knew that her apparent youth was misleading. A literal six hundred years old was sitting before him, the connection before the apocalypse that nearly wiped out one of the last known bastion of humanity. Allegedly, she was part of a powerful conspiracy to rule Sidonia from behind, now revealed to him and the public.
 
 "You are six hundred years old," Takei Nori said. "Yet only until five days ago, you revealed your existence to us. I was dragged out of retirement simply because they couldn't trust all those youthful faces. This is the younger generation's problem, not mine. I am about to bite the dust."
 
-"The situation changed. There's a medicine out there that will make this your problem."
+"You aren't considering taking the medicine that will make this your problem?"
 
-"My problem? I don't trust a word out of your mouth. You see...you lied to us for my whole life, and perhaps my parents as well, and my grand-parents, and countless generations before that. You think I can turn around and just ingest a new type of pill that hadn't been verified by the medical committee, a committee that's potentially compromised by more of those 'youthful' faces?"
+"My problem? I don't trust a word out of your mouth. Especially when you lied to us for my whole life, and perhaps my parents as well, and my grand-parents, and countless generations before that. You think I can turn around and just ingest a new type of pill that hadn't been verified by the medical committee, a committee that's potentially compromised by more of those 'youthful' faces?"
 
-"I eliminated most of the immortal ship committee. They can't be everywhere at once."
+"I eliminated the vast majority of the immortal committee. There's only a few of us left."
 
-"Yeah, that's just another problem. You murdered them, or you ordered that assistant of your to carry them out. That mean that you were living in an abnormal environment that twisted your morality and thought process."
+"Which is just another problem with you. You ordered their assassination. That mean that you were living in an abnormal environment that twisted your morality and thought process."
 
-There was no change in composure, just more of her steely eyes.
+She stared at the detective with steely eyes.
 
-"An abnormal environment that also twisted their thought process," she said. "At some point, they stopped thinking of you and everyone else as their progeny. The progeny we educated, donated our genes to, and genetically engineered for life after the apocalypse. I made the decision to protect all of you from the decisions they would had made once they forced me from my position."
+"An abnormal environment that also twisted their thought process," she said. "I don't know when, but they started thinking little of their progeny. The progeny we educated, donated our genes to, and genetically engineered for life after the disaster. I made the decision to protect all of you from the decisions they would had made once they forced me from my position."
 
-"That is not how Sidonia do things. We would never let someone do that in our name."
+"That is not how Sidonia do things. We would never let someone do that in our name. "
 
 "No. That is not the Sidonian way. But it is survival."
 
-"That's your excuse? I don't believe it's good enough. Frankly, I am disgusted, not by your clearly illegal rule, but by your immoral actions against those alleged tyrants. What I want to know is...why now? Why did you disclose? Expose every terrible secrets?"
+"That's your excuse? I don't believe it's good enough. Frankly, I am disgusted, not even by your secretive rulership, but actions you took in the darkness, aways from our eyes.  What I want to know is...why now? Why did you disclose? Expose every terrible secrets?"
 
 "Duty. Isn't that enough? Haven't I told you? Won't you believe me?"
 
 "I think you are a tyrant, elder," he said with venom. "Tyrants all throughout history frequently rationalize their actions as some part of some moral program, but that doesn't make them just or normal."
 
-"I know what I did, and I did it for my own reason. It was necessary to get rid of the committee, but I couldn't bring myself to expose this to the public. At that time, the cost-benefit analysis to Sidonia seemed to be poor. I'll also admit that it's self serving. Even after six hundred years, I still do not tired of life."
+"I know what I did, and I did it for my own reason. It was necessary to get rid of the committee, but I couldn't bring myself to expose this to the public. At that time, the cost-benefit analysis to Sidonia seemed to be poor, but I'll also admit that it's self serving. Even after six hundred years, I still do not tire of life."
 
 "A tyrant who acknowledged her crime. That's something."
 
@@ -122,11 +122,11 @@ There was no change in composure, just more of her steely eyes.
 
 "Yes, but-"
 
-"This is how Kobayashi treated one of our ancestor?"
+"So this is how Kobayashi treated one of our ancestor?"
 
 Truth be told, Juri thought it was the right decision that the head of the state would take, if not necessarily the most moral choice. She wondered if she would make that kind of choice if she were faced with a dimensional traveler?
 
-On the other hand, many tears and death were had as people were continuously disenfranchised throughout the twentieth and twenty-first century. Realpolitik was in truth, neither practical nor moral.
+On the other hand, many tears and death were had as people were continuously disenfranchised throughout the twentieth and twenty-first century. Realpolitik was in truth, proved to be neither practical nor moral. It's better to operate on a policy that would agree with your conscious rather than taking the easy way out.
 
 But that's neither here nor there. She wasn't the one on trial.
 
@@ -135,7 +135,7 @@ But that's neither here nor there. She wasn't the one on trial.
 Juri at once stood up, making her way toward the exit.
 ***
 
-Juri was weary, at once the idea of hidden immortals, and at the idea of incriminating someone who's not an immortal. Ultimately, however, the politicians of Sidonia decided not to initiate a purge of the military, trusting that they had accounted for all immortals.
+Juri was weary, both at the idea of hidden immortals, and at the idea of incriminating someone who's not an immortal. Ultimately, however, the politicians of Sidonia decided not to initiate a purge of the military, trusting that they had accounted for all immortals.
 
 There was one exception, however.
 
