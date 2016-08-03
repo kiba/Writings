@@ -5,13 +5,13 @@
 **Headmaster Ozpin**
 **Beacon Academy, Remnant**
 
-The interdimensional news washed over Ozpin as he sipped his coffee in the privacy of his office at four AM in the morning. The last few days had hit him like a sledgehammer, forcing him to reevaluate his strategy for the defense of Remnant. At a first superficial glance, it would seem that the inner working of Sidonia shouldn't matter to a headmaster in charge of training a new generation of huntsmen and defense of the kingdom. In reality, the effect would be far reaching, affecting Remnant's access to advanced weapon systems, ideas, and expertise, which ultimately affect the survivability of the kingdoms. For example, if he has access to Sidonia's spaceflight capable mechs, he would be able to offer more support for huntsmen in the field.
+The inter-dimensional news washed over Ozpin as he sipped his coffee in the privacy of his office at four AM in the morning. The last few days had hit him like a sledgehammer, forcing him to reevaluate his strategy for the defense of Remnant. At a first superficial glance, it would seem that the inner working of Sidonia shouldn't matter to a headmaster in charge of training a new generation of huntsmen and the defense of the kingdom. In reality, the effect would be far reaching, affecting Remnant's access to advanced weapon systems, ideas, and expertise, which ultimately affect the survivability of the kingdoms. For example, if he has access to Sidonia's spaceflight capable mechs, he would be able to offer more support for huntsmen in the field, maybe even expand the borders of the kingdom.
 
 If there's one embarrassing thing to admit, the informants were no better than the correspondent reporting from Sidonia. He couldn't simply see it coming.
 
-Even before inter-dimensional travel became a thing, he made it his business to stay on top of political matters, even as boring as bills, so he can best accomplish his job under those political constraint. After the great war, the huntsmen were organized under the influence of international politics, and those political influences could still change policies surrounding his profession, some of the effect Ozpin experienced first-hand.
+Even before inter-dimensional travel became a thing, he made it his business to stay on top of political matters, even as boring as bills, so he can best accomplish his job under those political constraint. After the great war, the huntsmen were organized under the influence of international politics, and those political influences still have a huge role to play.
 
-In Sidonia, he carefully cultivated his sources in varying industries and occupations, taking care not to be 'spying' or committing any acts that might be construed as 'espionage'. The last thing he wants to do is to damage the fragile working relationship between Remnant and Sidonia. The information are all be open source, all above ground, not state secrets. It was information that anyone could get, but it was hard to collate unless one has an information network.
+Over the last few months in Sidonia, he carefully cultivated his sources in varying industries and occupations, taking care not to be 'spying' or committing any acts that might be construed as 'espionage'. The last thing he wants to do is to damage the fragile working relationship between Remnant and Sidonia. The information are all open source, all above ground, not state secrets. It was information that anyone could get, but it was hard to collate unless one has an information network.
 
 Alas, there's only so much information he could have gathered with an open source information network. Any information that the government wants secret, will usually stay secret.
 
@@ -27,9 +27,9 @@ Ozpin heard the footsteps of Glynda Goodwitch.
 
 "I have no doubt about the importance of the ark to our future. I just don't understand the direction that Sidonia will take. Maybe the Sidonians don't themselves either. This is an unprecedented situation."
 
-"Governments everywhere changeg from time to time. That's one of the commonality between Earth and Remnant."
+"Governments everywhere change from time to time. That's one of the commonality between Earth and Remnant."
 
-"But they don't really match up, do they? Professor Obleck said that history don't really repeat itself, but it rhymes. We could draw on the lessons of the past, as Obleck kept emphasizing, but there's also novelty in this situation."
+"But they don't really match up, do they? Professor Obleck said that history don't really repeat itself, but it rhymes. We could draw on the lessons of the past, as Obleck kept emphasizing, but there's always novelty that must be accounted for."
 
 Goodwitch watched the broadcast for a bit. The correspondent, Cindy Blue was interviewing a man named Sako Shiro, rambling on about democracy and civilian rule.
 
@@ -45,9 +45,9 @@ Goodwitch scoffed. "Sounds like a contradictory system."
 
 "And we been through ours several decades ago. Their system works for over a century until this trans-reality revolution happens. Our system works right now."
 
-"We digressed long enough, what's your feel for this situation?"
+"We digressed long enough. What's your feel for this situation?"
 
-Ozpin sighed. "The worst case scenario would be that they turn militant, and cast their eyes on us and Earth. I don't see it as likely. Their leadership and politicians extended their hands out to us, and Cindy Blue is still on Sidonia."
+"The worst case scenario would be that they turn militant, and cast their eyes on us and Earth. I don't see it as likely. Their leadership and politicians extended their hands out to us, and Cindy Blue is still on Sidonia."
 
 "She does seem totally unconcerned."
 
@@ -55,7 +55,7 @@ Ozpin sighed. "The worst case scenario would be that they turn militant, and cas
 
 "The next likely scenario?"
 
-"We might get a flood of refugees or aslyum seekers. I believed our political masters are hoping exactly for that, but I explicitly forewarned them not to expect any aslyum applications. Even if we were to accept aslyum seekers sometime in the near future, integration is also a concern. Professor Oobleck pointed out that Remnant do not have any experience in assimilating such deeply foreign people into any of our kingdoms."
+"We might get a flood of refugees or asylum seekers. I believed our political masters are hoping exactly for that, but I explicitly forewarned them not to expect any aslyum applications. Even if we were to accept asylum seekers sometime in the near future, integration is also a concern. Professor Oobleck pointed out that Remnant do not have any experience in assimilating such deeply foreign people into any of our kingdoms."
 
 "The Sidonians are easily the most educated people I know. I can see why they want to snap them up."
 
@@ -76,9 +76,9 @@ Ozpin sighed. "The worst case scenario would be that they turn militant, and cas
 **October 13, 2015**
 **Sidonia**
 
-It was a white room, completely clinical and utterly devoid of almost all features. A beautiful woman sat before him.
+It was a white room, completely clinical and utterly devoid of almost all features. A beautiful woman sat before him, her hands chained to the table.
 
-He knew that her apparent youth was misleading. A literal six hundred years old was sitting before him, the connection before the apocalypse that nearly wiped out one of the last known bastion of humanity. Allegedly, she was part of a powerful conspiracy to rule Sidonia from behind, now revealed to him and the public.
+He knew that her apparent youth was misleading. A literal six hundred years old was sitting before him, the connection before the apocalypse that nearly wiped out one of the last known bastion of humanity. Allegedly, she was part of a powerful conspiracy to rule Sidonia from their masked faces, now revealed to him and the public.
 
 "You are six hundred years old," Takei Nori said. "Yet only until five days ago, you revealed your existence to us. I was dragged out of retirement simply because they couldn't trust all those youthful faces. This is the younger generation's problem, not mine. I am about to bite the dust."
 
@@ -126,7 +126,7 @@ She stared at the detective with steely eyes.
 
 Truth be told, Juri thought it was the right decision that the head of the state would take, if not necessarily the most moral choice. She wondered if she would make that kind of choice if she were faced with a dimensional traveler?
 
-On the other hand, many tears and death were had as people were continuously disenfranchised throughout the twentieth and twenty-first century. Realpolitik was in truth, proved to be neither practical nor moral. It's better to operate on a policy that would agree with your conscious rather than taking the easy way out.
+On the other hand, many tears and death were had as people were continuously disenfranchised throughout the twentieth and twenty-first century. Realpolitik in truth, proved to be neither practical nor moral. It's better to operate on a policy that would agree with your conscious rather than taking the easy way out.
 
 But that's neither here nor there. She wasn't the one on trial.
 
@@ -151,13 +151,13 @@ She felt a bitter taste in her mouth.
 
 "How likely is that?"
 
-"Highly likely. The former captain selected everyone carefully from the start to ensure operational success. However, there is a way to guarantee their return, if politically unplatable."
+"Highly likely. The former captain selected everyone carefully from the start to ensure operational success. However, there is a way to guarantee their return, if politically unpalatable."
 
 "That option is simply unacceptable." She would need to promise in front of the public and the media that Nagate Tanikaze would not be harmed. In the first place, she has no such intention of harming a child, but neither she would be goaded in providing the immortals a political victory.
 
 "Understood."
 
-Juri wondered if this acting captain could be trusted at all. Years of his life was spent serving with Kobayashi and her secret entourage. At the same time, there were no incriminating evidence linking him with Kobayashi beyond strictly professional relations.
+Juri wondered if this acting captain could be trusted at all. Years of his life was spent serving under Kobayashi. At the same time, there were no incriminating evidence linking him with Kobayashi beyond strictly professional relations.
 
 Moreover, he was the best man to maintain and oversee the operation of the military, especially in the years to come.
 
