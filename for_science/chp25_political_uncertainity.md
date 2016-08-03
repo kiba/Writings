@@ -153,7 +153,7 @@ She felt a bitter taste in her mouth.
 
 "Highly likely. The former captain selected everyone carefully from the start to ensure operational success. However, there is a way to guarantee their return, if politically unplatable."
 
-"That option is simply unacceptable."
+"That option is simply unacceptable." She would need to promise in front of the public and the media that Nagate Tanikaze would not be harmed. In the first place, she has no such intention of harming a child, but neither she would be goaded in providing the immortals a political victory.
 
 "Understood."
 
@@ -163,6 +163,8 @@ Moreover, he was the best man to maintain and oversee the operation of the milit
 
 She couldn't simply remove him based on the mere suspicion of his loyalty.
 
-No, that would be unwise. There were a growing fraction within Sidonia that admired Kobayashi. Any attempt to censor or ban on this group would make the government looks very bad.
+No, that would be unwise. Any attempt to censor or ban on this group would make the government looks very bad.
 
-The impeachment trial was a forgone conclusion, but it needed to be concluded very fast.
+The impeachment trial was a forgone conclusion, but that wasn't the issue. There was that growing public sentient to deal with. The longer the trial dragged out, the bigger the immortals' support.
+
+None of their arguments would hold water, but that didn't matter.
