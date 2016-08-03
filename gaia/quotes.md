@@ -4,4 +4,4 @@
 
 "Once again, the madness had came to claim all of us" -- Empress Hoshizaki
 
-"Those monotheists, they are a curse upon this world. It is a commandment by their so-called God to stamp out all the other gods, by converting each member to their cause, by denying the validity of other religions. It does not matter how they will do it, through the visage of 'peace' and the 'good news' or forceful conversion. Only then, will they dominate the world." - [Joshula Kelman]
+"Those monotheists, they are a curse upon this world. It is a commandment by their so-called God to stamp out all the other gods, by converting each member to their cause, by denying the validity of other religions. It does not matter how they will do it, through the visage of 'peace' and the 'good news' or forceful conversion. Only then, will they dominate the world." - Joshula Kelman
