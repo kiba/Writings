@@ -18,6 +18,8 @@ Without a doubt, he is the immortal's strongest witness, but the ultimate outcom
 
 That was the crux of the issue, not the impeachment.
 
-She tried to stop the trial in its track and begin a speedy conclusion, but the immortals won't have any of it. They pushed the trial to continuous and they were victorious.
+She tried to stop the trial in its track and begin a speedy conclusion, but the immortals won't have any of it. They really do wanted their day in court.
 
-The consequence was that some of the Sidonians were revolting against the consenus, calling for a pardon of the immortals. 
+But now she was going to have to deal with the spectar of disunity. She could tolerate Shiro's spew about democracy all day, but she can't afford to widen support for the immortals.
+
+It would...validate the immortals' rule, and change the character of Sidonia forever...
