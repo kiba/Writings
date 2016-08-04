@@ -137,7 +137,7 @@ Appearances: 22
 
 **Nagi Juri** - Female Sidonian politician who wanted to impeach Kobayashi and other immortals.
 
-Appearances: 24, 25
+Appearances: 24, 25, 26
 
 **Sako Shiro** - An elderly male Sidonian politican. Thought to be opposed to the military leadership.
 Appearances: 24
