@@ -32,4 +32,11 @@ The boy looked up to his mother, staring into her eyes intensively. "From my sle
 
 Alice knew perfectly well that he wasn't lying. Any form of deception would be spotted immediately.
 
-But the black sphere ball got to come from somewhere. 
+But the black sphere ball got to come from somewhere.
+
+***
+**Age Seven**
+
+There was quirk in her son that started two years ago. She tried to find a reason for it, searching his browsing history, the games he played, but nothing turned up.
+
+Eventually, her doctor convinced her that she may never resolve the true origin of the black sphere.
