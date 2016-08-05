@@ -38,3 +38,15 @@ He launched into telling his war stories, the names of the people he served with
 Then, when he was finally done, he could see the tears that began flowing from the lawmakers.
 
 He knew that he done his work, but was it enough?
+
+***
+**James Archer**
+**October 24, 2015**
+
+The jail bars rolled away as Sasaki ran into Diana and I. She was freed, and there were no pending criminal charges against her.
+
+We hugged for a good while as Sasaki sobbed in my chest.
+
+Sasaki was removed from office via impeachment, and she lost all her positions in Sidonia, and even on Remnant. That was a small price to pay. Even her friend, Doctor Shinatose was right beside her hugging her daughter.
+
+I believe Kobayashi and Ochiai was not so lucky...They were more distant.
