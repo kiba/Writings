@@ -4,4 +4,4 @@
 
 "Once again, the madness had came to claim all of us" -- Empress Hoshizaki
 
-"Those monotheists, they are a curse upon this world. It is a commandment by their so-called God to stamp out all the other gods, by converting each member to their cause, and by denying the validity of other religions. It does not matter how they will do it, through the visage of 'peace' and the 'good news' when they are weak or forceful conversion and war when they are strong. Only then, will they dominate the world." - Joshula Kelman
+"The struggle of world domination will be fought only by us, the Valkian and the monads. Everything else is an illusion. It doesn't matter if we're fighting the Yipanagese or the Lonicans. Regardless of who we were facing, the monads all stood behind each enemy power." - Joshula Kelman
