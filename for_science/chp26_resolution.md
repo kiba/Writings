@@ -15,7 +15,8 @@ Without a doubt, he is the immortal's strongest witness, but the ultimate outcom
 
 "Can you please state your name for the chamber?" the speaker said.
 
-"My name is Saitou Hiroki, identification number 3212..," he rattled off, followed by a list of false identities that he also used in his service as a gardes pilot, all verified cryptographically, and all are names of Sidonian war hero.
+"My name is Saitou Hiroki, identification number 3212..," he rattled off, followed by a list of false identities that he also used in his service as a gardes pilot, which are a
+all verified cryptographically, and all are names of Sidonian war heroes.
 
 To think this man was a war hero...She wanted to believe that it was all one huge lie, part of a fabricated history put out for public consumption. But once you doubt the history of your own people, what is further to doubt?
 
@@ -41,6 +42,7 @@ He knew that he done his work, but was it enough?
 
 ***
 **James Archer**
+**Penitentiary Section 1091**
 **October 24, 2015**
 
 The jail bars rolled away as Sasaki ran into Diana and I. She was freed, and there were no pending criminal charges against her.
@@ -49,4 +51,21 @@ We hugged for a good while as Sasaki sobbed in my chest.
 
 Sasaki was removed from office via impeachment, and she lost all her positions in Sidonia, and even on Remnant. That was a small price to pay. Even her friend, Doctor Shinatose was right beside her hugging her daughter.
 
-I believe Kobayashi and Ochiai was not so lucky...They were more distant.
+I believe Kobayashi and Ochiai were not so lucky. They were facing potential criminal prosecutions, so they were not released. I didn't feel as bad as for them, but they were more distant to me, and their crime much more serious.
+
+As heartless it may sound, it wasn't my problem.
+
+"Hey guys! Why don't you come over to my house for dinner?" Yure Shinatose asked.
+
+I don't see why not.
+
+***
+**Nagai Juri**
+
+Juri was seated in front of Kobayashi in a very white room, two of the immortals left who were imprisoned.
+
+"You know, the other day, I had my genes checked. Guess what I found out?" Juri said. "You are my grandmother, to be exact. But I would never ever call you grandmother."
+
+"That's unfortunate. I was hoping for reconciliation."
+
+"You may be the foundation on which Sidonia is built on, but you are not the future."
