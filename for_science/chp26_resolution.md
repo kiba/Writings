@@ -62,10 +62,16 @@ I don't see why not.
 ***
 **Nagai Juri**
 
-Juri was seated in front of Kobayashi in a very white room, two of the immortals left who were imprisoned.
+Juri was seated in front of Kobayashi in the very room that the immortals was interrogated. It was the same clean sleekness that cannot be commonly found elsewhere on the ship.
 
-"You know, the other day, I had my genes checked. Guess what I found out?" Juri said. "You are my grandmother, to be exact. But I would never ever call you grandmother."
+"I anticipated all your actions," Juri spoken first. "Yet, I never thought that Saitou Hiroki could be so loyal and so effective of a speaker. He managed to overturn public opinion to your side. Just over fifty percent."
 
-"That's unfortunate. I was hoping for reconciliation."
+"Is that bitterness in your tone?" Kobayashi asked.
 
-"You may be the foundation on which Sidonia is built on, but you are not the future."
+"Bitter? Yes, I am. Opinions shouldn't turn based on a good sob story."
+
+"This is why we insisted on having our day in court, in having our legacy examined fairly before the public. Saitou Hiroki was the very example of an outstanding immortal; he protected us so that our civilization can live another day."
+
+"You know, I examined my genetic legacy the other day. Imagine to my horror that I was descended from you. You are my grandmother, genetically, but you will never ever be a grandmother to me. I will prosecute you to the end of universe until we find justice! I will make sure that the history books will recognize you as the tyrant that you were."
+
+"Is that all? This is my granddaughter's vow? To swore vengeance? We got many long days ahead of us. There may be more universes for us to contemplate..."
