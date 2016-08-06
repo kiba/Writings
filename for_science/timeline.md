@@ -46,3 +46,4 @@ October 13, 2015 - Chapter 25 - Professor Ozpin reviews the political aftereffec
 October 17, 2015 - Chapter 25 - Impeachment trials against the immortals ongoing. James Arcer testified.
 October 17, 2015 - Chapter 25 - Nagi Juri discussed the retrieval of Lala Hiyama and Nagate Tanikaze with Colonel Seii.
 October 23, 2015 - Chapter 26 - Saitou Hiroki testify in the impeachment trial.
+October 24, 2015 - Chapter 26 - The immortals are released from jail with the exception of Ochiai and Kobayashi.
