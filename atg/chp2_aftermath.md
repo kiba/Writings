@@ -91,3 +91,13 @@ Polite applause came. By then, the Tau'ri were used to this display of skills fr
 "Anyone would like to try?" he asked the audience.
 
 Several hands rose. Teal'c picked at individuals he hadn't seen recently. Several more bouts to go before he would proceed to showing a new kata.
+
+An hour passed by. Already, most of SG-1 were standing outside when Teal'c walked out the door.
+
+"How's class?" O'Neill asked.
+
+"Most excellent. Normal and routine," Teal'c appraised. "A Jaffa warrior is very difficult take on in melee combat, but I believed some of my students now have a fighting chance to stay alive."
+
+O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We're going to go to a diner nearby for lunch. Want to come with us?"
+
+"I gladly accept your offer."
