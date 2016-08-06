@@ -45,3 +45,4 @@ October 10, 2015 - Chapter 24 - Cindy Blue, part of Vale News Network crew on as
 October 13, 2015 - Chapter 25 - Professor Ozpin reviews the political aftereffect of the unmasking.
 October 17, 2015 - Chapter 25 - Impeachment trials against the immortals ongoing. James Arcer testified.
 October 17, 2015 - Chapter 25 - Nagi Juri discussed the retrieval of Lala Hiyama and Nagate Tanikaze with Colonel Seii.
+October 23, 2015 - Chapter 26 - Saitou Hiroki testify in the impeachment trial.
