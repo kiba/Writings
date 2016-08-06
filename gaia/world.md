@@ -8,7 +8,7 @@ I do plan to set at least one well-defined story in this universe, but it will b
 
 **Yipang**: An island nation to the world's most powerful monarchy in a world where monarchs are increasingly weakened, given way to republican form of governments championed by Lonica.
 **Lonica**: The world's oldest democracy.
-**Valkiland**: Analogue Germany. 
+**Valkiland**: Analogue Germany. One of the instigator of Gaia's second world war.
 
 ## Characters
 
