@@ -101,3 +101,10 @@ An hour passed by. Already, most of SG-1 were standing outside when Teal'c walke
 O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We're going to go to a diner nearby for lunch. Want to come with us?"
 
 "I gladly accept your offer."
+
+***
+**Jack O'Neill**
+
+What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steak.
+
+The entire SG-1 team was present, all eight of them. 
