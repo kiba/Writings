@@ -74,4 +74,24 @@ Juri was seated in front of Kobayashi in the very room that the immortals was in
 
 "You know, I examined my genetic legacy the other day. Imagine to my horror that I was descended from you. You are my grandmother, genetically, but you will never ever be a grandmother to me. I will prosecute you to the end of universe until we find justice! I will make sure that the history books will recognize you as the tyrant that you were."
 
-"Is that all? This is my granddaughter's vow? To swore vengeance? We got many long days ahead of us. There may be more universes for us to contemplate..."
+Juri finished the last sentence with a ragged breath.
+
+Kobayashi showed no reactions. "Is that all you have to say, granddaughter?"
+
+"I am not your granddaughter."
+
+"We are not that close that way, no, but I couldn't possibly care for every human in Sidonia in the same way that I cared for my son. Nonetheless, from now on, regardless of our relationship, you will always be my granddaughter. But if there's one thing you should take to heart in spite of your enmity of me, you shouldn't let the object of your hatred overpower you."
+
+Juri stormed off at that very moment.
+
+***
+**Qrow Branwen**
+**October 25, 2015**
+
+The Sidonian crisis appeared to be over. Qrow still haven't drink any, despite refilling his flask with sake.
+
+Aside from rumor of colonization and invoking an ancient ship law so that a large proportion to leave Sidonia, everything was back to normal.
+
+He found himself confronting a couple of officers and an elevator, with their facemasks off.
+
+"Come with us."
