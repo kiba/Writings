@@ -94,4 +94,24 @@ Aside from rumor of colonization and invoking an ancient ship law so that a larg
 
 He found himself confronting a couple of officers and an elevator, with their facemasks off.
 
-"Come with us."
+"Can you please come with us," one of them said. "The captain is looking to meet you."
+
+Qrow felt entirely naked. He wasn't allow to carry his weapon anywhere on the ship. Normally it wouldn't matter, since the Gauna was the threat and he would be useless in a mecha, but there were the possibility of civil war, though it seemed entirely remote these day.
+
+Finally, the elevator opened up to the command center.
+
+"Welcome, Qrow Branwen. You are representative of Ozpin, of Beacon Academy, correct?" Captain Seii said as he extended his hand out.
+
+"That's one way to put it," Qrow said as he shook the captain's hand. "Though I don't always represent the interest of Beacon Academy and Vale. We are concerned about the status of the Kingdom of the Ark."
+
+"A poetic name...Though we wouldn't call ourselves a kingdom. Anyway, let move on to business. There has been talk about supporting the four kingdoms with additional military aids that went on before the whole crisis, and the politicians today are decidedly eager to move on with the plan, with some modifications."
+
+"What kind of aids are we talking about?"
+
+"We want to sell weapons to the kingdoms, and also foster deeper technological exchange and military ties. With the exception of our immortals, we lacked any sort of military experience, including ground warfare. There isn't any war on Remnant, but there's no shortage of opponents to learn from."
+
+"Does this include mechs?"
+
+"No, not at this time. We are willing to lend designs to the research cooperative we set up on Remnant, however. Of course, this would need to be discussed with all the other diplomats, who somehow have no time to see me."
+
+Qrow smiled at the thought of new equipment. "Of course."
