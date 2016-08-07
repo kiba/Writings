@@ -9,8 +9,9 @@ I do plan to set at least one well-defined story in this universe, but it will b
 **Yipang**: An island nation to the world's most powerful monarchy in a world where monarchs are increasingly weakened, given way to republican form of governments championed by Lonica.
 **Lonica**: The world's oldest democracy.
 **Valkiland**: Analogue Germany. One of the instigator of Gaia's second world war.
+**Holtland**: The country that alternate James Archer and his mother live in.
 
-## Characters
+## World Figures
 
 **Empress Hoshizaki** - Ruler of Yipang. Face is completely unknown to the public as it is completely covered up.
 
