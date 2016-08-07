@@ -16,7 +16,7 @@ He knocked on the door.
 
 It would be convenient, like on some science fiction shows, if people in the galaxy conveniently spoke English for America's benefit. Alas, there's no magical universal translators available. However, the galaxy at large do speak an actual lingua franca, Goa'uld. Thanks to Jackson and Teal'c, Stargate command can interact with the galaxy at large without getting bogged down trying to learn yet another language.
 
-To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld. Learning languages wasn't actually new for O'Neill. Throughout this special operation career, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. HIs time at this command was no exception.
+To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld. Learning languages wasn't actually new for O'Neill. Throughout this special operation career, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
 
 But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find homework.
 
@@ -107,4 +107,4 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 
 What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steak.
 
-The entire SG-1 team was present, all eight of them. 
+The entire SG-1 team was present, all eight of them.
