@@ -5,4 +5,4 @@ According to Tegmark, there are four level of all possible universes. Level one 
 
 Very few people are capable of innate trans-dimensional navigation. One of which is James Archer.
 
-Archer have a 'shard', those shards formed a network of universes that anyone could travel to as long as the target world have doppleganger of James Archer, defined as 'same DNA and based personality.'
+Archer have a 'shard', those shards formed a network of universes that anyone could travel to as long as the target world have doppelganger of James Archer, defined as 'same DNA and based personality.'
