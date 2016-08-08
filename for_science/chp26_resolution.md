@@ -100,18 +100,16 @@ Qrow felt entirely naked. He wasn't allow to carry his weapon anywhere on the sh
 
 Finally, the elevator opened up to the command center.
 
-"Welcome, Qrow Branwen. You are representative of Ozpin, of Beacon Academy, correct?" Captain Seii said as he extended his hand out.
+"Welcome, Qrow Branwen. You are the representative of Ozpin, correct?" Captain Seii said as he extended his hand out.
 
-"That's one way to put it," Qrow said as he shook the captain's hand. "Though I don't always represent the interest of Beacon Academy and Vale. We are concerned about the status of the Kingdom of the Ark."
+"That's one way to put it," Qrow said as he shook the captain's hand. "Though I am only a huntsman, it seemed that I also became a diplomat for this crisis. We are very concerned about the Kingdom of the Ark and what it means for Remnant."
 
-"A poetic name...Though we wouldn't call ourselves a kingdom. Anyway, let move on to business. There has been talk about supporting the four kingdoms with additional military aids that went on before the whole crisis, and the politicians today are decidedly eager to move on with the plan, with some modifications."
+"Hmm. That's certainly a poetic name for Sidonia, but I am afraid we wouldn't call ourselves a kingdom."
 
-"What kind of aids are we talking about?"
+"It's a holdover from the old days. From what I understand, Earth history has monarchies too, and then they either were swept aways or become utterly powerless, just like what it happened on Remnant, though it never occured to us that we would rename our kingdoms to republics."
 
-"We want to sell weapons to the kingdoms, and also foster deeper technological exchange and military ties. With the exception of our immortals, we lacked any sort of military experience, including ground warfare. There isn't any war on Remnant, but there's no shortage of opponents to learn from."
+"I am somewhat aware of your history, though it never occurred to me to think of that way. Anyway, we are here to discuss the process of sending more military aids to Remnant, and I already informed all the diplomats about this matter. However, only you, have any relevant military expertise to understand what we are trying to do."
 
-"Does this include mechs?"
+"Oh?" Qrow was already smiling. "Don't get me wrong, but I am not a military officer, just a simple huntsman."
 
-"No, not at this time. We are willing to lend designs to the research cooperative we set up on Remnant, however. Of course, this would need to be discussed with all the other diplomats, who somehow have no time to see me."
-
-Qrow smiled at the thought of new equipment. "Of course."
+"You'll have to do. The aid is pretty easy to understand. We'll sell weapons and how to make them, even sending technical advisors. In return however....we'll send soldiers, especially ground troops to defend the kingdoms and to support the huntsmen in the field. With the exception of immortals, we do not have any military experience whatsoever."
