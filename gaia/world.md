@@ -11,6 +11,10 @@ I do plan to set at least one well-defined story in this universe, but it will b
 **Valkiland**: Analogue Germany. One of the instigator of Gaia's second world war.
 **Holtland**: The country that alternate James Archer and his mother live in.
 
+## Continents
+
+* Eupora
+
 ## World Figures
 
 **Empress Hoshizaki** - Ruler of Yipang. Face is completely unknown to the public as it is completely covered up.
