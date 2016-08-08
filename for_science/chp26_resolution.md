@@ -125,3 +125,13 @@ Qrow nodded. "I am sure that my political masters will savor at the economic opp
 ***
 **James Archer**
 **November 3, 2015**
+
+On the television, Captain Seii talked about a referendum on which form of government do the citizen of Sidonia preferred.
+
+Frankly, I don't see the point. The captain of the ship cannot avoid but deal with 'civilian matters', as Sidonia is effectively both a warship and living space. If the civilian leadership resisted so much on matters of maintenance, there's going to be a life and death problem, literally. The only other concern were societal functions that the military don't see fit to get too much involved in anyway.
+
+So I flipped the television off.
+
+"What's the matter?" Sasaki said, even as she focused on something tiny. With the loss of her jobs and positions, she was itching for something to do. So she focused on Remnan electronics, getting them up to standard even as she studied the internal.
+
+"The more things changed, the more they stay the same," I said. "The referendum doesn't matter in the slighest except reassuring the population."
