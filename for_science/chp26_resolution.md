@@ -112,4 +112,16 @@ Finally, the elevator opened up to the command center.
 
 "Oh?" Qrow was already smiling. "Don't get me wrong, but I am not a military officer, just a simple huntsman."
 
-"You'll have to do. The aid is pretty easy to understand. We'll sell weapons and how to make them, even sending technical advisors. In return however....we'll send soldiers, especially ground troops to defend the kingdoms and to support the huntsmen in the field. With the exception of immortals, we do not have any military experience whatsoever."
+"You'll have to do. The aid is pretty easy to understand. We'll sell weapon systems and how to make them, even sending technical advisors. In return however....we'll send soldiers, especially ground troops to defend the kingdoms and to support the huntsmen in the field. With the exception of immortals, we do not have any military experience whatsoever."
+
+"I understand, though people might get nervous about foreign soldiers."
+
+"We are only sending very few if any for the foreseeable future, to operate rescue services, for example. The kingdoms will all have choices in the number of soldiers they will allow on their soil. We will pay for whatever is necessary to keep them there, such as rent for any military bases we are willing to establish."
+
+Qrow nodded. "I am sure that my political masters will savor at the economic opportunity. I am also seeing the potential for expansion of our borders."
+
+"We like to believe that working together for mutual benefit is better than seeing Remnant as our rival."
+
+***
+**James Archer**
+**November 3, 2015**
