@@ -17,7 +17,8 @@ I do plan to set at least one well-defined story in this universe, but it will b
 
 ## World Figures
 
-**Empress Hoshizaki** - Ruler of Yipang. Face is completely unknown to the public as it is completely covered up.
+**Empress Hoshizaki** - Ruler of Yipang. 
+**Prime Minister John von Abel** - Leader of Lonica.
 
 ## timeline
 
