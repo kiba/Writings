@@ -152,4 +152,15 @@ I didn't have to like it.
 
 "Starting a new company, huh? What projects will you work on?"
 
-"More of the same thing. Spacecrafts. I have a feeling that we'll need a lot of them. "
+"No idea, but I am not going to compete with Toha Heavy Industries for business."
+
+"Right, they're already doing really important stuff. They make all the big stuff, don't they?"
+
+"Yeah, that's the problem. If I compete with them, I'll feel like I am competing with my own family members. All my expertise is tied up with the company's specialities."
+
+"They're a business, honey. No matter what happen, even if you fail, or succeed, you'll be hiring some of them. Sidonia is your family, not that one singular company."
+
+"Then my project will be a new rocket engine," Sasaki decided.
+
+***
+**Saitou Hiroki**
