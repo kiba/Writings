@@ -164,3 +164,15 @@ I didn't have to like it.
 
 ***
 **Saitou Hiroki**
+**Sidonia Military Academy**
+**November 9, 2015**
+
+It was bittersweet. Kobayashi was still locked away, but Nagate Tanikaze came back. Then, Hiroki was offered a job by Captain Seii, which he easily accepted. Afterward, he became a reserve pilot.
+
+The first thing he did was bring in the simulator that he taught his grandson with, for the both of them and to teach the academy students the skills needed. Though now, he was no longer the best. That title belonged to his grandson, who was still untested in actual combat.
+
+A class of students rushed in. It was not his grandson's class, so he'll have to play the enemy.
+
+Respects extruded from the class, for his legendary skills, if nothing else.
+
+He smiled. "The immortality drugs had already taken hold, so don't think I'll be easy game. Remember, if you lose badly, don't fret. I'll make it hundred of time harder so that you don't die in the battlefield. That's the important thing. Everything else is secondary." 
