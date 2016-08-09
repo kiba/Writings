@@ -14,11 +14,13 @@ I do plan to set at least one well-defined story in this universe, but it will b
 ## Continents
 
 * Eupora
+* Alfica
 
 ## World Figures
 
-**Empress Hoshizaki** - Ruler of Yipang. 
+**Empress Hoshizaki** - Ruler of Yipang.
 **Prime Minister John von Abel** - Leader of Lonica.
+**Fuhrer Joshula Kelman** - Dictator of Valkiland
 
 ## timeline
 
