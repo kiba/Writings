@@ -2,7 +2,7 @@
 
 "The only thing we want is war." -- Foreign minister, Valkiland
 
-"Once again, the madness had came to claim all of us" -- Empress Hoshizaki
+"Once again, the madness [of war] came to claim all of us." -- Empress Hoshizaki
 
 "The struggle of world domination will be fought only by us, the Valkian and the monads. Everything else is an illusion. It doesn't matter if we're fighting the Yipanagese or the Lonicans. Regardless of who we were facing, the monads all stood behind each enemy power." - Joshula Kelman
 
