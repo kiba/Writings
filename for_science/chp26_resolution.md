@@ -132,6 +132,24 @@ Frankly, I don't see the point. The captain of the ship cannot avoid but deal wi
 
 So I flipped the television off.
 
-"What's the matter?" Sasaki said, even as she focused on something tiny. With the loss of her jobs and positions, she was itching for something to do. So she focused on Remnan electronics, getting them up to standard even as she studied the internal.
+"What's the matter?" Sasaki said, even as she focused on something tiny. With the loss of her jobs and banishment from important posts and positions, she was itching for something to do. So she focused solace in fixing up broken Remnan electronics.
 
-"The more things changed, the more they stay the same," I said. "The referendum doesn't matter in the slighest except reassuring the population."
+"Nothing, it's just politics as usual."
+
+"There's nothing about business as usual in this era."
+
+"Maybe. On another thought, what are you going to be doing from now on?"
+
+"Hmm. It's hard to say. I thought about opening up an electronic repair shop, but that's just fixing up stuff. I want to work on true engineering projects. So I might look for a job in that. I heard that Remnant is hiring."
+
+"I am sure that Sidonia will be crawling back to you."
+
+Sasaki smiled. "Thanks for the vote of confidence. But it's time that I look for other opportunities. Hell, I might start a new company. That basically never happened in Sidonia. There wasn't any new niches to occupy for a long time."
+
+Meanwhile, on the other hand, I was still employed by the laboratory. I did thought together with Sasaki, and convince my other girlfriend too, but in the end, Sasaki convinced me to stay on. There was no need to spite my face as a protest of Sasaki's removal. It was understandable that it would happen because of her part in the conspiracy.
+
+I didn't have to like it.
+
+"Starting a new company, huh? What projects will you work on?"
+
+"More of the same thing. Spacecrafts. I have a feeling that we'll need a lot of them. "
