@@ -49,3 +49,4 @@ October 23, 2015 - Chapter 26 - Saitou Hiroki testify in the impeachment trial.
 October 24, 2015 - Chapter 26 - The immortals are released from jail with the exception of Ochiai and Kobayashi.
 October 24, 2015 - Chapter 26 - Nagai Juri confronted Kobayashi about the immortal's future.
 October 25, 2015 - Chapter 26 - Qrow Branwen talked to Captain Seii about future military aid to Remnant.
+November 3, 2015 - Chapter 26 - James Archer and Sasaki discussed the future.
