@@ -134,7 +134,7 @@ So I flipped the television off.
 
 "There's nothing about business as usual in this era."
 
-"Maybe. On another thought, what are you going to be doing from now on?"
+"That's true, but I don't particularly care about who wins in this referendum. On another thought, what are you going to be doing from now on?"
 
 "Hmm. It's hard to say. I thought about opening up an electronic repair shop, but that's just fixing up stuff. I want to work on true engineering projects. So I might look for a job in that. I heard that Remnant is hiring."
 
@@ -156,18 +156,18 @@ Meanwhile, on the other hand, I was still employed by the laboratory. I did thou
 
 "I guess you're right..." Sasaki straightened up her posture. "Then my next project will be a rocket engine I have in mind. There's a design I wanted to try out, which I thought was promising, but everybody else thought it was too hard."
 
+"You're going to prove them wrong?"
+
+"Life doesn't work that way, but part of the innovation process is going through blind alley and seeing unexpected connections. We might succeed, or we might not."
+
 ***
 **Saitou Hiroki**
 **Sidonia Military Academy**
 **November 9, 2015**
 
-It was bittersweet. Kobayashi was still locked away, but his grandson, Nagate Tanikaze came back. Then, Hiroki was offered a job by Captain Seii, which he easily accepted. Afterward, he became a reserve pilot and instructor at the military academy.
+It was bittersweet. Kobayashi was still locked away, but his grandson, Nagate Tanikaze came back. Then, Hiroki was offered a job by Captain Seii, which he easily accepted. He became a reserve pilot and a full time instructor at the military academy. Captain Seii said that in no certain term Sidonia couldn't afford to lose him.
 
-He became an instructor and a reserve pilot. Seii said that in no certain term Sidonia couldn't afford to lose him.
-
-That was fine him, until he becomes the last line of defense for Sidonia.
-
-His plan was to change all of that.
+Unfortunately he agreed, but his plan was to change all of that. There were always aces other than him in every generations, but Sidonia could, with enough time, make every single individual in the gardes corp an 'ace'.
 
 His first task was to bring in the simulator that he and his grandson trained on. The academy students, with the exception of his grandson, won't be trained on this. They were goin to train with the new simulators. It was more for himself to instruct his students with in a shared VR experience.
 
