@@ -5,18 +5,17 @@
 **October 23, 2015**
 **Sidonia**
 
-Without taking any medicine, an immortal aged just like anybody else, unless the medicine was directly genetically engineered into a body, like in Nagate Tanikaze, who was out of reach from Sidonian authority.
+Without taking any medicine, an immortal aged just like anybody else, unless the body was genetically engineering was used to make someone immortal, like what happened to Nagate Tanikaze.
 
-Such was the case for Hiroki Saitou. The alleged hero of Sidonia, and another willing participant in the immortal conspiracy.
+Hiroki Saitou was just another case of immortality induced medication. He was also the alleged hero of Sidonia, but also another willing participant in the immortal conspiracy.
 
-He walked to the witness stance with an elderly motion, a result of century of neglect.
+This man walked to the witness stance with an elderly motion, a result of century of neglect.
 
 Without a doubt, he is the immortal's strongest witness, but the ultimate outcome was already decided. No way forward will be done without an impeachment.
 
 "Can you please state your name for the chamber?" the speaker said.
 
-"My name is Saitou Hiroki, identification number 3212..," he rattled off, followed by a list of false identities that he also used in his service as a gardes pilot and officer, which are
-all verified cryptographically, and all are names of Sidonian war heroes.
+"My name is Saitou Hiroki, identification number 3212..," he rattled off, followed by a list of false identities that he also used in his service as a gardes pilot and officer, which are all verified cryptographically, and all are names of Sidonian war heroes.
 
 To think this man was a war hero...She wanted to believe that it was all one huge lie, part of a fabricated history put out for public consumption. But once you doubt the history of your own people, there would be nothing else to doubt.
 
@@ -31,9 +30,9 @@ Just how many people did he permit to fall to their death because the committee 
 
 However, in his heart, there was a reason to live just as there was a reason for Kobayashi walked in to face the Diet weeks ago. He must defend his honor, and the honor of the remaining survivors so that they could have a life of some sort, not stuck rotting in a jail.
 
-He finally spoke. "Several hundred years ago...I took this oath, to help accomplish this Ark's mission by gifting my knowledge, my expertise, and my very life. It may sound paradoxical to you, but I risked my life over centuries, defending this ark from the gauna. In my last battle, I saved Sidonia from destruction, but only just. That was my biggest regret and failure..."
+He finally spoke. "Several hundred years ago...I took this oath, to help accomplish this Ark's mission by gifting my knowledge, my expertise, and my very life. It may sound paradoxical to you, but I risked my life over the centuries, defending this ark from the gauna. In my last battle, I saved Sidonia from destruction, but only just. That was my biggest regret and failure..."
 
-He launched into telling the war stories of every generation he served with, the names of the people he served with, friends that he had lost, all illustrated on a screen cross-linked across database and checked. Testimony was worthless without external evidence.
+He launched into telling the war stories of every generation he served with, the names of the people he served with, friends that he had lost, all illustrated on a screen cross-linked across database and checked. Testimony was almost totally worthless without external evidence, even if they told the truth. Human memories were fallible that way.
 
 Then, when he was finally done, he could see the tears that began flowing from the lawmakers.
 
@@ -46,13 +45,13 @@ He knew that he done his work, but was it enough?
 
 The jail bars rolled away as Sasaki ran into Diana and I. She was freed, and there were no pending criminal charges against her.
 
-We hugged for a good while as Sasaki sobbed in my chest.
+We hugged for a good while as Sasaki sobbed quietly in my chest.
 
 Sasaki was removed from office via impeachment, and she lost all her positions in Sidonian society. That was a small price to pay. Even her friend, Doctor Shinatose was right beside her hugging her own daughter.
 
 I believed Kobayashi and Ochiai were not so lucky. They were facing potential criminal prosecutions, so they were not released. I didn't feel as bad as for them, but they were more distant to me, and their crime much more serious.
 
-As heartless it may sound, it wasn't my problem.
+As heartless it may be, it wasn't my problem.
 
 "Hey guys! Why don't you come over to my house for dinner?" Yure Shinatose asked.
 
@@ -71,7 +70,7 @@ Juri was seated in front of Kobayashi in the very room that the immortals was in
 
 "This is why we insisted on having our day in court, in having our legacy examined fairly before the public. Saitou Hiroki was the very example of an outstanding immortal; he protected us so that our civilization can live another day."
 
-"You know, I examined my genetic legacy the other day," Juri said with disgust. "Imagine to my horror that I was descended from you. You are, genetically, my grandmother, but you will never ever be a grandmother to me. I will prosecute you to the end of universe until we find justice! I will make sure that the history books will recognize you as the tyrant that you all were."
+"You know, I examined my genetic legacy the other day," Juri said with disgust. "Imagine to my horror that I was descended from you. You are, genetically, my grandmother, but you will never ever be a grandmother to me. I will prosecute you to the end of universe until we find justice! I will make sure that the history books will recognize you as the tyrant you are."
 
 Kobayashi showed no reactions. "Is that all you have to say, granddaughter?"
 
@@ -109,7 +108,7 @@ Finally, the elevator opened up to the command center.
 
 "Oh?" Qrow was already smiling. "Don't get me wrong, but I am not a military officer, just a simple huntsman."
 
-"You'll have to do. The aid is pretty easy to understand. We'll sell weapon systems and how to make them, even sending technical advisors. In return however....we'll send soldiers, especially ground troops to defend the kingdoms and to support the huntsmen in the field. With the exception of immortals, we do not have any military experience whatsoever."
+"You'll have to do for now. The aid is pretty easy to understand. We'll sell weapon systems and how to make them, even sending technical advisors. In return however....we'll send soldiers, especially ground troops to defend the kingdoms and to support the huntsmen in the field. With the exception of immortals, we do not have any military experience whatsoever."
 
 "I understand, though people might get nervous about foreign soldiers."
 
