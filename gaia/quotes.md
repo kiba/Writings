@@ -10,4 +10,4 @@
 
 "Make no mistake, our enemies seek conquest and subjugation. Don't make the mistake of thinking that we won't be next. We ignore the continent to our peril." -- Prime Minister John von Abel
 
-"We live for our empress!" - Yipangese slogan
+"We live for our empress!" - Yipangese military slogan
