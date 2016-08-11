@@ -1,8 +1,10 @@
 # Chapter One: Parallel Lives
 
+***
+**Alice Archer**
+
 
 ***
-**Age Five**
 
 "What are you drawing a picture of?" Alice asked her five years old son as she looked over a picture that showed...a black ball?
 
@@ -35,7 +37,7 @@ Alice knew perfectly well that he wasn't lying. Five years old can't get away wi
 But the black sphere ball got to come from somewhere.
 
 ***
-**Age Seven**
+**Two years later**
 
 There was quirk in her son that started two years ago. She tried to find a reason for it in any place that she could. She searched through his browsing history and her, the games he played, all the books.
 
