@@ -16,6 +16,7 @@ I do plan to set at least one well-defined story in this universe, but it will b
 * Eupora
 * Alfica
 * Tartica - Barren continent located at the south pole.
+* Raesia
 
 ## World Figures
 
