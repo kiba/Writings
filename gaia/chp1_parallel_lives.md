@@ -3,6 +3,13 @@
 ***
 **Alice Archer**
 
+Alice Archer felt alone in this world, pushing her grocery carts among other cart pushers, waiting for the line to move along.
+
+There's so many people around her. Yet they were all strangers, with a none a care for her plight and her son. Alright, maybe some would care, but there were so many deserving people in worse situations than her. Telling her sob story; how she was expelled by her own parents, lost her husband and breadwinner....
+
+The line puttered along.
+
+
 
 ***
 
