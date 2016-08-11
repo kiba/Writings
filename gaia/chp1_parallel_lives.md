@@ -6,19 +6,19 @@
 
 "What are you drawing a picture of?" Alice asked her five years old son as she looked over a picture that showed...a black ball?
 
-Her son tilted his head, before finally coming up with an answer. "I don't know?"
+Her son's face scrunched up, as if he lost in thought, before finally coming up with an answer. "I don't know?"
 
 "You don't know?" For her part, she tilted her head.
 
-"I just don't know mama."
+"I don't know, mama."
 
 The boy continued on using black colors, or variation thereof. Though the drawing looked more like a malformed sphere instead of a perfect sphere. Many markings crossed the sphere itself.
 
-"Where did it come from? A picture?"
+"Where did that come from? From a book you read?"
 
 "No."
 
-"A book?"
+"Some other drawing?"
 
 "No."
 
@@ -28,9 +28,9 @@ The boy continued on using black colors, or variation thereof. Though the drawin
 
 "Then..where did it come from?"
 
-The boy looked up to his mother, staring into her eyes intensively. "From my sleep...I think? I remembered it from my sleep. A dream, yes. A dream!"
+The boy looked up to his mother, staring into her eyes intensively. "From my sleep...I think? I remembered it from my sleep."
 
-Alice knew perfectly well that he wasn't lying. Any form of deception would be spotted immediately.
+Alice knew perfectly well that he wasn't lying. Five years old can't get away with lies, unless the adults allowed them to.
 
 But the black sphere ball got to come from somewhere.
 
@@ -45,4 +45,4 @@ Eventually, her psychologist convinced her that she may never resolve the true o
 
 So one day, Alice found herself staring at a multiple of obsidian ball drawing made over the past two years. One could see the steady evolution of her son' obsession. It gotten cleaner and more detailed over time.
 
-It was a harmless obsession she told herself. Her son did drew other things, mainly the Doctor and his Tardis from Doctor Who, although other subject matters as well. Anything that was about traveling to other worlds absolutely interested him to the exclusion of everything else. 
+It was a harmless obsession she told herself. Her son did drew other things, mainly the Doctor and his Tardis from Doctor Who, although other subject matters as well. Anything that was about traveling to other worlds absolutely interested him to the exclusion of everything else.
