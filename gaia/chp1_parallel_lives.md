@@ -3,13 +3,15 @@
 ***
 **Alice Archer**
 
-Alice Archer felt alone in this world, pushing her grocery carts among other cart pushers, waiting for the line to move along.
+It was Friday afternoon, and rush hour set in at a local farmer's market. Alice Archer found herself in bumper to bumper traffic, lining u at one of the shop register. They did not have enough people to man the line, nor register.
 
-There's so many people around her. Yet they were all strangers, with a none a care for her plight and her son. Alright, maybe some would care, but there were so many deserving people in worse situations than her. Telling her sob story; how she was expelled by her own parents, lost her husband and breadwinner....
+To the right of her, a customer was stumbling with the self-checkout mechanism, slowing down the entire line in the process by several minutes.
 
-The line puttered along.
+Her line puttered along.
 
+She made a deep sigh. There was no use complaining. The store's not going to hire more to speed up the process. Instead she focused on what she'll have to do for this month. Rent, utility, childcare, all seemly so precarious to balance on an art teacher's salary.
 
+Finally, it was her turn. She began putting items on the cash register table, going through the usual motion. 
 
 ***
 
