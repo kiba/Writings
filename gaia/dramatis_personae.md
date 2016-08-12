@@ -11,7 +11,7 @@ Social:
 
 * Familial relations: Alice Archer, mother, closest. John Archer, father, deceased. No other contacts.
 * Friends:
-* Career:
+* Career: Silicon Valley billionaire
 
 **Alice Archer (Gaia)**  - Doppelganger mother. Is strongly religious, attend church. Believe strongly in education.
 
