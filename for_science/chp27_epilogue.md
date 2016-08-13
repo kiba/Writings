@@ -27,7 +27,7 @@ Visitation was only limited to once every week, and only four hours at a time, g
 
 ***
 
-Her grandson was off playing with some of the prison staff somewhere, while Kobayashi and Hiroki ended up in a room specified for conjugal visit.
+Her grandson was outside playing with some of the prison staff somewhere, while Kobayashi and Hiroki ended up in a place designated for conjugal visit.
 
 It was a small 'apartment', decorated like a domestic dwelling rather than a jail cell. It even have a fridge and kitchen stocked with all the necessary items to cook food.
 
