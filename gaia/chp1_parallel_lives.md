@@ -11,7 +11,7 @@ Her line puttered along.
 
 She made a deep sigh. There was no use complaining. The store's not going to hire more to speed up the process. Instead she focused on what she'll have to do for this month. Rent, utility, childcare, all seemly so precarious to balance on an art teacher's salary.
 
-Finally, it was her turn. She began putting items on the cash register table, going through the usual motion. 
+Finally, it was her turn. She went through the usual motion of the checkout process. It was more efficient than the self-checkout mechanism. 
 
 ***
 
