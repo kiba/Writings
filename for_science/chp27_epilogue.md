@@ -54,3 +54,23 @@ She shook her head. "You don't need to do that for me."
 "I don't want any more shop talk or politics from you. I just want to enjoy our time together."
 
 "As you wish, dear."
+
+***
+**James Archer**
+**November 3, 2016**
+
+There was a baby boom of sort shortly after the crisis. Now, there was this new spirit of renovation that had sprung up. I could see it everywhere as I walked.
+
+The ark stopped looking so patchy and old.
+
+The energy cost imposed upon Sidonia by the gravity furnace was significant if necessary. Now, pretty much every floor level got their own gravity plate, making the furnace unnecessary. It also freed up a lot of space once it was shut off.
+
+Of course, with Sidonia being mostly empty, that wasn't an issue. It also meant a shortage of labor, and that required migration, which also required rethinking about how Sidonian society works.
+
+As I approach a particular busy street, there were lot of political slogans. I could also see people wearing colorful dress, not abiding by the standard Sidonian uniform. They were often immigrants from Remnant.
+
+They were not a large percentage of the population, but what was a trickle earlier in the year was becoming a flow.
+
+Apparently, there were meta-awareness on the part of Sidonia, and there were effort made to counter any xenophobia and cultural misunderstanding that might arise.
+
+Of course, I was also an 'immigrant', but the perception that I was already one of them, despite my unusual behaviors.
