@@ -26,6 +26,15 @@ Social:
 
 * Familial relations: James Archer, son. John Archer, husband, deceased.
 
+**Alice Archer (Earth)** - James Archer's actual mother. Not religious at all. Atheist. Believed strongly in religion.
+
+Physical characteristics:
+
+* Hair color: Apple red
+* Eye color: brown
+* Height: 165 cm
+* Scars, birthmarks: none
+
 **Sil Silver** - The perceptive owner of a pawnshop, *Silver Pawn*. Due to the possibility of dealing with stolen merchandise and having to return them, he developed an ability to detect lies from his customers to reduce losses and getting the most out of the goods he buy.
 
 Physical characteristics:
