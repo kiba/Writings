@@ -85,3 +85,13 @@ They're all getting immortality pills. This was why some people are having child
 Finally, I ended up at the cafe that my girlfriends wanted me to meet. Thankfully, I hadn't increased my harem beyond the two for the past years or so. I wanted to keep it that way.
 
 Immediately, I spotted the redheads in the crowd of table and headed there.
+
+***
+
+It wasn't long before we started talking shop. That's my personality. I don't fight nor am I much of an adventurer. On all account, the Sidonian exploration corp together with the Remnant Trans-Reality taking over my former desire to explore.
+
+Why do it when someone can brave the frontier at much less personal risk to myself?
+
+"So, how's JXV-129?" I asked. "Or what it's called? Biter planet?"
+
+"More of the usual. Advanced compression tech, mining and manufacturing equipment," Sasaki said. "That had been taken up by the government, though we were accorded finder fees."
