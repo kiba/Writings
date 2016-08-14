@@ -70,7 +70,7 @@ Of course, there's also a baby boom, increasing demand for new housing. Actually
 
 The ark stopped looking so old and patchy. It's actually starting to look like a modern city now, although thankfully still lived in.
 
-Gravity plates also endenger another effect: increased available energy and more room at the room. The old gravity furnace was being dismantled piece by piece, lowering the cost of 'land' for everyone.
+Gravity plates also engendered another effect: increased available energy and more room at the room. The old gravity furnace was being dismantled piece by piece, lowering the cost of 'land' for everyone.
 
 With all the work that needed to be done, there's a shortage of labor and increasing wages, which put strong demand on migration.
 
@@ -82,6 +82,6 @@ On my way to a cafe, I noticed a new building, a medical clinic, and a long line
 
 They're all getting immortality pills. This was why some people are having children, because they feared losing out the chance. However, with an unlimited access to the multiverse, it's a silly concern, because the scarcity of resources was a non-problem.
 
-Finally, I ended up at the cafe that my girlfriends wanted me to meet. Thankfully, I hadn't increased my harem beyond the two.
+Finally, I ended up at the cafe that my girlfriends wanted me to meet. Thankfully, I hadn't increased my harem beyond the two for the past years or so. I wanted to keep it that way.
 
 Immediately, I spotted the redheads in the crowd of table and headed there.
