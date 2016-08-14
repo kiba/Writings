@@ -10,8 +10,10 @@ Physical characteristics:
 Social:
 
 * Familial relations: Alice Archer, mother, closest. John Archer, father, deceased. No other contacts.
-* Friends:
-* Career: Silicon Valley billionaire
+* Friendship Criteria: Frequently associated and attracted to intellectuals, geeks, and nerds. However, friends from childhood can persists, especially if kept in contact
+* Friends: 
+* Career: electrical engineer, programmer, startup founder, billionaire
+* Humor: Dislike embarrassment humor. Tended to cringe rather than laugh. No interest in standup comedy. Likes occupational humor.
 
 **Alice Archer (Gaia)**  - Doppelganger mother. Is strongly religious, attend church. Believe strongly in education.
 
