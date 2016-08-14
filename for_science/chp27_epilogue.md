@@ -59,18 +59,29 @@ She shook her head. "You don't need to do that for me."
 **James Archer**
 **November 3, 2016**
 
-There was a baby boom of sort shortly after the crisis. Now, there was this new spirit of renovation that had sprung up. I could see it everywhere as I walked.
+Today's my time off, and for that, I took really long walk around Sidonia, surveying the changes that was being made.
 
-The ark stopped looking so patchy and old.
+There's lot of construction going on, a tell-tale sign of a new economic boom in progress. Facilities were being remodeled as fast as Sidonia could manufacture gravity plates, which was acquired by me from the Colonials during my travel.
 
-The energy cost imposed upon Sidonia by the gravity furnace was significant if necessary. Now, pretty much every floor level got their own gravity plate, making the furnace unnecessary. It also freed up a lot of space once it was shut off.
+In addition, there's also a baby boom that's fueling the demand as well. Sidonians were feeling very optimistic about the future lately, although only about a year ago, they faced a constitutional crisis.
 
-Of course, with Sidonia being mostly empty, that wasn't an issue. It also meant a shortage of labor, and that required migration, which also required rethinking about how Sidonian society works.
+I must say that there's not a whole of new housing. Most were rehabilitated housing instead.
+Of course, there's also a baby boom, increasing demand for new housing. Actually, there were lot of room that simply went unused because the population wasn't large enough even after hundred of years of growth.
 
-As I approach a particular busy street, there were lot of political slogans. I could also see people wearing colorful dress, not abiding by the standard Sidonian uniform. They were often immigrants from Remnant.
+The ark stopped looking so old and patchy. It's actually starting to look like a modern city now, although thankfully still lived in.
 
-They were not a large percentage of the population, but what was a trickle earlier in the year was becoming a flow.
+Gravity plates also endenger another effect: increased available energy and more room at the room. The old gravity furnace was being dismantled piece by piece, lowering the cost of 'land' for everyone.
 
-Apparently, there were meta-awareness on the part of Sidonia, and there were effort made to counter any xenophobia and cultural misunderstanding that might arise.
+With all the work that needed to be done, there's a shortage of labor and increasing wages, which put strong demand on migration.
 
-Of course, I was also an 'immigrant', but the perception that I was already one of them, despite my unusual behaviors.
+I made my way to a busy town center. It was the same town that I first toured when I was a guest/prisoner. It look quite different now. Nowsday, there's more political slogans, more people discussing or making their protests. There's also more colors being injected into the scene. The Sidonians wore their uniforms, but there's also Remnans. Some of them visiting, but also some of them are full time residents.
+
+For the first time in thousand of years, Sidonia was handling actual migrants.
+
+On my way to a cafe, I noticed a new building, a medical clinic, and a long line of people. The oldest and the frail were always bumped up ahead of the line, while the middle aged and younger folks followed behind.
+
+They're all getting immortality pills. This was why some people are having children, because they feared losing out the chance. However, with an unlimited access to the multiverse, it's a silly concern, because the scarcity of resources was a non-problem.
+
+Finally, I ended up at the cafe that my girlfriends wanted me to meet. Thankfully, I hadn't increased my harem beyond the two.
+
+Immediately, I spotted the redheads in the crowd of table and headed there.
