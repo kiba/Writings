@@ -5,7 +5,7 @@ Physical characteristics:
 * Hair color: Jet black.
 * Eye color: Brown
 * Skin tone: Pale
-* Hair style: Hardvard clip 
+* Hair style: Harvard clip
 * Facial features: Constantly unshaven beard, oval face.
 * Height: 177 cm.
 * Scars, birthmark: None
