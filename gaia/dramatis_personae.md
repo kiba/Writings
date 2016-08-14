@@ -1,9 +1,12 @@
-**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. He made his accidental fortune through the buying and selling of a new form of internet money. He used his newfound wealth to fund and develop a trans-dimensional travel machine. He did not think such a machine would work, but he felt compelled to develop it nonetheless.
+**James Archer** - An overly paranoid anti-government computer programmer, though not a conspiracy theorist type. He first made his fortune through an internet startup. He used his newfound wealth to fund and develop a trans-dimensional travel machine. He did not think such a machine would work, but he felt compelled to develop it nonetheless.
 
 Physical characteristics:
 
 * Hair color: Jet black.
 * Eye color: Brown
+* Skin tone: Pale
+* Hair style: Hardvard clip 
+* Facial features: Constantly unshaven beard, oval face.
 * Height: 177 cm.
 * Scars, birthmark: None
 
@@ -11,9 +14,9 @@ Social:
 
 * Familial relations: Alice Archer, mother, closest. John Archer, father, deceased. No other contacts.
 * Friendship Criteria: Frequently associated and attracted to intellectuals, geeks, and nerds. However, friends from childhood can persists, especially if kept in contact
-* Friends: 
+* Friends:
 * Career: electrical engineer, programmer, startup founder, billionaire
-* Humor: Dislike embarrassment humor. Tended to cringe rather than laugh. No interest in standup comedy. Likes occupational humor.
+* Humor: Dislike embarrassment humor. Tended to cringe rather than laugh. No interest in standup comedy. Do like parodies.
 
 **Alice Archer (Gaia)**  - Doppelganger mother. Is strongly religious, attend church. Believe strongly in education.
 
