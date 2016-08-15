@@ -88,10 +88,61 @@ Immediately, I spotted the redheads in the crowd of table and headed there.
 
 ***
 
-It wasn't long before we started talking shop. That's my personality. I don't fight nor am I much of an adventurer. On all account, the Sidonian exploration corp together with the Remnant Trans-Reality taking over my former desire to explore.
+After the lunch at the cafe, we made our way to Sidonia's exploration command headquarter. There, the captain was waiting for us.
 
-Why do it when someone can brave the frontier at much less personal risk to myself?
+Even Sasaki was allowed in, especially after the captain pointed out in the last meeting that the immortals were experts at what they do and their loyalty wasn't a question. Still, it didn't mean that Sasaki was going to be part of the government or given position.
 
-"So, how's JXV-129?" I asked. "Or what it's called? Biter planet?"
+She was only a consultant, paid only a nominal sum for her service.
 
-"More of the usual. Advanced compression tech, mining and manufacturing equipment," Sasaki said. "That had been taken up by the government, though we were accorded finder fees."
+"Good day to you, doctors," Captain Seii greeted us. He was supposed to be the general of Sidnoia's infantry branch, but fate had other plans in store for him. "Thanks to you and everyone's hard work, we're able to explore more and better before, without relying on Archer's calculation. No offense to Doctor Archer."
+
+"No offense taken," I automatically replied. Another thing that did happen is that it was no longer necessary to rely on me to provide coordinates. TDMs now transited near Sidonia and then land, rather than just appearing in Sidonia.
+
+"So I heard you got something," Diana said.
+
+"We did. We're recovering artifacts from a planet in the universe X21-NAJW. According to my scientists and engineers, they're mostly some sort of 'compression' technology, like 'bigger on the inside'."
+
+"Neat," I excitedly said. "I want to get my hand on it."
+
+"You're the reverse-engineering expert. So you get to choose first."
+
+That's just the way I like it. Exciting technology, no drama, and nobody's trying to imprison or kill me.
+
+***
+**Headmaster Ozpin**
+**November 5, 2016**
+**Remnant**
+
+How things changed in just a year and a half.
+
+The sky was already filling up with aerocrafts, some even from space. There were even talks of colonizing the moon.
+
+The grimm, fortunately, seem to be unable to manifest itself outside Remnant's atmosphere, nor was it possible to be transported via any TDM.
+
+That was heady news. Suddenly, Remnant's future seem brighter than it ever had been in history.
+
+Of course, the Grimm are still there on this planet. Even if the Grimm were no longer issues, criminals would roam with the migrants to other worlds and other realities.
+
+There's no doubt that his job, however it may change in the future, will be there in the future.
+
+His focus was on one aspect of that, the headhunt for Torchwick and his accomplice.
+
+Wanted posters are already out for a woman named Cinder, and another for Emerald, a mind trickster.
+
+The door slid open, Goodwitch striding in with coffee.
+
+"Still keeping up with the hunt?" Goodwitch asked.
+
+"Frustrating, but Qrow's managing the operation on the ground just fine."
+
+"That man...and his goons, they unknowingly cause a diplomatic incident, almost killed two innocents. They caused one of our student to cry."
+
+"Mr. Torchwick was involved in something deeper than just a robbery gone horribly wrong, part of a larger conspiracy, allying himself with the White Fang. It was fortunate that his robbery went wrong that we were able to redirect resources to the threat."
+
+"Amber," Goodwitch said cryptically.
+
+Ozpin nodded. "Yes. Through a series of concidence, we are able to avoid what looked to be a major disaster."
+
+"For now."
+
+"For now," Ozpin repeated Goodwitch's words.
