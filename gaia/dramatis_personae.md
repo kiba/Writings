@@ -14,6 +14,7 @@ Social:
 
 * Familial relations: Alice Archer, mother, closest. John Archer, father, deceased. No other contacts.
 * Friendship Criteria: Frequently associated and attracted to intellectuals, geeks, and nerds. However, friends from childhood can persists, especially if kept in contact
+* Most Frequent Contact: His colleagues and coworkers, then friend or family. 
 * Friends:
 * Career: electrical engineer, programmer, startup founder, billionaire
 * Humor: Dislike embarrassment humor. Tended to cringe rather than laugh. No interest in standup comedy. Do like parodies.
