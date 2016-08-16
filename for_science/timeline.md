@@ -51,4 +51,6 @@ October 24, 2015 - Chapter 26 - Nagai Juri confronted Kobayashi about the immort
 October 25, 2015 - Chapter 26 - Qrow Branwen talked to Captain Seii about future military aid to Remnant.
 November 3, 2015 - Chapter 26 - James Archer and Sasaki discussed Sasaki's future.
 November 25, 2015 - Chapter 26 - Saitou Hiroki starts his job as an instructor for the Sidonia Military Academy.
-October 13, 2016 - Chapter 27 - Hiroki and his grandson visits Kobayashi in prison. 
+October 13, 2016 - Chapter 27 - Hiroki and his grandson visits Kobayashi in prison.
+November 3, 2016 - Chapter 27 - James Archer toured Sidonia and the latest change. Later discussed new reverse engineering project with Captain Seii.
+November 5, 2016 - Chapter 27 - Ozpin and Goodwitch discussed Torchwick, who has yet to be captured.
