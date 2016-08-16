@@ -10,8 +10,13 @@ OptionParser.new do |opts|
     options[:today] = t
   end
 
+  opts.on("-dDir", "--directory=DIRECTORY", "Choose specific project to summarize") do |d|
+    options[:directory] = d
+  end
+
   opts.on("-h", "--help", "Print all commands.") do
     puts opts
+    exit
   end
 end.parse!
 
