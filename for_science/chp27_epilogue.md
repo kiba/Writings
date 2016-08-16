@@ -146,3 +146,20 @@ Ozpin nodded. "Yes. Through a series of concidence, we are able to avoid what lo
 "For now."
 
 "For now," Ozpin repeated Goodwitch's words.
+
+***
+**Delta Three Zero One**
+**November 7, 2016**
+**Site ZeroOne**
+
+Delta overlooked a barren valley, for it was incapable of supporting life. That wasn't Delta's concern. That would eventually be terraformed to support organic life. But Delta and the other cylons wasn't organic, so it wasn't necessary for their survival.
+
+The cylons finally got what they were looking for, a new home.
+
+To be together, or stay apart? That was the question when the Cylons first started considering colonization of this reality's planet. To be together with the humans, or to be apart. Ultimately, the Cylons considered exclusion undesirable.
+
+It was better to be together in a singular civilization, benefiting from the diversity of species and beliefs.
+
+This wasn't a Cylon colony, and accordingly, the humans were greater in numbers than the Cylons. It was at least, a haven for artificial intelligence.
+
+Delta trekked downward to ZeroOne, not bothered by the absolutely thin atmosphere, nor the fact that it was almost entirely carbon rather than oxygen. Cylons need not to breathe.
