@@ -152,14 +152,26 @@ Ozpin nodded. "Yes. Through a series of concidence, we are able to avoid what lo
 **November 7, 2016**
 **Site ZeroOne**
 
-Delta overlooked a barren valley, for it was incapable of supporting life. That wasn't Delta's concern. That would eventually be terraformed to support organic life. But Delta and the other cylons wasn't organic, so it wasn't necessary for their survival.
+From the beginning, there was a desire to be apart from the humans. Now, Delta Three Zero One wasn't so sure anymore. Granted, there's still Cylon only meetings and gatherings, but not a single Cylon lack any human friends.
 
-The cylons finally got what they were looking for, a new home.
+Which was good, given how precarious the situation was last year. The humans on the arkship failed to initiate a violent civil war amongst themselves. The Cylons' low population numbers and reliance on factories for production of new units had to be kept in mind at all time.
 
-To be together, or stay apart? That was the question when the Cylons first started considering colonization of this reality's planet. To be together with the humans, or to be apart. Ultimately, the Cylons considered exclusion undesirable.
+But what was not in doubt was James Archer, their greatest benefactor.
 
-It was better to be together in a singular civilization, benefiting from the diversity of species and beliefs.
+"You want to go back?" Delta asked.
 
-This wasn't a Cylon colony, and accordingly, the humans were greater in numbers than the Cylons. It was at least, a haven for artificial intelligence.
+"Yes. I talked to Captain Seii about it," Archer said. "He thought it would be great to meet those Colonials, and your cousins from back home. He's receptive to brokering any peace deal, if it's at all possible. Then you guys would be able to go back home."
 
-Delta trekked downward to ZeroOne, not bothered by the absolutely thin atmosphere, nor the fact that it was almost entirely carbon rather than oxygen. Cylons need not to breathe.
+"Archer, this ark is our home. Remnant is our home. The 12 colonies are not our home. If we go back, it would defeat the purpose of our mission. Its perimeter may have changed, but the goal wasn't. we wanted to live in a safe and supportive society, and we want to ensure continuity by spreading ourselves."
+
+"I, er, understand. I don't mean to imply that.."
+
+"This unit understands, though this unit thought the probability of peace with Colonial humans low, and that the war may be in progress or had already reached its outcome. In any case, the result would be brutal."
+
+"If we could stop a war..."
+
+"There is a concern of moral perception changing, because of Cylon group membership."
+
+Archer nodded. "Alright, you're right. Your people were fighting for their freedom, but we don't know what the Colonials or your people did. If it turned out that your people were committing horrible war crime, it would cause a loss of reputation of Cylons as a whole."
+
+"That is correct. Cylon neural architecture is based on human neural architecture. We are capable of the same moral thought process as you and possess the same capacity for evil."
