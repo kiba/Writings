@@ -22,11 +22,11 @@ if options[:today] == true
     dir = "reports/for_science"
     Dir[dir]
     reports = Dir.glob(dir + "/*.md")
-    n = 0
-    reports.each do |report|
-      n += 1
-    end
-    puts "file exists."
+    todayFile = File.read(reports[-1]).split(" ")
+    lastAvailable = File.read(reports[-2]).split(" ")
+    changes = todayFile[0].to_i - lastAvailable[0].to_i
+    puts "Total changes:" + changes.to_s
+    puts "Last Available Report: " + lastAvailable[0] + ", Today's Report: " + todayFile[0]
   else
     puts "Error: today's report haven't been generated."
   end
