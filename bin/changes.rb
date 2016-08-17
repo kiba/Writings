@@ -24,7 +24,11 @@ if options[:today] == true
   today = Date.today
   filename = "reports/for_science/" + today.to_s + ".md"
   if File.exist?(filename)
-    dir = "reports/for_science"
+    if options[:directory].nil?
+      dir = "reports/for_science"
+    else
+      dir = options[:directory]
+    end
     Dir[dir]
     reports = Dir.glob(dir + "/*.md")
     todayFile = File.read(reports[-1]).split(" ")
