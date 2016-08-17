@@ -29,7 +29,7 @@ if options[:today] == true
     if options[:directory].nil?
       dir = "reports/for_science"
     else
-      dir = options[:directory]
+      dir = "reports/" + options[:directory]
     end
     Dir[dir]
     reports = Dir.glob(dir + "/*.md")
