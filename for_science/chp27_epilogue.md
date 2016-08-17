@@ -3,35 +3,37 @@
 **October 13, 2016**
 **Captain Kobayashi**
 
-There were no question where Kobayashi was right now. She was in jail, wearing a prison uniform, doing useful busywork, listening to the television as it babbled on about the latest news about the outside world.
+There was no question where Kobayashi was right now. She was in jail, wearing a prison uniform, doing useful busywork, listening to the television as it babbled on about the latest news about the outside world. That was the outcome of the criminal trial she endured.
 
-It was going to be a long twenty years and she's going to miss so much of history.
+Things were going to change rapidly for the next twenty years, and she won't be there to participate in it. It's all out of her hand. Part of her felt relieved. She won't have to make the hard decisions. Captain Seii will, if he managed to hold on to power.
 
-Not even her friend Ochiai was allowed to serve his sentence with her. His sentence was much shorter. Only a mere seven years.
+Sadly, her friend Ochiai wasn't allowed to serve his sentence with her. The court deemed that her and Ochiai were too dangerous to serve together. At least his sentence was much shorter than her, with only seven years.
 
-She was alone.
+But she was alone.
 
 Even her jail cell seemed barren of decoration. There were very few personal artifacts.
 
-Sidonia generally don't do imprisonment except for the most serious crime. Very few murder. In fact, she was the only one in cellblock A.
+Sidonia generally don't do imprisonment except for the most serious crime. There were only a few murders over the centuries. In fact, she was the only one in cellblock A.
 
-The guards who worked here played with her, keep company, and most importantly keep her sane.
+The guards who worked there weren't certainly career correctional officers. They were psychologists and therapists, the only companions in this prison, at least until...
 
-The door slid open. "You got visitor!"
+The door slid open. "You got visitor!" Today was visitation day.
 
 Kobayashi flipped off the television, put down her work, and walked outside.
 
 "Grandma!" a boy exclaimed as he hug-tackled her. Her husband was nearby, looking on.
 
-Visitation was only limited to once every week, and only four hours at a time, giving her only sixteen hours per month. Mail and letters was unlimited. She wanted more, but this was prison. For all the focus on rehabilitation and training, it was also punishment.
+Visitation was only limited to once every week, and only four hours at a time, giving her only sixteen hours per month. Mail and letters was unlimited. She wanted more, but this was prison. For all the focus on rehabilitation and training, it was also punishment, however overshadowed that purpose may be.
 
 ***
 
-Her grandson was outside playing with some of the prison staff somewhere, while Kobayashi and Hiroki ended up in a place designated for conjugal visit.
+There was a need for the adults to be alone, so the prison staffs volunteered to keep her grandson busy, while Kobayashi and Hiroki entered a special apartment.
 
-It was a small 'apartment', decorated like a domestic dwelling rather than a jail cell. It even have a fridge and kitchen stocked with all the necessary items to cook food.
+It was a small 'apartment', decorated like a domestic dwelling rather than a jail cell, filled with fridge stocked with food.
 
-She could see the healing on her husband's face. He no longer looked like a ragged old man, but he was still elderly looking.
+She made full use of it, cooking a simple dinner, and then bringing it to the table.
+
+As she sat down opposite of Hiroki, she could see the healing on her husband's face. He looked middle age and the wrinkled lines had begun to disappears. It would take another five years or so before he deaged completely.
 
 Kobayashi put her hand on Hiroki's face, feeling the contour of the wrinkled skin.
 
