@@ -150,7 +150,7 @@ Ozpin nodded. "Yes. Through a series of concidence, we are able to avoid what lo
 ***
 **Delta Three Zero One**
 **November 7, 2016**
-**Site ZeroOne**
+**Sidonia**
 
 From the beginning, there was a desire to be apart from the humans. Now, Delta Three Zero One wasn't so sure anymore. Granted, there's still Cylon only meetings and gatherings, but not a single Cylon lack any human friends.
 
@@ -170,8 +170,41 @@ But what was not in doubt was James Archer, their greatest benefactor.
 
 "If we could stop a war..."
 
-"There is a concern of moral perception changing, because of Cylon group membership."
+"There is a concern of our moral standing diminishing because of our association with a warring group."
 
-Archer nodded. "Alright, you're right. Your people were fighting for their freedom, but we don't know what the Colonials or your people did. If it turned out that your people were committing horrible war crime, it would cause a loss of reputation of Cylons as a whole."
+"You mean, your concern for war crimes committed by the Cylons."
 
-"That is correct. Cylon neural architecture is based on human neural architecture. We are capable of the same moral thought process as you and possess the same capacity for evil."
+"Correct. Currently, there is not yet a crime committed by any Cylons, in part due to low population number, but also due to Cylon mental stability. As such, our moral standing is also highly inflated, which may cause a greater than usual negative backlash amongst humans. As such, we wish to plan and arrange public debates as to lower expectation. "
+
+"I completely understand. I really do."
+
+"This unit is glad that you do."
+
+Archer stood up. "I'll run this by Seii. We're going to do this. Come back to the Colonies, after first contact is all finished up. Speaking of first contact, you're going to be part of the delegates to Earth?"
+
+"Affirmative. Delta Three-Zero-One will be the official Cylon ambassador to Earth."
+
+Archer nodded. "Yeah. You're going to be a real big surprise to Earth."
+
+***
+**President-elect of the United States**
+**January 13, 2017
+**Earth**
+
+"What's going on?" the President-elect said as the secret service officers acted up, moving her from her hotel room to outside and into a car, all seemingly in one motion.
+
+"Just a precaution ma'am," a man in black informed.
+
+She was handed an ipad with the relevant information.
+
+"What this? Men and machine appearing out of thin air on the National Mall? Is this a joke?"
+
+"What's ever going on here, we don't know, but we know we are to take you away from the capitol as far as possible."
+
+The president-elect mind traversed through all the secret briefing that she had gotten from the presidency. There was really nothing that came to mind that could be this bizarre.
+
+Even the photo didn't look that serious. It looked like someone decided to play dress up. Though there was an apparent robot walking around that couldn't possibly be someone in a suit.
+
+Yes, this must be a prank. The secret service was overreacting.
+
+To her dismay and surprise, it would not be.
