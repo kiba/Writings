@@ -205,6 +205,6 @@ The president-elect mind traversed through all the secret briefing that she had 
 
 Even the photo didn't look that serious. It looked like someone decided to play dress up. Though there was an apparent robot walking around that couldn't possibly be someone in a suit.
 
-Yes, this must be a prank. The secret service was overreacting.
+Yes, this must be a hoax. The secret service was overreacting.
 
-To her dismay and surprise, it would not be.
+To her dismay and surprise, it wasn't a hoax at all.
