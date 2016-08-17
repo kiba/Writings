@@ -54,3 +54,4 @@ November 25, 2015 - Chapter 26 - Saitou Hiroki starts his job as an instructor f
 October 13, 2016 - Chapter 27 - Hiroki and his grandson visits Kobayashi in prison.
 November 3, 2016 - Chapter 27 - James Archer toured Sidonia and the latest change. Later discussed new reverse engineering project with Captain Seii.
 November 5, 2016 - Chapter 27 - Ozpin and Goodwitch discussed Torchwick, who has yet to be captured.
+January 13, 2016 - Chapter 27 - The president-elect learned of the first contact event, dismissing it as a hoax.
