@@ -93,15 +93,15 @@ After the lunch at the cafe, we made our way to Sidonia's exploration command he
 
 Even Sasaki was allowed in, especially after the captain pointed out in the last meeting that the immortals were experts at what they do and their loyalty wasn't even a question. Still, it didn't mean that Sasaki was going to be part of the government or given any position.
 
-She was only a consultant, paid only a nominal sum for her service.
+She was only a consultant, paid only a nominal sum for her service. At least that's how they spin it to everyone. It was just a way to keep and make use of her expertise for the nation.
 
-"Good day to you, doctors," Captain Seii greeted us. He was supposed to be the general of Sidnoia's infantry branch, but fate had other plans in store for him. "Thanks to you and everyone's hard work, we're able to explore more and better before, without relying on Archer's calculation. No offense to Doctor Archer."
+"Good day to you, doctors," Captain Seii greeted us. He was supposed to be the general of Sidnoia's infantry branch, but fate had other plans in store for him. "Thanks to you and everyone's hard work, we're able to explore the multiverse on our own, without relying on Archer's mysterious calculations." There were actually missions to adjacent universes without me coming up with a new address from out of nowhere.
 
-"No offense taken," I automatically replied. Another thing that did happen is that it was no longer necessary to rely on me to provide coordinates. TDMs now transited near Sidonia and then land, rather than just appearing in Sidonia.
+Another thing that did happen is that it was no longer necessary to rely on me to provide coordinates. TDMs now transited near Sidonia and then dock, rather than just appearing in Sidonia. That was thanks to a series of beacon that had been slowly spread across various dimensions.
 
 "So I heard you got something," Diana said.
 
-"We did. We're recovering artifacts from a planet in the universe X21-NAJW. According to my scientists and engineers, they're mostly some sort of 'compression' technology, like 'bigger on the inside'."
+"We did. We're recovering artifacts from a planet in the universe X21-NAJW. According to my scientists and engineers, the defining technology behind those artifacts is compression tech, 'bigger on the inside' they told me."
 
 "Neat," I excitedly said. "I want to get my hand on it."
 
