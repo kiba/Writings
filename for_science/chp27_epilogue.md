@@ -61,38 +61,37 @@ She shook her head. "You don't need to do that for me."
 **James Archer**
 **November 3, 2016**
 
-Today's my time off, and for that, I took really long walk around Sidonia, surveying the changes that was being made.
+Today's my time off, and for that luxury, I took a strode around Sidonia, surveying the changes being made.
 
-There's lot of construction going on, a tell-tale sign of a new economic boom in progress. Facilities were being remodeled as fast as Sidonia could manufacture gravity plates, which was acquired by me from the Colonials during my travel.
+About a quarter of the buildings have those scaffolds on the outside. Incessant jackhammering, pounding, and the hiss that came from welding torches also made it clear that there's a construction boom in progress, as a result of the economic boom in progress.
 
 In addition, there's also a baby boom that's fueling the demand as well. Sidonians were feeling very optimistic about the future lately, although only about a year ago, they faced a constitutional crisis.
 
-I must say that there's not a whole of new housing. Most were rehabilitated housing instead.
-Of course, there's also a baby boom, increasing demand for new housing. Actually, there were lot of room that simply went unused because the population wasn't large enough even after hundred of years of growth.
+I must say that there's actually not a whole of 'new housing'. Most were rehabilitated housing instead, reclaimed from before the apocalypse. The baby boom was also fueling the demand for those housing.
 
-The ark stopped looking so old and patchy. It's actually starting to look like a modern city now, although thankfully still lived in.
+The ark stopped looking so old and patchy. It's actually starting to look like a modern city now, although it thankfully still retained its quaint architecture.
 
-Gravity plates also engendered another effect: increased available energy and more room at the room. The old gravity furnace was being dismantled piece by piece, lowering the cost of 'land' for everyone.
+All of these were the results of gravity plate, a Colonial technology. It dramatically reduced energy cost, and in one fell stroke, made the gravity furnace completely obsolete. Thus, there were a whole lot of work being done at the bottom dismantling the gravity furnace and reusing the materials elsewhere.
 
-With all the work that needed to be done, there's a shortage of labor and increasing wages, which put strong demand on migration.
+There's an increasing shortage of labor to deal with the additional amount of work that needed to be done, which put additional demand on migration from Remnant.
 
 I made my way to a busy town center. It was the same town that I first toured when I was a guest/prisoner. It look quite different now. Nowsday, there's more political slogans, more people discussing or making their protests. There's also more colors being injected into the scene. The Sidonians wore their uniforms, but there's also Remnans. Some of them visiting, but also some of them are full time residents.
 
-For the first time in thousand of years, Sidonia was handling actual migrants.
+Now that I thought about it, Sidonia never actually had to deal with immigration until now. People never moved between Sidonia and her sister ships back in the early days, because that was too impractical. With FTL equipped TDMs, that's totally doable. There were even talks of trying to find those arkships and reconnect, assuming if there are any left.
 
 On my way to a cafe, I noticed a new building, a medical clinic, and a long line of people. The oldest and the frail were always bumped up ahead of the line, while the middle aged and younger folks followed behind.
 
-They're all getting immortality pills. This was why some people are having children, because they feared losing out the chance. However, with an unlimited access to the multiverse, it's a silly concern, because the scarcity of resources was a non-problem.
+They're all getting immortality pills. This was why some people are having children, because they feared losing out the chance. What they don't realize is that with access to the multiverse, energy and materials are essentially infinite. There's no need to worry about population bombs consuming all the resources.
 
 Finally, I ended up at the cafe that my girlfriends wanted me to meet. Thankfully, I hadn't increased my harem beyond the two for the past years or so. I wanted to keep it that way.
 
-Immediately, I spotted the redheads in the crowd of table and headed there.
+Immediately, I spotted the redheads in the crowd of tables and headed there.
 
 ***
 
 After the lunch at the cafe, we made our way to Sidonia's exploration command headquarter. There, the captain was waiting for us.
 
-Even Sasaki was allowed in, especially after the captain pointed out in the last meeting that the immortals were experts at what they do and their loyalty wasn't a question. Still, it didn't mean that Sasaki was going to be part of the government or given position.
+Even Sasaki was allowed in, especially after the captain pointed out in the last meeting that the immortals were experts at what they do and their loyalty wasn't even a question. Still, it didn't mean that Sasaki was going to be part of the government or given any position.
 
 She was only a consultant, paid only a nominal sum for her service.
 
