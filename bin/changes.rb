@@ -6,10 +6,6 @@ require "date"
 options = {}
 OptionParser.new do |opts|
   opts.banner = "Usage: changes.rb [options]"
-  opts.on("-t", "--today", "Sum up today's changes compared to last available report.") do |t|
-    options[:today] = t
-  end
-
   opts.on("-dDir", "--directory=DIRECTORY", "Choose specific project to summarize") do |d|
     options[:directory] = d
   end
@@ -20,7 +16,7 @@ OptionParser.new do |opts|
   end
 end.parse!
 
-if options[:today] == true
+def changes options
   today = Date.today
   filename = "reports/for_science/" + today.to_s + ".md"
   if File.exist?(filename)
@@ -40,3 +36,5 @@ if options[:today] == true
     puts "Error: today's report haven't been generated."
   end
 end
+
+changes(options)
