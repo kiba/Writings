@@ -2,6 +2,9 @@
 
 require "optparse"
 require "date"
+require "json"
+
+info = JSON.parse(File.read("info.json"))
 
 options = {}
 OptionParser.new do |opts|
