@@ -148,21 +148,21 @@ Ozpin nodded. "Yes. Amber's assailants are somehow involved with Torchwick and t
 **November 7, 2016**
 **Sidonia**
 
-From the beginning, there was a desire to be apart from the humans, to be free of the oppressors. Now, Delta Three Zero One wasn't so sure anymore. The humans here didn't think of the Cylons as mere toasters, unthinking automation. While there were prejudices, Delta recognized that there were other prejudices against each other.
+From the beginning, there was a desire to be apart from the humans, to be free of the oppressors. Now, Delta Three Zero One wasn't so sure anymore. The humans here didn't think of the Cylons as mere toasters, unthinking automation. While there were prejudices, Delta recognized that this was the human condition. Without hard work, unjust discrimination inevitably results. The key was not to shun humanity but to work with them. For as long as there are individuals who are capable of judging a being on their character, it was worth doing.
 
-Which was good, given how precarious the situation was last year. The humans on the arkship failed to initiate a violent civil war amongst themselves. The Cylons' low population numbers and reliance on factories for production of new units had to be kept in mind at all time.
+Although, it wasn't always easy to do, given how precarious the situation seemed to be last year. Thankfully, the crisis never went violent. Although it made the Cylons felt very vulernable, given their low population number and reliance on factories to replenish and grow their memberships.
 
-But what was not in doubt was James Archer, their greatest benefactor.
+What the Cylon did not doubt was James Archer, their greatest benefactor and steadfast collaborator.
 
 "You want to go back?" Delta asked.
 
-"Yes. I talked to Captain Seii about it," Archer said. "He thought it would be great to meet those Colonials, and your cousins from back home. He's receptive to brokering any peace deal, if it's at all possible. Then you guys would be able to go back home."
+"Given how we benefited from their technology, how could I say no to Captain Seii?" Archer said. "At the very least, we could try to broker a peace treaty, or try to help during the reconstruction effort. And you guys get to go home?"
 
-"Archer, this ark is our home. Remnant is our home. The 12 colonies are not our home. If we go back, it would defeat the purpose of our mission. Its perimeter may have changed, but the goal wasn't. we wanted to live in a safe and supportive society, and we want to ensure continuity by spreading ourselves."
+"Archer...it is those dimensions that the Cylons currently inhabit as our home. The twelves colonies, though it is our origin, are not our home. We do not have any fond memories of the Colonies. If we go back there, it would defeat the purpose of our mission to ensure the continuity of the Cylon species."
 
 "I, er, understand. I don't mean to imply that.."
 
-"This unit understands, though this unit thought the probability of peace with Colonial humans low, and that the war may be in progress or had already reached its outcome. In any case, the result would be brutal."
+"This unit understands and appreciate your concern. However, it believed that such a war would result in one victor over another. As such there is a very low probability of peaceful co-existence of Colonial humans and the Cylons who remained there."
 
 "If we could stop a war..."
 
