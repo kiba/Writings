@@ -19,12 +19,12 @@ OptionParser.new do |opts|
   end
 end.parse!
 
-def changes options
+def changes options, info
   today = Date.today
-  filename = "reports/for_science/" + today.to_s + ".md"
+  filename = "reports/" + info["primary"] + "/" + today.to_s + ".md"
   if File.exist?(filename)
     if options[:directory].nil?
-      dir = "reports/for_science"
+      dir = "reports/" + info["primary"]
     else
       dir = "reports/" + options[:directory]
     end
@@ -40,4 +40,4 @@ def changes options
   end
 end
 
-changes(options)
+changes(options,info)
