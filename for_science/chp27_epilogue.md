@@ -114,46 +114,41 @@ That's just the way I like it. Exciting technology, no drama, and nobody's tryin
 **November 5, 2016**
 **Remnant**
 
-How things changed in just a year and a half.
+It wasn't all that long ago that the sky wasn't so filled. Headmaster Ozpin could see it in his office with his own eyes, looking out to Vale. Skyships and spacecrafts now piled the sky above Vale. There was even an outpost on the broken moon.
 
-The sky was already filling up with aerocrafts, some even from space. There were even talks of colonizing the moon.
+The grimm, on the other hand, were unable to manifest itself outside Remnant's atmosphere, nor was it possible that they could be transported via any TDM. That was very good news.
 
-The grimm, fortunately, seem to be unable to manifest itself outside Remnant's atmosphere, nor was it possible to be transported via any TDM.
+It's comforting that there places where there are no Grimm, where people are free to grow and prosper. However, for those who stayed on this planet, it's another story entirely. The creature of darkness are still there, beckoning huntsmen to keep the safety. Until they are banished from the face of this planet, the huntsmen will be there.
 
-That was heady news. Suddenly, Remnant's future seem brighter than it ever had been in history.
+Of course, the Grimm wasn't his only worry. He viewed a report from the field on Torchwick and his accomplice.
 
-Of course, the Grimm are still there on this planet. Even if the Grimm were no longer issues, criminals would roam with the migrants to other worlds and other realities.
-
-There's no doubt that his job, however it may change in the future, will be there in the future.
-
-His focus was on one aspect of that, the headhunt for Torchwick and his accomplice.
-
-Wanted posters are already out for a woman named Cinder, and another for Emerald, a mind trickster.
+Wanted posters are already out for a woman named Cinder, and another for Emerald, a thief with the semblance of tricking minds.
 
 The door slid open, Goodwitch striding in with coffee.
 
 "Still keeping up with the hunt?" Goodwitch asked.
 
-"Frustrating, but Qrow's managing the operation on the ground just fine."
+"Qrow's doing fine, but unfortunately they hadn't yet found Torchwick just yet."
 
 "That man...and his goons, they unknowingly cause a diplomatic incident, almost killed two innocents. They caused one of our student to cry."
 
-"Mr. Torchwick was involved in something deeper than just a robbery gone horribly wrong, part of a larger conspiracy, allying himself with the White Fang. It was fortunate that his robbery went wrong that we were able to redirect resources to the threat."
+
+"Unfortuantely, if that was the extent of Mr. Torchwick's crimes, I would be less worried. Unfortunately, it seemed that he was part of a larger conspiracy that went beyond simply robbing dust stores. He seemed to have allied himself with the White Fang. I hate to say it, but without the diplomatic incident, we would had not directed resources to him."
 
 "Amber," Goodwitch said cryptically.
 
-Ozpin nodded. "Yes. Through a series of concidence, we are able to avoid what looked to be a major disaster."
+Ozpin nodded. "Yes. Amber's assailants are somehow involved with Torchwick and the White Fang."
 
-"For now."
+"Whatever they have planned, do you think it was disrupted by the Sidonians?"
 
-"For now," Ozpin repeated Goodwitch's words.
+"I hoped so. But I am afraid it only brought us some time. A plot may still be ticking."
 
 ***
 **Delta Three Zero One**
 **November 7, 2016**
 **Sidonia**
 
-From the beginning, there was a desire to be apart from the humans. Now, Delta Three Zero One wasn't so sure anymore. Granted, there's still Cylon only meetings and gatherings, but not a single Cylon lack any human friends.
+From the beginning, there was a desire to be apart from the humans, to be free of the oppressors. Now, Delta Three Zero One wasn't so sure anymore. The humans here didn't think of the Cylons as mere toasters, unthinking automation. While there were prejudices, Delta recognized that there were other prejudices against each other.
 
 Which was good, given how precarious the situation was last year. The humans on the arkship failed to initiate a violent civil war amongst themselves. The Cylons' low population numbers and reliance on factories for production of new units had to be kept in mind at all time.
 
