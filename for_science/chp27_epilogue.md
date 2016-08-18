@@ -39,21 +39,21 @@ Kobayashi put her hand on Hiroki's face, feeling the contour of the wrinkled ski
 
 "You're getting better," she said.
 
-"I haven't found the need to cease taking medication," the ace pilot said. "A purpose in life with my grandson starve off that feeling. The doctors said they feel more comfortable with me. I am not going to drop dead."
+"Of course dear, I have been taking my medicine," the ace pilot said. "A purpose in life with my grandson motivated me to not miss a dose. The doctor already said that she's feeling a whole lot better about me not suddenly dropping off dead."
 
-"Of course. I received letters from your doctor."
+"I know. She told me."
 
 "Now dear, I got in contact with a lawyer. They're willing to take on your case."
 
 She shook her head. "You don't need to do that for me."
 
-"Maybe. But I need to do it for our grandson. You need to be here. Sidonia needs you."
+"Maybe. But I need to do it for our grandson. You need to be free. Sidonia needs you."
 
 "Appealing to my patriotism, Saitou?"
 
 "It's the truth."
 
-"I don't want any more shop talk or politics from you. I just want to enjoy our time together."
+"You know what I am going to say. I don't want any more shop talk or politics from you. I just want to enjoy our time together."
 
 "As you wish, dear."
 
