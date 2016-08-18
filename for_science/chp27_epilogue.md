@@ -13,7 +13,7 @@ But she was alone.
 
 Even her jail cell seemed barren of decoration. There were very few personal artifacts.
 
-Sidonia generally don't do imprisonment except for the most serious crime. There were only a few murders over the centuries. In fact, she was the only one in cellblock A.
+Sidonia reserved imprisonment only for the most serious of crimes. Murder certainly qualified for it, but there were only a few over the centuries. In fact, she was the only one housed at cellblock A in decades.
 
 The guards who worked there weren't certainly career correctional officers. They were psychologists and therapists, the only companions in this prison, at least until...
 
