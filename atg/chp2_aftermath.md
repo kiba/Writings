@@ -1,6 +1,6 @@
 # **Chapter 2: Aftermath**
 
-After a well deserved slept-in, Colonel Johnathan 'Jack' O'Neill found himself back in familiar routine, standing outside one of his teammate's office.
+After a well deserved slept-in and a few days off, Colonel Johnathan 'Jack' O'Neill found himself back in familiar routine, standing outside one of his teammate's office.
 
 He knocked on the door.
 
@@ -14,33 +14,33 @@ He knocked on the door.
 
 "Right errr...let me find my Goa'uld worksheet."
 
-It would be convenient, like on some science fiction shows, if people in the galaxy conveniently spoke English for America's benefit. Alas, there's no magical universal translators available. However, the galaxy at large do speak an actual lingua franca, Goa'uld. Thanks to Jackson and Teal'c, Stargate command can interact with the galaxy at large without getting bogged down trying to learn yet another language.
+It would be convenient, like on some science fiction shows, if people in the galaxy conveniently spoke English for his team's benefit. Alas, there's no magical universal translators available, though the galaxy at large do speak a lingua franca, which is Goa'uld. Thanks to Jackson and Teal'c, Stargate Command can interact with the galaxy at large without getting bogged down trying to learn yet another language.
 
 To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld. Learning languages wasn't actually new for O'Neill. Throughout this special operation career, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
 
 But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find homework.
 
-"I hope your office didn't eat my homework," the Colonel joked.
-
-"Haha," the archaeologist responded sarcastically.
-
-After a good minute or two, the archaeologist found the team's homework. He handed O'Neill a copy.
+After several minutes or so, the archaeologist found the team's homework. He handed O'Neill a copy.
 
 "We need a better way than this mess. Like using the computer to send our homework through email," O'Neill thought out loud.
 
-"I am not just that good at computers. When I was a professor, this is what I always do."
+"I am not just that good at computers. When I was a professor, this is what I always do. Excuse me, I was simply a lecturer."
 
-"I am sure you do, but this is not good enough."
+"Daniel, I don't care about the excuses you make in the past. This is not good enough."
 
 The doctor shrugged.
 
 At least those homework weren't the bullshit mandated by the bureaucrats, or god forbidden, [I]congress[/I]. O'Neill could take on field operations any day, or any number of language or science homework, so long as the Colonel can recognize the value. Rather, it was the pointless or mind-numbing paperworks that taken his toll on him, which was one reason why he tried to stay retired.
 
-"Well, Doctor, just print the god damn worksheet the next time," O'Neill said. "And while you're at it, maybe it would do to stay organized?"
+"Doctor, just print the god damn worksheet the next time," O'Neill said.
 
-"I have a system," the doctor said defensively.
+"I have a system," the doctor said defensively. "And it's a waste of money and paper to just print like that."
 
-"Right....Let get the rest of the team, then."
+"In case you didn't notice, you are not some humanity professor being paid shit at a university. You are paid somewhere around six figures because you provide actionable intelligence day in day out on the spot, saving our fucking collective asses, sometime the planet. Don't give me the crap that it's a waste of money."
+
+"OK. Fine. Whatever, I'll print the damn thing next time."
+
+"Good..let's get the rest of the team."
 
 ***
 
