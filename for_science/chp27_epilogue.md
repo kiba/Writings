@@ -115,15 +115,15 @@ That's just the way I like it. Exciting technology, no drama, and nobody's tryin
 **November 5, 2016**
 **Remnant**
 
-It wasn't all that long ago that the sky wasn't so filled. Headmaster Ozpin could see it in his office with his own eyes, looking out to Vale. Skyships and spacecrafts now piled the sky above Vale. There was even an outpost on the broken moon.
+As headmaster Ozpin looked out to Vale from his office, he imagined the days when the sky weren't so filled with airships and spacecrafts. It was slow and imperceptible day to day, but sure enough Remnant was in the midst of its own space travel revolution. There was even an outpost on the broken moon.
 
 The grimm, on the other hand, were unable to manifest itself outside Remnant's atmosphere, nor was it possible that they could be transported via any TDM. That was very good news.
 
-It's comforting that there places where there are no Grimm, where people are free to grow and prosper. However, for those who stayed on this planet, it's another story entirely. The creature of darkness are still there, beckoning huntsmen to keep the safety. Until they are banished from the face of this planet, the huntsmen will be there.
+It's comforting that there places where there are no Grimm, where people are free to grow and prosper. However, for those who stayed on this planet, it's another story entirely. The creature of darkness are still there, beckoning huntsmen to keep the safety. Until they are banished from the face of this planet, the huntsmen will be there to hold the line.
 
 Of course, the Grimm wasn't his only worry. He viewed a report from the field on Torchwick and his accomplice.
 
-Wanted posters are already out for a woman named Cinder, and another for Emerald, a thief with the semblance of tricking minds.
+Wanted posters are already out for a woman named Cinder Fall, and another for Emerald, a thief with a particularly troublesome semblance.
 
 The door slid open, Goodwitch striding in with coffee.
 
@@ -133,8 +133,7 @@ The door slid open, Goodwitch striding in with coffee.
 
 "That man...and his goons, they unknowingly cause a diplomatic incident, almost killed two innocents. They caused one of our student to cry."
 
-
-"Unfortuantely, if that was the extent of Mr. Torchwick's crimes, I would be less worried. Unfortunately, it seemed that he was part of a larger conspiracy that went beyond simply robbing dust stores. He seemed to have allied himself with the White Fang. I hate to say it, but without the diplomatic incident, we would had not directed resources to him."
+"Unfortuantely, if that was the extent of Mr. Torchwick's crimes, I would be less worried. It seemed that he was part of a larger conspiracy that went beyond simply robbing dust stores. He have allied himself with the White Fang. I hate to say it, but without the diplomatic incident, we would had not directed resources to him."
 
 "Amber," Goodwitch said cryptically.
 
@@ -151,7 +150,7 @@ Ozpin nodded. "Yes. Amber's assailants are somehow involved with Torchwick and t
 
 From the beginning, there was a desire to be apart from the humans, to be free of the oppressors. Now, Delta Three Zero One wasn't so sure anymore. The humans here didn't think of the Cylons as mere toasters, unthinking automation. While there were prejudices, Delta recognized that this was the human condition. Without hard work, unjust discrimination inevitably results. The key was not to shun humanity but to work with them. For as long as there are individuals who are capable of judging a being on their character, it was worth doing.
 
-Although, it wasn't always easy to do, given how precarious the situation seemed to be last year. Thankfully, the crisis never went violent. Although it made the Cylons felt very vulernable, given their low population number and reliance on factories to replenish and grow their memberships.
+Although, it wasn't always easy to do, given how precarious the situation seemed to be last year. Thankfully, the crisis never went violent. Although it made the Cylons felt very vulnerable, given their low population number and reliance on factories to replenish and grow their memberships.
 
 What the Cylon did not doubt was James Archer, their greatest benefactor and steadfast collaborator.
 
@@ -159,7 +158,7 @@ What the Cylon did not doubt was James Archer, their greatest benefactor and ste
 
 "Given how we benefited from their technology, how could I say no to Captain Seii?" Archer said. "At the very least, we could try to broker a peace treaty, or try to help during the reconstruction effort. And you guys get to go home?"
 
-"Archer...it is those dimensions that the Cylons currently inhabit as our home. The twelves colonies, though it is our origin, are not our home. We do not have any fond memories of the Colonies. If we go back there, it would defeat the purpose of our mission to ensure the continuity of the Cylon species."
+"Archer...it is those dimensions that the Cylons currently inhabit that are our homes. The Twelves Colonies of Kobol, though it is our origin, are not our home. We do not have any fond memories of the Colonies. If we go back there, it would defeat the purpose of our mission to ensure the continuity of the Cylon species."
 
 "I, er, understand. I don't mean to imply that.."
 
@@ -167,9 +166,9 @@ What the Cylon did not doubt was James Archer, their greatest benefactor and ste
 
 "If we could stop a war..."
 
-"This unit advises that you tread carefully on the decision to re-enter Colonial space. There is no telling how much resources, times, or lives will be spent on the endeavor to reconnect with Colonial civilization. Much of unique Colonial technologies has already been absorbed by Sidonia and Remnant."
+"This unit advises that you tread carefully on the decision to re-enter Colonial space. There is no telling how much resources, times, or lives will be spent on the endeavor to reconnect with Colonial civilization. Much of any unique Colonial technologies has already been absorbed by Sidonia and Remnant."
 
-"I understand, but we're talking about twelves planets and billion of human beings, and more Cylons. That's some serious industrial strength."
+"I understand, but we're talking about twelves planets and billion of human beings, and more Cylons. That's some serious economic might that could be used to improve the lives of everyone."
 
 "Sidonia is very small population-wise compared to Remnant, let alone Earth proper. Inviting a new power will change the balance of power."
 
@@ -197,3 +196,5 @@ The president-elect mind traversed through all the secret briefing that she had 
 Even the photo didn't look that serious. It looked like a whole bunch of people decided to play dress up. Though there was an apparent robot walking around that couldn't possibly be someone in a suit.
 
 Yes, this must be a hoax. The secret service was overreacting. Once they realized it's all a hoax, she will be back at the hotel room.
+
+But she never went back there.
