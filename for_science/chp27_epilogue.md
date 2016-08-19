@@ -183,20 +183,16 @@ Archer nodded. "Yeah. You're right. I am getting a little bit ahead of myself.."
 **January 13, 2017
 **Earth**
 
-"What's going on?" the President-elect said as the secret service officers acted up, moving her from her hotel room to outside and into a car, all seemingly in one motion.
+"What's going on?" the President-elect said as the protection details rushed her away from her room, to outside, and then into a car, all in one smooth motion.
 
-"Just a precaution ma'am," a man in black informed.
-
-She was handed an ipad with the relevant information.
+"Just a precaution, Mrs. President," the man in black right next to her informed, before he handed her an ipad with the relevant website loaded.
 
 "What this? Men and machine appearing out of thin air on the National Mall? Is this a joke?"
 
-"What's ever going on here, we don't know, but we know we are to take you away from the capitol as far as possible."
+"We don't know what's going on ourselves, but my boss said we need to get you out of there. I don't believe it myself, but I did confirm that my boss is not joking."
 
 The president-elect mind traversed through all the secret briefing that she had gotten from the presidency. There was really nothing that came to mind that could be this bizarre.
 
-Even the photo didn't look that serious. It looked like someone decided to play dress up. Though there was an apparent robot walking around that couldn't possibly be someone in a suit.
+Even the photo didn't look that serious. It looked like a whole bunch of people decided to play dress up. Though there was an apparent robot walking around that couldn't possibly be someone in a suit.
 
-Yes, this must be a hoax. The secret service was overreacting.
-
-To her dismay and surprise, it wasn't a hoax at all.
+Yes, this must be a hoax. The secret service was overreacting. Once they realized it's all a hoax, she will be back at the hotel room.
