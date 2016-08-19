@@ -166,21 +166,17 @@ What the Cylon did not doubt was James Archer, their greatest benefactor and ste
 
 "If we could stop a war..."
 
-"There is a concern of our moral standing diminishing because of our association with a warring group."
+"This unit advises that you tread carefully on the decision to re-enter Colonial space. There is no telling how much resources, times, or lives will be spent on the endeavor to reconnect with Colonial civilization. Much of unique Colonial technologies has already been absorbed by Sidonia and Remnant."
 
-"You mean, your concern for war crimes committed by the Cylons."
+"I understand, but we're talking about twelves planets and billion of human beings, and more Cylons. That's some serious industrial strength."
 
-"Correct. Currently, there is not yet a crime committed by any Cylons, in part due to low population number, but also due to Cylon mental stability. As such, our moral standing is also highly inflated, which may cause a greater than usual negative backlash amongst humans. As such, we wish to plan and arrange public debates as to lower expectation. "
+"Sidonia is very small population-wise compared to Remnant, let alone Earth proper. Inviting a new power will change the balance of power."
 
-"I completely understand. I really do."
+"The power of balance is going to change once Earth comes online," Archer acknowledged.
 
-"This unit is glad that you do."
+"There's no guarantee of peaceful relation and close cooperation with Colonial civilization," Delta pointed out. "This unit hoped that you will not initiate first contact so soon after Earth."
 
-Archer stood up. "I'll run this by Seii. We're going to do this. Come back to the Colonies, after first contact is all finished up. Speaking of first contact, you're going to be part of the delegates to Earth?"
-
-"Affirmative. Delta Three-Zero-One will be the official Cylon ambassador to Earth."
-
-Archer nodded. "Yeah. You're going to be a real big surprise to Earth."
+Archer nodded. "Yeah. You're right. I am getting a little bit ahead of myself.."
 
 ***
 **President-elect of the United States**
