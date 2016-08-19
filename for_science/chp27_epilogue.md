@@ -181,7 +181,7 @@ Archer nodded. "Yeah. You're right. I am getting a little bit ahead of myself.."
 
 ***
 **President-elect of the United States**
-**January 13, 2017
+**January 13, 2017**
 **Earth**
 
 "What's going on?" the President-elect said as the protection details rushed her away from her room, to outside, and then into a car, all in one smooth motion.
