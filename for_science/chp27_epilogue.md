@@ -3,19 +3,20 @@
 **October 13, 2016**
 **Captain Kobayashi**
 
-There was no question where Kobayashi was right now. She was in jail, wearing a prison uniform, doing useful busywork, listening to the television as it babbled on about the latest news about the outside world. That was the outcome of the criminal trial she endured.
+There was no question where Kobayashi was right now. She was in jail, wearing a prison uniform, doing useful busywork, listening to the television as it babbled on about the latest news about the outside world. The judge had deemed her guilty, and this was the result.
 
-Things were going to change rapidly for the next twenty years, and she won't be there to participate in it. It's all out of her hand. Part of her felt relieved. She won't have to make the hard decisions. Captain Seii will, if he managed to hold on to power.
+There's no doubt in her mind that the world, or the multiverse, will change rapidly for the next twenty years, and beyond that if new realities are continuing to be discovered.
+Her regret that she won't be there to participate in it. It's all out of her hand. Part of her felt relieved. She won't have to make the hard decisions. Captain Seii will, if he managed to hold on to power.
 
-Sadly, her friend Ochiai wasn't allowed to serve his sentence with her. The court deemed that her and Ochiai were too dangerous to serve together. At least his sentence was much shorter than her, with only seven years.
+Sadly, her friend Ochiai wasn't allowed to serve his sentence with her. The court deemed that Ochiai and herself were too dangerous to serve together. At least his sentence was much shorter than her, with only seven years.
 
-But she was alone.
+But there will be no other prisoners with her. She will be completely alone in her experience.
 
 Even her jail cell seemed barren of decoration. There were very few personal artifacts.
 
 Sidonia reserved imprisonment only for the most serious of crimes. Murder certainly qualified for it, but there were only a few over the centuries. In fact, she was the only one housed at cellblock A in decades.
 
-The guards who worked there weren't certainly career correctional officers. They were psychologists and therapists, the only companions in this prison, at least until...
+The guards who worked there weren't certainly career correctional officers, given that imprisonment was astonishingly rare. They were psychologists and therapists, the only companions in this prison, at least until...
 
 The door slid open. "You got visitor!" Today was visitation day.
 
@@ -27,7 +28,7 @@ Visitation was only limited to once every week, and only four hours at a time, g
 
 ***
 
-There was a need for the adults to be alone, so the prison staffs volunteered to keep her grandson busy, while Kobayashi and Hiroki entered a special apartment.
+There was a need for the adults to be alone, so the prison staffs volunteered to keep her grandson busy, while Kobayashi and Hiroki entered a special apartment. A practice that went thousand of years back on Earth, and verified experimentally to reduce suffering in prisoners and on society.
 
 It was a small 'apartment', decorated like a domestic dwelling rather than a jail cell, filled with fridge stocked with food.
 
@@ -39,7 +40,7 @@ Kobayashi put her hand on Hiroki's face, feeling the contour of the wrinkled ski
 
 "You're getting better," she said.
 
-"Of course dear, I have been taking my medicine," the ace pilot said. "A purpose in life with my grandson motivated me to not miss a dose. The doctor already said that she's feeling a whole lot better about me not suddenly dropping off dead."
+"Of course dear, I have been taking my medicine," the ace pilot said. "My grandson and you provided me all the incentives I need to make sure that I am taking all the dosage. The doctor already said that she's feeling a whole lot better about me not suddenly dropping off dead."
 
 "I know. She told me."
 
@@ -47,13 +48,13 @@ Kobayashi put her hand on Hiroki's face, feeling the contour of the wrinkled ski
 
 She shook her head. "You don't need to do that for me."
 
-"Maybe. But I need to do it for our grandson. You need to be free. Sidonia needs you."
+"Maybe. But I need you to do it for our grandson. You need to be free. Sidonia needs you."
 
 "Appealing to my patriotism, Saitou?"
 
 "It's the truth."
 
-"You know what I am going to say. I don't want any more shop talk or politics from you. I just want to enjoy our time together."
+"You know what I am going to say. I am going to serve my sentence, and I don't want any more shop talk or politics from you. I just want to enjoy our time together."
 
 "As you wish, dear."
 
@@ -65,23 +66,23 @@ Today's my time off, and for that luxury, I took a strode around Sidonia, survey
 
 About a quarter of the buildings have those scaffolds on the outside. Incessant jackhammering, pounding, and the hiss that came from welding torches also made it clear that there's a construction boom in progress, as a result of the economic boom in progress.
 
-In addition, there's also a baby boom that's fueling the demand as well. Sidonians were feeling very optimistic about the future lately, although only about a year ago, they faced a constitutional crisis.
+In addition, there's also a baby boom that's fueling the demand as well. Sidonians were feeling very optimistic about the future lately, although only about a year ago, they faced a constitutional crisis. It really spoke well of their emotional resilience. It also explained why there's a baby boom in progress as well.
 
-I must say that there's actually not a whole of 'new housing'. Most were rehabilitated housing instead, reclaimed from before the apocalypse. The baby boom was also fueling the demand for those housing.
+I must say that there's actually not a whole of 'new housing'. Most were rehabilitated housing instead, reclaimed from before the apocalypse. Before the whole boom, many buildings were just not used. Maintenance were only done when it was clear that it would damage or destroy other parts of Sidonia.
 
-The ark stopped looking so old and patchy. It's actually starting to look like a modern city now, although it thankfully still retained its quaint architecture.
+The ark stopped looking so old and patchy. It's actually starting to look like a modern city now, although it thankfully still retained its lived-in architecture. At least it wasn't as ugly as Tokyo.
 
-All of these were the results of gravity plate, a Colonial technology. It dramatically reduced energy cost, and in one fell stroke, made the gravity furnace completely obsolete. Thus, there were a whole lot of work being done at the bottom dismantling the gravity furnace and reusing the materials elsewhere.
+All of these were the results of gravity plates, a Colonial technology that made artificial gravity really cheap. It dramatically reduced energy cost, and in one fell stroke, made the gravity furnace completely obsolete, adding more space that can be used for something else as well. Thus, there were a whole lot of work being done at the bottom dismantling the gravity furnace and reusing the materials elsewhere.
 
 There's an increasing shortage of labor to deal with the additional amount of work that needed to be done, which put additional demand on migration from Remnant.
 
-I made my way to a busy town center. It was the same town that I first toured when I was a guest/prisoner. It look quite different now. Nowsday, there's more political slogans, more people discussing or making their protests. There's also more colors being injected into the scene. The Sidonians wore their uniforms, but there's also Remnans. Some of them visiting, but also some of them are full time residents.
+I made my way to a busy town center. It was the same town that I first toured when I was a guest/prisoner. It look quite different now. Nowadays, there's more political slogans, more people discussing or making their protests. There's also more colors being injected into the scene. The Sidonians wore their uniforms, but there's also Remnans. Some of them visiting, but also some of them are full time residents.
 
-Now that I thought about it, Sidonia never actually had to deal with immigration until now. People never moved between Sidonia and her sister ships back in the early days, because that was too impractical. With FTL equipped TDMs, that's totally doable. There were even talks of trying to find those arkships and reconnect, assuming if there are any left.
+Now that I thought about it, Sidonia never actually had to deal with immigration until now. People never moved between Sidonia and her sister ships back in the early days, because that was too impractical. With FTL equipped TDMs, that's totally doable. There were even talks of trying to find those arkships and reconnect, assuming if there are any left. However, even with FTL drive, finding those arks may be a futile exercise, like trying to find a needle in a haystack.
 
 On my way to a cafe, I noticed a new building, a medical clinic, and a long line of people. The oldest and the frail were always bumped up ahead of the line, while the middle aged and younger folks followed behind.
 
-They're all getting immortality pills. This was why some people are having children, because they feared losing out the chance. What they don't realize is that with access to the multiverse, energy and materials are essentially infinite. There's no need to worry about population bombs consuming all the resources.
+They're all getting immortality pills. This was why some people are having children, because they feared losing out their chance. What they don't realize is that with access to the multiverse, energy and materials are essentially infinite. There's no need to worry about population bombs consuming all the resources.
 
 Finally, I ended up at the cafe that my girlfriends wanted me to meet. Thankfully, I hadn't increased my harem beyond the two for the past years or so. I wanted to keep it that way.
 
@@ -95,7 +96,7 @@ Even Sasaki was allowed in, especially after the captain pointed out in the last
 
 She was only a consultant, paid only a nominal sum for her service. At least that's how they spin it to everyone. It was just a way to keep and make use of her expertise for the nation.
 
-"Good day to you, doctors," Captain Seii greeted us. He was supposed to be the general of Sidnoia's infantry branch, but fate had other plans in store for him. "Thanks to you and everyone's hard work, we're able to explore the multiverse on our own, without relying on Archer's mysterious calculations." There were actually missions to adjacent universes without me coming up with a new address from out of nowhere.
+"Good day to you, doctors," Captain Seii greeted us. He was supposed to be leading Sidonia's infantry branch, but fate had other plans in store for him. Thankfully, his original training made him well suited to command. "Thanks to you and everyone's hard work, we're able to explore the multiverse on our own, without relying on Archer's mysterious calculations." There were actually missions to adjacent universes without me coming up with a new address from out of nowhere.
 
 Another thing that did happen is that it was no longer necessary to rely on me to provide coordinates. TDMs now transited near Sidonia and then dock, rather than just appearing in Sidonia. That was thanks to a series of beacon that had been slowly spread across various dimensions.
 
