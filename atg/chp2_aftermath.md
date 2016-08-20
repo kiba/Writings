@@ -130,6 +130,8 @@ SG-1 dug in, appreciating every bite. Every mission could be their last. Somebod
 
 ***
 
+Hammond's order to cease all exploration activities was finally lift.
+
 A few weeks passed by while all gate operations were shut down, except for emergency contact. SGC wasn't the slighest idle.. Research projects continued without abatement, maybe even sped up since Jackson and Carter weren't undertaking missions. Then there were the drills, the constant inspection, and of course field exercises.
 
 Then of course, gate operations resumed, and suddenly a new mission for SG-1.
