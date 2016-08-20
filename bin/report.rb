@@ -27,7 +27,7 @@ end
 
 count_words(list_chapters("for_science"))
 
-directories = ["for_science","atg"]
+directories = ["atg"]
 
 directories.each do |d|
   words = count_words(list_chapters(d))
