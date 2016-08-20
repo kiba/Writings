@@ -25,8 +25,6 @@ def count_words files
   words
 end
 
-count_words(list_chapters("for_science"))
-
 directories = ["atg"]
 
 def generate_report dir
