@@ -34,6 +34,12 @@ def changes options, info
     lastAvailable = File.read(reports[-2]).split(" ")
     changes = todayFile[0].to_i - lastAvailable[0].to_i
     puts "Total changes:" + changes.to_s
+    if changes >= info["goal"]
+      puts "Success! Met goal of " + info["goal"].to_s
+    else
+      need = info["goal"] - changes
+      puts "You need " + need.to_s + " more words"
+    end
     puts "Last Available Report: " + lastAvailable[0] + ", Today's Report: " + todayFile[0]
   else
     puts "Error: today's report haven't been generated."
