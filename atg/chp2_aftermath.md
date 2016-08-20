@@ -130,6 +130,10 @@ SG-1 dug in, appreciating every bite. Every mission could be their last. Somebod
 
 ***
 
-It was a few weeks, but O'Neil was already restless, and so was the of the team. Together, they stood in the control room, watching as the technicians dialed in a new address.
+A few weeks passed by while all gate operations were shut down, except for emergency contact. SGC wasn't the slighest idle.. Research projects continued without abatement, maybe even sped up since Jackson and Carter weren't undertaking missions. Then there were the drills, the constant inspection, and of course field exercises.
 
-The team tensed.
+Then of course, gate operations resumed, and suddenly a new mission for SG-1.
+
+Of course, standard operating procedure dictated that SGC send a rover through to check for suitability before SG-1 take a single step into the unknown.
+
+O'Neill once again found himself with the rest of SG-1 in the gate operation room, as Chief Master Segrent Harriman dialed a completely new address.
