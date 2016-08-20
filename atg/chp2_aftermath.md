@@ -108,7 +108,28 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 
 ***
 **Jack O'Neill**
+**O'Malley Resturant, Colorado Spring**
 
-What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steak.
+What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steaks. In some way, that was all that matters.
 
-The entire SG-1 team was present, all eight of them.
+His entire team was here today, with Kawalsky, Warren, Casey, and Ferreti, who are the squad members protecting the retreat to the gate, and his subject matter experts, Carter, Teal'c, and Jackson.
+
+O'Neill stood up, and the conversation around the dining table stopped. He raised his glass.
+
+"I would like to toast my good friend Colonel Frank Cromwell, who passed away after a battle with cancer," he half-lied. The truth was that Cromwell died a hero, protecting Earth from total annihilation. He tried to stop thinking about the interaction of the stargate, a bomb more powerful than any nukes on Earth, and that black hole. O'Neill shifted thoughts, but not to his liking.
+
+He sighed at the image of Cromwell looking at him peacefully as he passed through the portal of death. Momentarily, anguish and guilt all came rushing. Then he pushed the emotions down.
+
+"You know, I am ashamed that I never got to reconcile with him before moments until his death. I was there the day he passed. At the very least, he will be remembered for all the good he did for this world."
+
+Finally, glasses clinked against each other before everyone sat down again.
+
+Everyone on SG-1 and the base knew that he died. It was a shared secret that cannot be denied, spoken of in a restaurant completely oblivious to the knowledge.
+
+SG-1 dug in, appreciating every bite. Every mission could be their last. Somebody could be starved, kidnapped, tortured, raped, or worse, snaked.
+
+***
+
+It was a few weeks, but O'Neil was already restless, and so was the of the team. Together, they stood in the control room, watching as the technicians dialed in a new address.
+
+The team tensed.
