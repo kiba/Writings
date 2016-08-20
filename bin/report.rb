@@ -29,11 +29,13 @@ count_words(list_chapters("for_science"))
 
 directories = ["atg"]
 
-directories.each do |d|
-  words = count_words(list_chapters(d))
+def generate_report dir
+  words = count_words(list_chapters(dir))
   today = Date.today()
-  filename = "reports/" + d + "/" + today.strftime("%Y-%m-%d") + ".md"
+  filename = "reports/" + dir + "/" + today.strftime("%Y-%m-%d") + ".md"
   File.open(filename, "w") {|f|
     f.write(words.to_s + " total")
   }
 end
+
+generate_report(directories[0])
