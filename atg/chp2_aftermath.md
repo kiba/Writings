@@ -14,13 +14,13 @@ He knocked on the door.
 
 "Right errr...let me find my Goa'uld worksheet."
 
-It would be convenient, like on some science fiction shows, if people in the galaxy conveniently spoke English for his team's benefit. Alas, there's no magical universal translators available, though the galaxy at large do speak a lingua franca, which is Goa'uld. Thanks to Jackson and Teal'c, Stargate Command can interact with the galaxy at large without getting bogged down trying to learn yet another language.
+It would be very convenient if the galaxy at large spoke English for his team's benefit. Alas, his team has yet to come across a universal language translator to reverse engineer it from. At least the galaxy at large do speak a lingua franca, which is Goa'uld. Which means that Teal'c and Jackson can interact with the locals. The only problem with that language is that you can be sure that some kooky Goa'uld overlord had influenced that particular gate address in some way or fashion, frequently in a traumatizing sort of way. Unless they're tok'ra. Tok'ra are the good guys. That's more of an exception.
 
-To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld. Learning languages wasn't actually new for O'Neill. Throughout this special operation career, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
+To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld, not that it was any particularly new to O'Neill Throughout his military career, more specifically, special operation, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
 
 But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find homework.
 
-After several minutes or so, the archaeologist found the team's homework. He handed O'Neill a copy.
+After waiting several minutes or so, the archaeologist found the team's homework. He handed O'Neill a copy.
 
 "We need a better way than this mess. Like using the computer to send our homework through email," O'Neill thought out loud.
 
@@ -30,13 +30,13 @@ After several minutes or so, the archaeologist found the team's homework. He han
 
 The doctor shrugged.
 
-At least those homework weren't the bullshit mandated by the bureaucrats, or god forbidden, [I]congress[/I]. O'Neill could take on field operations any day, or any number of language or science homework, so long as the Colonel can recognize the value. Rather, it was the pointless or mind-numbing paperworks that taken his toll on him, which was one reason why he tried to stay retired.
+At least the worksheet weren't the feel good bullshit mandated by bureaucrats, or god forbidden, [i]congress[/i]. There was a reason all these years that he tried to stay retired until some evil snakehead invaded Cheyenne mountain.
 
 "Doctor, just print the god damn worksheet the next time," O'Neill said.
 
 "I have a system," the doctor said defensively. "And it's a waste of money and paper to just print like that."
 
-"In case you didn't notice, you are not some humanity professor being paid shit at a university. You are paid somewhere around six figures because you provide actionable intelligence day in day out on the spot, saving our fucking collective asses, sometime the planet. Don't give me the crap that it's a waste of money."
+"In case you didn't notice, you are no longer a poorly paid humanity professor. You provide actionable intelligence day in day out on a daily basis which not only helped this team survive the many incidents, but also saved Stargate Command several times. A nickel or whatever it is, isn't going to hurt your six figures income plus tax-free hazard pay and medical benefits."
 
 "OK. Fine. Whatever, I'll print the damn thing next time."
 
