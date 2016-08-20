@@ -1,5 +1,8 @@
 # **Chapter 2: Aftermath**
 
+**Colonel Jack O'Neill**
+**Stargate Command, SG-Earth**
+
 After a well deserved slept-in and a few days off, Colonel Johnathan 'Jack' O'Neill found himself back in familiar routine, standing outside one of his teammate's office.
 
 He knocked on the door.
@@ -43,24 +46,25 @@ At least the worksheet weren't the feel good bullshit mandated by bureaucrats, o
 "Good..let's get the rest of the team."
 
 ***
+**Captain Carter**
 
-As a precaution, General Hammond shut down gate explorations until further notice after the near disastrous black hole incident. An incident review procedure was initialized. Everyone involved in the incident were interviewed by an independent team, who also exhaustively examined everything. Then there were the debriefing with the higher-ups. Finally, changes was made to SGC's standard operating procedures to never let this happen again.
+As a precaution, General Hammond shut down gate explorations until further notice after the near disastrous black hole incident. An incident review procedure was initialized, and an independent team took charge of the investigation. They interviewed everyone and everything, performed root cause analysis, and made a number of recommendations for SGC to implement. Then there were the debriefing with the higher-ups. Finally, changes was made to SGC's standard operating procedures to never let this happen again.
 
-The black hole, however rare and improbable, almost engulfed Stargate Command, and perhaps Earth as well. Surviving by the skin of the teeth and keep going as if it never happened? Unacceptable.
+The black hole may be extremely rare, but it almost engulfed Stargate Command and maybe Earth as well. To march on forward pretending that it never happened. That was unacceptable. Public opinion would torn Stargate Command and its personnel apart.
 
 Captain Carter's own improvised solution became a ready-made solution and a new set of exercise. A shaped charge bomb became reserved for this type of incident as well as several components required for a successful denotation.
 
-Pretty soon, Stargate Command personnel will be drilled regularly so that the response can be delivered in the right time. The only problem was that the bomb would refuse to stay parallel to the ground with no practical way to simulate the powerful force of gravity emanating from the stargate.
+Pretty soon, Stargate Command personnels will be drilled so regularly so that the response will be delivered at the right time.
 
 Still, that wasn't enough for Hammond. He authorized a new project out of SGC's emergency fund to explore preventative measures proposed by the physics department.
 
-As a result of all of this, Carter found herself with boxes of electronics and equipment stacked in her office and a clipboard in her hands. She flew a fighter jet during Desert Shield and Desert Storm some seven years ago, so the treasure trove of really expensive electronics made her only mildly nervous.
+As a result of all of this, Carter found herself with boxes of electronics and equipment stacked in her office and a clipboard in her hands. She flew a fighter jet during Desert Shield and Desert Storm years ago, so the treasure trove of really expensive electronics made her only mildly nervous.
 
-Still, it would be on her head if anything were to be missing. So Carter was inventorying every box personally.
+There was no doubt in her mind that nobody would dare try to steal anything from her. Still, through a force of habit, Carter personally inventoried every single box herself.
 
-These are the latest cesium atomic clock. She came up with a proposal to tie the atomic clock to the SGC sensor grid and to the DHD to act as an early warning system for faster than normal time dilation. Time dilation was a fact of physics in this universe, even on Earth, though it depend on where you are at any given moment.
+These are the latest cesium atomic clock. She came up with a proposal to tie the atomic clock to the SGC sensor grid and to the DHD supercomputer to act as an early warning system for faster than normal time dilation, the kind that would portent a black hole that's too near.
 
-Physics wise, it shouldn't be anything out of her depth. Einstein's theory of relativity came into play, but not hyperspace, faster than light, or subspace. Any of those concepts would give her a  hugeheadache any time of the day, and she was one of the best of her generation.
+Physics wise, it shouldn't be anything out of her depth. Einstein's theory of relativity came into play, but not hyperspace, faster than light, or subspace. Any of those concepts would give her a  huge headache any time of the day, and she was one of the best of her generation.
 
 There was a knock on the door.
 
@@ -70,23 +74,23 @@ There was a knock on the door.
 
 "I'll be there in a minute. Just need to check one last box off."
 
-When she was done, she joined the Jackson and O'Neill to the local cafe.
+When she was done, she joined the rest of SG-1 at a local resturant.
 
 ***
 
-It was a Friday, and Teal'c found himself in the company of Tau'ri warriors at a local gym, facing a total of five sparring partners in the ring.
+It was a Friday, and Teal'c found himself in the company of Tau'ri warriors at the gym, facing a total of five sparring partners in the ring.
 
 This was routine, absolutely normal, part of an ongoing exchange of knowledge. While the Jaffa are vastly inferior soldiers to the Tau'ri in general ground combat, it did not mean that the Jaffa knew nothing about fighting.
 
 On the contrary, they can be excellent warriors and soldiers, as good as any Tau'ri soldiers, if they were allowed to use their mind, discipline, and skills.
 
-"3...2...1....begin."
+"Three, two, one....begin."
 
 His opponents rushed the Jaffa as soon as they began. The First Prime grabbed the nearest Tau'ri, allowing to be punched by another airman. He dropped the opponent on the ground, and grabbed another man before dropping him to the ground.
 
 He soon made quick work of the rest of his sparring partners, almost as if Teal'c was in a martial art movie. Finally, with all five airmen scrawling on the ground, Teal'c bowed.
 
-Polite applause came. By then, the Tau'ri were used to this display of skills from a century old warrior.
+Polite applause came. By then, the Tau'ri were used to this display of skills of a nearly century old warrior.
 
 "Anyone would like to try?" he asked the audience.
 
@@ -96,7 +100,7 @@ An hour passed by. Already, most of SG-1 were standing outside when Teal'c walke
 
 "How's class?" O'Neill asked.
 
-"Most excellent. Normal and routine," Teal'c appraised. "A Jaffa warrior is very difficult take on in melee combat, but I believed some of my students now have a fighting chance to stay alive."
+"Excellent as usual. Normal and routine," Teal'c appraised. "A Jaffa warrior is very difficult take on in melee combat, but I believed some of my students now have a fighting chance to stay alive."
 
 O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We're going to go to a diner nearby for lunch. Want to come with us?"
 
