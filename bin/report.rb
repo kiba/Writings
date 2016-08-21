@@ -25,8 +25,6 @@ def count_words files
   words
 end
 
-directories = ["atg"]
-
 def generate_report dir
   words = count_words(list_chapters(dir))
   today = Date.today()
@@ -35,5 +33,3 @@ def generate_report dir
     f.write(words.to_s + " total")
   }
 end
-
-generate_report(directories[0])
