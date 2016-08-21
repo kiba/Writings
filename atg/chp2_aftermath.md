@@ -107,6 +107,33 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 "I gladly accept your offer."
 
 ***
+**Major Charles Kawalsky**
+
+It was the lounge, the only room to hang out downstair of NORAD, and it was small too. Still, Major Charles Kawalsky appreciated it all the same for the downtime it represented.
+
+"Remember the time I got infected with one of damn snake?" Kawalsky reminisced. There were sudden sour looks by his teammates.
+
+It wasn't certainly one of his best episode. Only through experimental surgery that Kawalsky made it out alive. Now Doctor Fraiser made sure to check everybody's neck for scars, and of course, there were the usual x-ray scan to double check. Actually, nobody got in or out of SGC without a neck check.
+
+"Do we have to talk about this?" Casey asked.
+
+"Just hear me out, will ya? Right now, we prevent infection by doing neck checks, since that's how they infiltrated our ranks. What if...." He took out a napkin and drew a collar. "We prevent infection by making it impossible for them to bite through?"
+
+"It would work until they figure out that they can't do that anymore. They would switch around to jumping into our mouth, like those Tok'ra agents," Sergeant Warren opined. "Then we'll have no way of distinguishing a good snake from bad. Even if we prevent them from jumping into our mind, how are we going to deal with them jumping into our back?"
+
+"We do wear backpacks and vests that provided some protection," Kawalsky pointed out.
+
+"The only way that we would have complete protection from goa'uld puppetry is if we wear some power armor," Casey said dreamingly. "If the eggheads could figure out how to get those naquadah power cells working..."
+
+"I am told that even with a power cell, it's a long way from building a practical exoskeleton that don't get in the way," Kawalsky said. "At least we got a lot of staff weapons to take cells from. That won't be an issue."
+
+A head popped from the doorway.
+
+"Hey guys," O'Neill said. "Lunchtime."
+
+
+
+***
 **Jack O'Neill**
 **O'Malley Restaurant, Colorado Spring**
 
