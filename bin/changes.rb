@@ -20,6 +20,7 @@ OptionParser.new do |opts|
 end.parse!
 
 def changes options, info
+  generate_report(info["primary"])
   today = Date.today
   filename = "reports/" + info["primary"] + "/" + today.to_s + ".md"
   if File.exist?(filename)
