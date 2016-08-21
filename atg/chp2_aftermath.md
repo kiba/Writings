@@ -46,7 +46,7 @@ At least the worksheet weren't the feel good bullshit mandated by bureaucrats, o
 "Good..let's get the rest of the team."
 
 ***
-**Captain Carter**
+**Captain Samantha Carter**
 
 As a precaution, General Hammond shut down gate explorations until further notice after the near disastrous black hole incident. An incident review procedure was initialized, and an independent team took charge of the investigation. They interviewed everyone and everything, performed root cause analysis, and made a number of recommendations for SGC to implement. Then there were the debriefing with the higher-ups. Finally, changes was made to SGC's standard operating procedures to never let this happen again.
 
@@ -78,7 +78,7 @@ When she was done, she joined the rest of SG-1 at a local resturant.
 
 ***
 
-It was a Friday, and Teal'c found himself in the company of Tau'ri warriors at the gym, facing a total of five sparring partners in the ring.
+It was a Friday, and Teal'c was instructing Tau'ri warriors at the gym, facing five sparring opponents.
 
 This was routine, absolutely normal, part of an ongoing exchange of knowledge. While the Jaffa are vastly inferior soldiers to the Tau'ri in general ground combat, it did not mean that the Jaffa knew nothing about fighting.
 
@@ -110,23 +110,21 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 **Jack O'Neill**
 **O'Malley Restaurant, Colorado Spring**
 
-What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steaks. In some way, that was all that matters.
+What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steaks. As far as he was concerned, this was another weekly outing for the team.
 
 His entire team was here today, with Kawalsky, Warren, Casey, and Ferreti, who are the squad members protecting the retreat to the gate, and his subject matter experts, Carter, Teal'c, and Jackson.
 
 O'Neill stood up, and the conversation around the dining table stopped. He raised his glass.
 
-"I would like to toast my good friend Colonel Frank Cromwell, who passed away after a battle with cancer," he half-lied. The truth was that Cromwell died a hero, protecting Earth from total annihilation. He tried to stop thinking about the interaction of the stargate, a bomb more powerful than any nukes on Earth, and that black hole. O'Neill shifted thoughts, but not to his liking.
+"Before we get started on lunch, I would like to toast to my good friend Colonel Frank Cromwell, who passed away after a battle with cancer," he half-lied. The truth was that Cromwell died a hero, protecting Earth from total annihilation.
 
-He sighed at the image of Cromwell looking at him peacefully as he passed through the portal of death. Momentarily, anguish and guilt all came rushing. Then he pushed the emotions down.
+That was the secret that cannot be told out loud in the public.
 
-"You know, I am ashamed that I never got to reconcile with him before moments until his death. I was there the day he passed. At the very least, he will be remembered for all the good he did for this world."
+"I believe that all of you know Cromwell in one form or another, even if you were just passing him by. Let me say that he's unequivocally a good man, as much as I despise him for what he did or didn't do. It's my regret that I ha-haven't...reconcile on that."
 
-Finally, glasses clinked against each other before everyone sat down again.
+"Amen," a voice said among other utterance of agreement. There was no way that they were going to say that he's a hero out loud in public, but they knew. Everyone knew.
 
-Everyone on SG-1 and the base knew that he died. It was a shared secret that cannot be denied, spoken of in a restaurant completely oblivious to the knowledge.
-
-SG-1 dug in, appreciating every bite. Every mission could be their last. Somebody could be starved, kidnapped, tortured, raped, or worse, snaked.
+Glasses clinked for Frank Cromwell. It would not be the last time nor the first time that they toasted for someone in the SGC community who died.
 
 ***
 
