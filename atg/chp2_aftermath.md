@@ -19,7 +19,7 @@ He knocked on the door.
 
 It would be very convenient if the galaxy at large spoke English for his team's benefit. Alas, his team has yet to come across a universal language translator to reverse engineer it from. At least the galaxy at large do speak a lingua franca, which is Goa'uld. Which means that Teal'c and Jackson can interact with the locals. The only problem with that language is that you can be sure that some kooky Goa'uld overlord had influenced that particular gate address in some way or fashion, frequently in a traumatizing sort of way. Unless they're tok'ra. Tok'ra are the good guys. That's more of an exception.
 
-To increase operational efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld, not that it was any particularly new to O'Neill Throughout his military career, more specifically, special operation, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
+To increase the field efficacy and efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld, not that it was any particularly new to O'Neill. Throughout his military career, more specifically, special operation, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
 
 But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find homework.
 
@@ -108,7 +108,7 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 
 ***
 **Jack O'Neill**
-**O'Malley Resturant, Colorado Spring**
+**O'Malley Restaurant, Colorado Spring**
 
 What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steaks. In some way, that was all that matters.
 
@@ -130,12 +130,16 @@ SG-1 dug in, appreciating every bite. Every mission could be their last. Somebod
 
 ***
 
-Hammond's order to cease all exploration activities was finally lift.
+Hammond finally lift the order that stopped exploration activities for the past few weeks, the gate only connecting to off-world outposts and for emergency contact with the larger galaxy.
 
-A few weeks passed by while all gate operations were shut down, except for emergency contact. SGC wasn't the slighest idle.. Research projects continued without abatement, maybe even sped up since Jackson and Carter weren't undertaking missions. Then there were the drills, the constant inspection, and of course field exercises.
+Of course, even under those weeks, SGC never really slept, as there were always something to do. Jackson and Carter were allowed more time to do research, but they report for team training and combat exercises. Then, there were drills, and the constant stream of them.
 
-Then of course, gate operations resumed, and suddenly a new mission for SG-1.
+Now, he was in the operation room, watching Chief Master Sergeant Harriman dialed a completely new address.
 
-Of course, standard operating procedure dictated that SGC send a rover through to check for suitability before SG-1 take a single step into the unknown.
+If there's a connection, the standard operating procedure would be to send in a rover, check things out. See if it's possible to breathe. Only then would SG-1 embark on a new mission into the unknown.
 
-O'Neill once again found himself with the rest of SG-1 in the gate operation room, as Chief Master Segrent Harriman dialed a completely new address.
+"And we have a connection!" Harriman said in excitement. "Commencing operation."
+
+Sure enough, the MALP, an ugly piece of machine advance dup the ramp, disappearing into the portal, and emerging on the other side.
+
+Only that O'Neill was looking at a dead man's face, with a pistol aimed at the MALP.
