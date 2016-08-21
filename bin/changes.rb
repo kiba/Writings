@@ -3,7 +3,7 @@
 require "optparse"
 require "date"
 require "json"
-
+require "./bin/report.rb"
 info = JSON.parse(File.read("info.json"))
 
 options = {}
