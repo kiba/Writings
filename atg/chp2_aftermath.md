@@ -111,27 +111,25 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 
 It was the lounge, the only room to hang out downstair of NORAD, and it was small too. Still, Major Charles Kawalsky appreciated it all the same for the downtime it represented.
 
-"Remember the time I got infected with one of damn snake?" Kawalsky reminisced. There were sudden sour looks by his teammates.
+"And then Doctor Jackson got married again!" Charles Kawalsky reminisced. His squadmates and himself laughed at that memory of cultural misunderstanding. In the expedition to Abydos, Jackson did get married to the local chief's daughter based on that misunderstanding before O'Neil blew up Ra's spaceship and started a galactic-scale civil war.
 
-It wasn't certainly one of his best episode. Only through experimental surgery that Kawalsky made it out alive. Now Doctor Fraiser made sure to check everybody's neck for scars, and of course, there were the usual x-ray scan to double check. Actually, nobody got in or out of SGC without a neck check.
+"Seriously, why did Doctor Jackson gets all the girls? We soldiers are supposed to be getting the girls?" Sergeant Warren asked.
 
-"Do we have to talk about this?" Casey asked.
+"I don't know," Kawalsky said. "Maybe it's because he spoken Goa'uld better than anyone else? We're just grunts protecting the other half as they pulled out literal miracles out of their hats."
 
-"Just hear me out, will ya? Right now, we prevent infection by doing neck checks, since that's how they infiltrated our ranks. What if...." He took out a napkin and drew a collar. "We prevent infection by making it impossible for them to bite through?"
+Granted, if nobody protected their asses, SG-1 would be dead long ago, and Earth would be doomed, literal miracle pulling aside.
 
-"It would work until they figure out that they can't do that anymore. They would switch around to jumping into our mouth, like those Tok'ra agents," Sergeant Warren opined. "Then we'll have no way of distinguishing a good snake from bad. Even if we prevent them from jumping into our mind, how are we going to deal with them jumping into our back?"
+There were a sudden chill in the room as the grim realization set in.
 
-"We do wear backpacks and vests that provided some protection," Kawalsky pointed out.
+"You think our luck will hold?" Sergeant Avery Casey wondered.
 
-"The only way that we would have complete protection from goa'uld puppetry is if we wear some power armor," Casey said dreamingly. "If the eggheads could figure out how to get those naquadah power cells working..."
+"It will have to," Kawalsky answered. SG-1 was the flagship team, but also the most dangerous team to be on, given their worse than rotten luck. Given those luck, it was already the most storied and legendary team in the hall of Stargate Command.
 
-"I am told that even with a power cell, it's a long way from building a practical exoskeleton that don't get in the way," Kawalsky said. "At least we got a lot of staff weapons to take cells from. That won't be an issue."
+"You know what I wish for? Power armor," Specialist Ben Pierce said. "With lot of armor plates, and the ability to leg it as fast as possible. We got power with all the naquadah cells sitting unused in staff weapons stored at our armory."
 
-A head popped from the doorway.
+"The eggheads still haven't figured out how to extract energy just yet," Kawalsky noted. "But yeah, with powered armor, it would increase our chance of survival pretty dramatically, especially if we combine it with trinium."
 
-"Hey guys," O'Neill said. "Lunchtime."
-
-
+A head popped in from the lounge's entrance. "Lunchtime, boys and girls." the Colonel said simply.
 
 ***
 **Jack O'Neill**
