@@ -171,6 +171,6 @@ If there's a connection, the standard operating procedure would be to send in a 
 
 "And we have a connection!" Harriman said in excitement. "Commencing operation."
 
-Sure enough, the MALP, an ugly piece of machine advance dup the ramp, disappearing into the portal, and emerging on the other side.
+Sure enough, the MALP, the ugliest robot in existence, advanced the ramp, disappearing into the portal, and emerging on the other side.
 
 Only that O'Neill was looking at a dead man's face, with a pistol aimed at the MALP.
