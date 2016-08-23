@@ -63,3 +63,37 @@ Naturally, with an incident like this, General Hammond was called in.
 "Colonel Cromwell, if you can, please try a reconnection as soon as you can. To give you enough time, we'll try to reconnect to your address after ten minutes."
 
 O'Neill didn't think whatever was chucked into the gate was going to help Cromwell much if any. If anything, the 'billionaire' is probably his friend's best bet.
+
+***
+**Colonel Frank Cromwell**
+**Hawthrone, Infopunk-Earth**
+
+It wasn't long that an agreement was quickly made that Cromwell should go home, although with a macbook in his hand.
+
+"Ready?" John Swift said via radio.
+
+"Copy that. I am ready," Cromwell said.
+
+The wormhole connected.
+
+"You are good to go."
+
+Cromwell walked boldly into the gate. Then, he suddenly saw people in hazmat suits.
+
+"Follow me," one of them said.
+
+He complied.
+
+***
+
+Cromwell was finally in the meeting room with SG-1 and General Hammond. He endured a twenty four hours isolation period, with stringent medical check by the the medical staff.
+
+There was a macbook in the middle of the desk. Everyone was staring at it.
+
+"It's good to have you back, Colonel," Hammond said warmly.
+
+"Likewise."
+
+"I am happy to let you know that we had reconnected with the alternate Earth repeatedly and that there's no problem going back and forth."
+
+Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth.
