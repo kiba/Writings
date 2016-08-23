@@ -56,8 +56,10 @@ Naturally, with an incident like this, General Hammond was called in.
 
 "I am a billionaire. I can arrange something for him for his stay on my Earth," an unidentified tall man spoken from the MALP. "Permanently if necessary."
 
-"Forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "You have whatever left to chuck whatever is useful for him through the gate. Make it quick."
+"Forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is  way to get him back. You have whatever left to chuck whatever is useful for him through the gate. Make it quick."
 
-"Yes, sir," SG-1 replied.
+"Yes, sir," SG-1 replied with a grimace.
+
+"Colonel Cromwell, if you can, please try a reconnection as soon as you can. To give you enough time, we'll try to reconnect to your address after ten minutes."
 
 O'Neill didn't think whatever was chucked into the gate was going to help Cromwell much if any. If anything, the 'billionaire' is probably his friend's best bet.
