@@ -137,15 +137,23 @@ A head popped in from the lounge's entrance. "Lunchtime, boys and girls." the Co
 
 What kind of a restaurant named itself O'Malley? He shrugged at that. Regardless, they have good beer and really good steaks. As far as he was concerned, this was another weekly outing for the team.
 
-His entire team was here today, with Kawalsky, Warren, Casey, and Ferreti, who are the squad members protecting the retreat to the gate, and his subject matter experts, Carter, Teal'c, and Jackson.
+"...and that's why Indiana Jone is bullshit. What he does in the movies is not archaeology. It is worse than that. He's a looter," Jackson ranted.
+
+His entire team was here today, with Kawalsky, Warren, Casey, and Pierce, who are the squad members protecting the retreat to the gate, and his subject matter experts, Carter, Teal'c, and Jackson.
+
+"...You never publish your finds."
+
+"That's different!" Daniel said with indignation. "The universities shut me out because they considered my theories crackpot."
+
+"To be fair," Sam said. "It does sounds like crackpot. You're distinguishable from the crackpots, yes, but everybody judged a book by its cover."
 
 O'Neill stood up, and the conversation around the dining table stopped. He raised his glass.
 
 "Before we get started on lunch, I would like to toast to my good friend Colonel Frank Cromwell, who passed away after a battle with cancer," he half-lied. The truth was that Cromwell died a hero, protecting Earth from total annihilation.
 
-That was the secret that cannot be told out loud in the public.
+That was the secret that cannot be told out loud in the public, but which everybody here knew.
 
-"I believe that all of you know Cromwell in one form or another, even if you were just passing him by. Let me say that he's unequivocally a good man, as much as I despise him for what he did or didn't do. It's my regret that I ha-haven't...reconcile on that."
+"I believe that all of you know Cromwell in one form or another, even if you were just passing him by. Let me say that he's unequivocally a good man, and that I hadn't reconciled with him before his death."
 
 "Amen," a voice said among other utterance of agreement. There was no way that they were going to say that he's a hero out loud in public, but they knew. Everyone knew.
 
@@ -157,7 +165,7 @@ Hammond finally lift the order that stopped exploration activities for the past 
 
 Of course, even under those weeks, SGC never really slept, as there were always something to do. Jackson and Carter were allowed more time to do research, but they report for team training and combat exercises. Then, there were drills, and the constant stream of them.
 
-Now, he was in the operation room, watching Chief Master Sergeant Harriman dialed a completely new address.
+Now, he was in the operation room with the rest of SG-1, watching Chief Master Sergeant Harriman dialed a completely new address.
 
 If there's a connection, the standard operating procedure would be to send in a rover, check things out. See if it's possible to breathe. Only then would SG-1 embark on a new mission into the unknown.
 
