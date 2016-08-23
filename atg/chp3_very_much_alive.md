@@ -94,6 +94,6 @@ There was a macbook in the middle of the desk. Everyone was staring at it.
 
 "Likewise."
 
-"I am happy to let you know that we had reconnected with the alternate Earth repeatedly and that there's no problem going back and forth."
+"I am happy to let you know that we reconnected with the alternate Earth repeatedly and that there's no problem going back and forth."
 
 Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth.
