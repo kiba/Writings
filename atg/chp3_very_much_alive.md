@@ -1,5 +1,8 @@
 **Chapter Three: Very Much Alive**
 
+**Colonel Johnathan O'Neill**
+**SGC, SG-Earth**
+
 "My name is Colonel Frank Cromwell of the United States Air Force. Service number is...." the man on the screen recited.
 
 Surprise was part of the job at Stargate Command. Somehow that fact never really kept surprise from happening on a frequent basis.
@@ -37,12 +40,24 @@ It may be sheer improbability, but he cannot deny what he seen in front of his e
 
 ***
 
-"You're telling me that Frank Cromwell is not well and alive, but he ended up seventeen years into the future in a reality where we are the subject of a science fiction series?" Hammond asked with incredulity.
+Naturally, with an incident like this, General Hammond was called in.
 
-"Yes sir, that is what the Colonel told me," O'Neil replied.
+"Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a science fiction series?"
+
+"Yes, you heard that right."
 
 "The probability of encountering such a reality is incredibly low," Carter said. "Although we still have no theories on how to cross one."
 
 "And now we have verification of a method how to cross one," Hammond said.
 
-"Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have thirty eight minutes before the gate shut down."
+"Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have an hour of time before the gate shut down."
+
+"I doubt we can do anything under incredible time constraint. If it comes to worst case scenario, Cromwell will be considered missing in action again."
+
+"I am a billionaire. I can arrange something for him for his stay on my Earth," an unidentified tall man spoken from the MALP. "Permanently if necessary."
+
+"Forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "You have whatever left to chuck whatever is useful for him through the gate. Make it quick."
+
+"Yes, sir," SG-1 replied.
+
+O'Neill didn't think whatever was chucked into the gate was going to help Cromwell much if any. If anything, the 'billionaire' is probably his friend's best bet.
