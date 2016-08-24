@@ -147,17 +147,17 @@ His entire team was here today, with Kawalsky, Warren, Casey, and Pierce, who ar
 
 "To be fair," Sam said. "It does sounds like crackpot. You're distinguishable from the crackpots, yes, but everybody judged a book by its cover."
 
-O'Neill stood up, and the conversation around the dining table stopped. He raised his glass.
+O'Neill decided that the time was for now. He stood up, and the conversation around the dining table stopped. He raised his glass.
 
-"Before we get started on lunch, I would like to toast to my good friend Colonel Frank Cromwell, who passed away after a battle with cancer," he half-lied. The truth was that Cromwell died a hero, protecting Earth from total annihilation.
+"Before we get started on lunch, I would like to toast to my good friend Colonel Frank Cromwell, who passed away after a battle with cancer," he half-lied. The truth was that Cromwell died a hero, protecting Earth from total annihilation. SGC also lost an entire SG team as well.
 
 That was the secret that cannot be told out loud in the public, but which everybody here knew.
 
-"I believe that all of you know Cromwell in one form or another, even if you were just passing him by. Let me say that he's unequivocally a good man, and that I hadn't reconciled with him before his death."
+"I believe that all of you know Cromwell in one form or another, even if you were just passing him by. Let me say that he's unequivocally a good man, despite the misgiving I had with him. He served with honor all the way with us through the end." [i]Let not forget the servicemen who were also lost in that incident.[/i]
 
 "Amen," a voice said among other utterance of agreement. There was no way that they were going to say that he's a hero out loud in public, but they knew. Everyone knew.
 
-Glasses clinked for Frank Cromwell. It would not be the last time nor the first time that they toasted for someone in the SGC community who died.
+Glasses clinked for Frank Cromwell and the SG team that SGC had to write off. It would not be the last time nor the first time that they toasted for someone in the SGC community who died.
 
 ***
 
