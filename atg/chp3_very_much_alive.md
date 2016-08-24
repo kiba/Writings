@@ -122,6 +122,32 @@ There were mixed reactions from SG-1.
 
 ***
 
-Captain Samantha Carter has some level of computing skills, enough to operate safely on her own without panicking. She was not a tech support person. That duty belong to Harriman who was seated right next to her, working the computer which came from 2016, therefore sporting user interface and ideas that were not all that present in nineteen ninety-eight.
+The most convenient place to eat was the SGC's cafeteria. It wasn't gourmet food, but it wasn't bad either. O'Neill may be paid six figures plus hazard duty pay, but he wasn't going to go out every time to get food. There was a security process with the need to stay here in case if emergency arise.
+
+Frank Cromwell approached his table with a cafeteria tray.
+
+"May I join you?" Cromwell asked.
+
+"Sure," O'Neil replied.
+
+"About the war in Iraq..."
+
+"Don't say anymore. Whatever happened there, it's over."
+
+"Forgiveness?"
+
+"Maybe not even that. If what you said is true, then there's nothing to forgive. You already saved our ass by sacrificing yourself, so I can't exactly complain about being stuck in Iraqi prison if the world was almost destroyed."
+
+"If I had to do it over again, I would drag you back to the helicopter."
+
+"I know you would."
+
+"So, we're good?" O'Neill looked into Cromwell's eyes.
+
+"Yeah, we're good." He nodded.
+
+***
+
+Captain Samantha Carter has some level of computing skills, enough to operate safely on her own without panicking. She was not a tech support person. That duty belong to Chief Master Segrent Harriman who was seated right next to her, working the computer which came from 2016, therefore sporting user interface and ideas that were not all that present in nineteen ninety-eight.
 
 "Where do I go right now?" Harriman said.
