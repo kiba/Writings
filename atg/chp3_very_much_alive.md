@@ -94,6 +94,28 @@ There was a macbook in the middle of the desk. Everyone was staring at it.
 
 "Likewise."
 
-"I am happy to let you know that we reconnected with the alternate Earth repeatedly and that there's no problem going back and forth."
+"I am happy to let you know that we reconnected with the alternate Earth repeatedly and that there's no problem going back and forth. Carter and her team still don't know how long the connection will last."
 
-Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth.
+Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth and probably so did everyone else. That did not exclude the alternate Earth being a threat but it was low probability.
+
+"I believe everyone here viewed the science fiction series?" Cromwell asked.
+
+There were mixed reactions from SG-1.
+
+"They left out the other half of the team!" O'Neill complained. "Although the humors and camaradies were spot on."
+
+"Mostly inaccurate," Teal'c said.
+
+"Obviously they're not physicists," Carter said.
+
+"Haha, I knew we were a science fiction series," Kawalsky said, before his face turned into a frown. "Although I died right after pilot episode."
+
+"It's entertainment," Cromwell conceded. "But it could be useful as an intelligence mine. We just need to be on guard about making assumptions."
+
+"What if we are in the field having to make split second decision?" O'Neill countered. "We will gather all the knowledge we know to date. The intel could save us, but it could also kill us. SG-1 and any members of the SGC shouldn't had watch the videos in the first place."
+
+"At the time we received the device and watch the videos contained on there, we only checked if it was an obvious bomb or biohazardous material. Nobody made any objection about contamination using future information, however inaccurate it may be on many points," Hammond noted. "Nonetheless, the mistake can't be undone. We'll have to move on to make use of or neutralize dangerous information. I want every piece of the franchise analyzed to the last scrap for any useful intelligence. It will be analyzed independently by separate teams not from SGC so that their conclusion will not be contaminated. Is there any objections or concerns?"
+
+"How fast could we get it done?" Cromwell asked.
+
+"It will be a priority project, and it will be done as soon as possible. I am assuming that we will extract the intel from the laptop for use by multiple teams. If we can get Mr. Swift's cooperation, I am sure we will receive more videos from their franchise."
