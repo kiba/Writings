@@ -119,3 +119,9 @@ There were mixed reactions from SG-1.
 "How fast could we get it done?" Cromwell asked.
 
 "It will be a priority project, and it will be done as soon as possible. I am assuming that we will extract the intel from the laptop for use by multiple teams. If we can get Mr. Swift's cooperation, I am sure we will receive more videos from their franchise."
+
+***
+
+Captain Samantha Carter has some level of computing skills, enough to operate safely on her own without panicking. She was not a tech support person. That duty belong to Harriman who was seated right next to her, working the computer which came from 2016, therefore sporting user interface and ideas that were not all that present in nineteen ninety-eight.
+
+"Where do I go right now?" Harriman said.
