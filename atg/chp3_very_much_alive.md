@@ -42,7 +42,7 @@ It may be sheer improbability, but he cannot deny what he seen in front of his e
 
 Naturally, with an incident like this, General Hammond was called in.
 
-"Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a science fiction series?"
+"Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
 
 "Yes, you heard that right."
 
@@ -132,22 +132,66 @@ Frank Cromwell approached his table with a cafeteria tray.
 
 "About the war in Iraq..."
 
-"Don't say anymore. Whatever happened there, it's over."
+"Don't say anymore. Whatever happened or didn't happen there, it's over."
 
 "Forgiveness?"
 
-"Maybe not even that. If what you said is true, then there's nothing to forgive. You already saved our ass by sacrificing yourself, so I can't exactly complain about being stuck in Iraqi prison if the world was almost destroyed."
+"Maybe not even that. If what you said is true, then there's nothing to forgive. You made a judgement call on that day, and it was wrong. Only weeks ago, you saved the world, so I can't exactly complained about being personally tortured in some forsaken Iraqi prison."
 
 "If I had to do it over again, I would drag you back to the helicopter."
 
 "I know you would."
 
-"So, we're good?" O'Neill looked into Cromwell's eyes.
+"So, we're good?"
 
-"Yeah, we're good." He nodded.
+O'Neill looked into Cromwell's eyes. "Yeah, we're good."
 
 ***
 
-Captain Samantha Carter has some level of computing skills, enough to operate safely on her own without panicking. She was not a tech support person. That duty belong to Chief Master Segrent Harriman who was seated right next to her, working the computer which came from 2016, therefore sporting user interface and ideas that were not all that present in nineteen ninety-eight.
+It occurred to Frank Cromwell that the office of Major General Hammond was very ordinary. If he didn't know, it looked like the office of any general, but this office belonged to one of the most important and special combatant command on Earth.
 
-"Where do I go right now?" Harriman said.
+"Have a seat, Colonel," Hammond said.
+
+Cromwell could see the exasperated gesture exhibited by the general.
+
+"What am I going to do with you?" Hammond said.. "You know how much headache is when a SGC personnel come back from the dead? Luckily I didn't have to find out until now. Doctor Jackson was only gone a few hours before we retrieved him from an aquatic being. But you have been gone for a few weeks with all the ceremonies into play."
+
+"So this is going to be a problem."
+
+"Yes, a very big nasty problem. This is by no mean your fault, but coming from the dead plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?' It would be a lot easier if there's a war going on."
+
+"So, I am not going back to my old life."
+
+"I didn't say that it was going to be like that."
+
+"Sir, wouldn't it be easier that it just wasn't going to happen? At least until a few years?"
+
+"You'll be stuck here."
+
+"That's fine. I was thinking of going to two thousand sixteen. We have a contact here, and I know the billionaire the most. He seemed pretty reasonable. When we contact their government, I could be a liaison to their military command. When the program come out, I could get my life back."
+
+"I have one objection. You are a known face."
+
+"A fictional person there, sir. At most I would get mistaken as the actor who played me."
+
+"I'll see what I can do, but I make no promises."
+
+***
+
+Captain Samantha Carter was somewhat computer literate, enough to operate safely on her own without immediately panicking. However, computing and tech support wasn't what she did for a living. That duty belonged to Chief Master Sergeant Harriman. He was operating the laptop from the future next to her, and even he has a slightly difficult time getting used to the interface.
+
+"Where do I go right now?" Harriman said, speaking to a face on the screen.
+
+"You'll want to register an account at gmail dot com," Swift, the billionaire said. "That will be your email account."
+
+"Got it."
+
+Carter sat through it, proactively asking questions along the way, and taking part getting used to this futuristic device and the blazing fast one gigabit connection. It was certainly a far cry from her dialup connection that she was used to.
+
+Finally, Harriman was gone. She was all alone, with Swift still reachable if she need to ask an question.
+
+She started typing an email to a professor that she knew.
+
+A thought occurred to her? Physics might be different on their Earth. No, if that was true, why was the computer in front of her still working, downloading and transmitting information. For that matter, where did the gate came from?
+
+No. That wasn't relevant to what she need to do. She put those thought aside, and set to work. 
