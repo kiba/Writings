@@ -28,6 +28,6 @@ Swift laughed. "No, it's nothing like that. It's an electric car. The engines, o
 
 "And the vast majority of cars today on the road are still the cars that you are used. They have an internal combustion engine and uses gasoline, but I don't believe that will be the future."
 
-"Because cars like this."
+"Because of cars like this."
 
 "No. It's due to the stargate program. Room temperature superconductors? Antigravity? FTL travel? That's going to change automotive technology if we don't start teleporting everywhere."
