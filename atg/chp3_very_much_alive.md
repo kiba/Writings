@@ -33,7 +33,7 @@ O'Neil froze in disbelief. "I don't believe it."
 
 "I could be delusional."
 
-"No, it's not out of the realm of possibility. Doctor Jackson somehow ended up in an alternate universe via the reality mirror before we got him out. But right now, I just don't believe it."
+"No, it's not out of the realm of possibility. One time, Doctor Jackson somehow ended up in an alternate universe via the reality mirror before we got him out. But right now, I just don't believe it."
 
 It may be sheer improbability, but he cannot deny what he seen in front of his eyes, or what was coming from the rover. The problem was aligning his gut feeling with reality.
 
@@ -158,17 +158,21 @@ Cromwell could see the exasperated gesture exhibited by the general.
 
 "So this is going to be a problem."
 
-"Yes, a very big nasty problem. This is by no mean your fault, but coming from the dead plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?' It would be a lot easier if there's a war going on."
+"Yes, a very big nasty problem. This is by no mean your fault, but coming from the dead plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?'. We're going to have to craft a very convincing story as to why. That would be easier if we were officially at war with someone else on this planet. Thankfully, we are not. "
 
 "So, I am not going back to my old life."
 
-"I didn't say that it was going to be like that."
+"I didn't say that we are going to just throw up our hands up and do nothing."
 
 "Sir, wouldn't it be easier that it just wasn't going to happen? At least until a few years?"
 
-"You'll be stuck here."
+"You'll be stuck here in this base. There's no telling when we will reveal the program to the public"
 
-"That's fine. I was thinking of going to two thousand sixteen. We have a contact here, and I know the billionaire the most. He seemed pretty reasonable. When we contact their government, I could be a liaison to their military command. When the program come out, I could get my life back."
+"In the television series, they never made stargate command public, even when they finally have the capability to manufacture the ships needed to defend Earth. It was all up to SG-1 to save the day again and again. I hope we are not going in that direction."
+
+"I assure you that we will not. If one of our carrier strike group got sunk, or there was a battle in Antartica, we would absolutely disclose the stargate program to the public. It would be the height of stupidity, not to mention jeopardizing the safety of this world, to not do so."
+
+"It's good to hear. I have a proposal. I was thinking of going to two thousand sixteen. We are in contact with a prominent billionaire, probably with good connection to our, I mean, his government. He could arrange a meeting. When we do contact the government, I could be a liaison to the USAF there. When the program finally become public, I'll get my life back."
 
 "I have one objection. You are a known face."
 
@@ -178,7 +182,7 @@ Cromwell could see the exasperated gesture exhibited by the general.
 
 ***
 
-Captain Samantha Carter was somewhat computer literate, enough to operate safely on her own without immediately panicking. However, computing and tech support wasn't what she did for a living. That duty belonged to Chief Master Sergeant Harriman. He was operating the laptop from the future next to her, and even he has a slightly difficult time getting used to the interface.
+Captain Samantha Carter was somewhat computer literate, enough to operate safely on her own without immediately panicking. However, computing and tech support wasn't what she did for a living. That duty belonged to Chief Master Sergeant Harriman. The laptop of the future were in front of them, and he was the one operating the device, but even he has a slightly difficult time getting to where he needs to go.
 
 "Where do I go right now?" Harriman said, speaking to a face on the screen.
 
@@ -186,7 +190,7 @@ Captain Samantha Carter was somewhat computer literate, enough to operate safely
 
 "Got it."
 
-Carter sat through it, proactively asking questions along the way, and taking part getting used to this futuristic device and the blazing fast one gigabit connection. It was certainly a far cry from her dialup connection that she was used to.
+Carter sat through it, proactively asking questions along the way, and taking part getting used to this futuristic device with its blazing fast gigabit connection delivered wirelessly through the gate. It was certainly a far cry from her dialup connection that she was used to.
 
 Finally, Harriman was gone. She was all alone, with Swift still reachable if she need to ask an question.
 
@@ -194,4 +198,4 @@ She started typing an email to a professor that she knew.
 
 A thought occurred to her? Physics might be different on their Earth. No, if that was true, why was the computer in front of her still working, downloading and transmitting information. For that matter, where did the gate came from?
 
-No. That wasn't relevant to what she need to do. She put those thought aside, and set to work. 
+No. That wasn't relevant to what she need to do. She put those thought aside, and set to work.
