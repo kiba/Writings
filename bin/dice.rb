@@ -1,3 +1,4 @@
-#!/usr/bin/env ruby
-
-puts ARGV[0]
+class Dice
+  def initialize
+  end
+end
