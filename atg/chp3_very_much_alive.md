@@ -172,7 +172,7 @@ Cromwell could see the exasperated gesture exhibited by the general.
 
 "I assure you that we will not. If one of our carrier strike group got sunk, or there was a battle in Antartica, we would absolutely disclose the stargate program to the public. It would be the height of stupidity, not to mention jeopardizing the safety of this world, to not do so."
 
-"It's good to hear. I have a proposal. I was thinking of going to two thousand sixteen. We are in contact with a prominent billionaire, probably with good connection to our, I mean, his government. He could arrange a meeting. When we do contact the government, I could be a liaison to the USAF there. When the program finally become public, I'll get my life back."
+"It's good to hear. I have a proposal. I was thinking of going to two thousand fifteen. We are in contact with a prominent billionaire, probably with good connection to our, I mean, his government. He could arrange a meeting. When we do contact the government, I could be a liaison to the USAF there. When the program finally become public, I'll get my life back."
 
 "I have one objection. You are a known face."
 
