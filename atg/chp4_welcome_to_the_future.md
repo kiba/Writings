@@ -3,6 +3,7 @@
 ***
 **John Swift**
 **Infopunk-Earth**
+**September 22, 2015**
 
 As John Swift stood in front of the stargate, Swift was still searching in his mind for answers to the reality he was currently facing. He talked to psychologists to test his sanity, and he even tried to find the man who sold him the gate. His search for answers had only beget more questions.
 
