@@ -10,17 +10,17 @@ Surprise was part of the job at Stargate Command. Somehow that fact never really
 
 He couldn't believe what he was seeing on the screen. There's a dead man on the opposite side of the wormhole speaking to the rover inside what appeared to be a copy of Stargate Command.
 
-"Harriman, I need to speak with the Colonel," O'Neil ordered.
+"Harriman, I need to speak with the Colonel," O'Neill ordered.
 
 "Understood sir," the technician replied, before flipping the switch on the microphone. "You can speak now, Colonel."
 
-"This is Colonel Johnathan O'Neil of United States Stargate Command, it's good to see you."
+"This is Colonel Johnathan O'Neill of United States Stargate Command, it's good to see you."
 
 "Good to see you as well," Colonel Frank Cromwell replied, still pointing his gun at the rover.
 
 "However, I am not going to take your appearance and identity as granted. I am going to ask you questions that a SGC personnel should know. This should also verify that it's us as well."
 
-O'Neil asked a series of question to which Cromwell answered to his satisfaction, including a secret question of whether Cromwell was under duress.
+O'Neill asked a series of question to which Cromwell answered to his satisfaction, including a secret question of whether Cromwell was under duress.
 
 Then he finally got to ask a burning question. "Say, why are you standing what looked like a brightly lit Stargate Command?"
 
@@ -30,7 +30,7 @@ Then he finally got to ask a burning question. "Say, why are you standing what l
 
 "Very well. It's not Stargate Command, it's a television set for a series about us. I am in an alternate universe where our missions and lives are a television show, and it's the year two thousand sixteen. Or so what I been led to believe."
 
-O'Neil froze in disbelief. "I don't believe it."
+O'Neill froze in disbelief. "I don't believe it."
 
 "I could be delusional."
 
@@ -130,7 +130,7 @@ Frank Cromwell approached his table with a cafeteria tray.
 
 "May I join you?" Cromwell asked.
 
-"Sure," O'Neil replied.
+"Sure," O'Neill replied.
 
 "About the war in Iraq..."
 
