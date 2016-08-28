@@ -69,7 +69,7 @@ O'Neill didn't think whatever was chucked into the gate was going to help Cromwe
 **Colonel Frank Cromwell**
 **Hawthrone, Infopunk-Earth**
 
-It wasn't long that an agreement was quickly made that Cromwell should go home, although with a macbook in his hand.
+It wasn't long that an agreement was quickly made that Cromwell should go home, and with a macbook in his hand.
 
 "Ready?" John Swift said via radio.
 
@@ -86,8 +86,9 @@ Cromwell walked boldly into the gate. Then, he suddenly saw people in hazmat sui
 He complied.
 
 ***
+**September 17, 1998**
 
-Cromwell was finally in the meeting room with SG-1 and General Hammond. He endured a twenty four hours isolation period, with stringent medical check by the the medical staff.
+Cromwell was finally in the meeting room with SG-1 and General Hammond. He endured a twenty four hours isolation period, with stringent medical check by the the medical staff, and some hours before this meeting.
 
 There was a macbook in the middle of the desk. Everyone was staring at it.
 
