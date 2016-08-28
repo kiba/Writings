@@ -32,3 +32,5 @@ A special operator in the United States Air Force, he has decade of experience i
 
 * DOB: September 8, 1955.
 * Gender: Male
+
+### Colonel Johnathan 'Jack' O'Neil
