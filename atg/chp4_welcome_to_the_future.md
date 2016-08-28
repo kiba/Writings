@@ -90,8 +90,8 @@ Johnson frown. "This alien-"
 
 "An American," Hammond insisted. "He is as American as you and I."
 
-"He may be one of us, General, but not all Americans can be trusted to withhold the secrecy of the stargate program."
+"That may be true, General, but not every citizen is capable of or should be trusted with secrets.."
 
-"In that case, we have no choice but to trust him on his honor. If he didn't leak anything or talk to anyone outside of his government, than we have reason to believe that we could give him what he want, access to our reality, under the full penalty of the law of course."
+"In that case, we have no choice but to trust him on his honor. If he didn't leak anything or talk to anyone outside of his government, than we have reason to believe that we should honor the other end of our bargain, access to our reality, under the understanding that he will be held to the same standard as you and I."
 
 "I think that discussion is over, though I disagree with your assessment. Let's move on. My superior agreed that we should be communicating with Swift's government. This will not be a CIA operation by any means, but we will provide support to the diplomatic corp, who had been preparing for all this time. There will need for research on the currency political environment..."
