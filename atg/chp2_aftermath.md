@@ -173,4 +173,4 @@ If there's a connection, the standard operating procedure would be to send in a 
 
 Sure enough, the MALP, the ugliest robot in existence, advanced the ramp, disappearing into the portal, and emerging on the other side.
 
-Only that O'Neill was looking at a dead man's face, with a pistol aimed at the MALP.
+Only that O'Neill was looking at a dead man's face, who was aiming a pistol at the MALP.
