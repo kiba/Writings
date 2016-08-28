@@ -1,5 +1,6 @@
 **Chapter Three: Very Much Alive**
 
+***
 **Colonel Johnathan O'Neill**
 **SGC, SG-Earth**
 
@@ -181,6 +182,7 @@ Cromwell could see the exasperated gesture exhibited by the general.
 "I'll see what I can do, but I make no promises."
 
 ***
+**Captain Samantha Carter**
 
 Captain Samantha Carter was somewhat computer literate, enough to operate safely on her own without immediately panicking. However, computing and tech support wasn't what she did for a living. That duty belonged to Chief Master Sergeant Harriman. The laptop of the future were in front of them, and he was the one operating the device, but even he has a slightly difficult time getting to where he needs to go.
 
