@@ -176,7 +176,7 @@ Cromwell could see the exasperated gesture exhibited by the general.
 
 "It's good to hear. I have a proposal. I was thinking of going to two thousand fifteen. We are in contact with a prominent billionaire, probably with good connection to our, I mean, his government. He could arrange a meeting. When we do contact the government, I could be a liaison to the USAF there. When the program finally become public, I'll get my life back."
 
-"I have one objection. You are a known face."
+"I have one objection that just came to my mind. You are a known face."
 
 "A fictional person there, sir. At most I would get mistaken as the actor who played me."
 
