@@ -60,3 +60,37 @@ For Cromwell, it was also clear that the bedroom still looked and functioned the
 ***
 
 When he arrived in the living room, there was a pizzabox on the coffee table, a sign that he was still in America, if in a different dimension altogether.
+
+There were also cardboards and packages strewn around, and new laptops.
+
+"I know you guys asked for the ability to purchase stuff through me," Swift said. "For now, you'll have fifty-thousand dollars limit on what you can purchase, but no rifles or weapons or anything like that. I will be invoicing the expense incurred by ordering using my account to your government. Mainly, it won't be dollars per dollars exchange, but access to your world and the ability to spend some money there."
+
+"I already understood that you negotiated with my government like a good capitalist for consulting fee," Cromwell said. "Thankfully, it was not exorbitant compared to defense contractors. You're downright cheap."
+
+"Naturally, I expect some compensation," Swift said. "My time is expensive, but, I am not going to sucker every dimes and pennies to make a quick buck. I have enough of bullshit. I don't think I need to skewer the SGC for more of their precious resources. Now, let me get this show on the road and show you how to purchase things on the internet."
+
+***
+**General Hammond**
+**SGC, SG-Earth**
+
+It was easy to satisfy John Swift's requirement. There was already a process for creating identities for aliens which was in turn ripped from the US marshall's witness protection program. Creating a new one for John Swift was completely identical.
+
+The CIA officer who was meeting with him was not the slightest amused.
+
+"General, I thought we were already constraining the amount of aliens who are allowed access to outside of this base," Kerry Johnson, the CIA liaison to Stargate Command said.
+
+"I assured you that it was done in the view that gaining access to his government would be extremely valuable. He seemed willing to cooperate with us."
+
+"Couldn't you just give him gold and precious metals to gain his cooperation?"
+
+"He had an argument against that one. Gold is not valuable when they will be common in the future. If anything, he wanted naquadah and trinium. Naturally of course, I said no."
+
+Johnson frown. "This alien-"
+
+"An American," Hammond insisted. "He is as American as you and I."
+
+"He may be one of us, General, but not all Americans can be trusted to withhold the secrecy of the stargate program."
+
+"In that case, we have no choice but to trust him on his honor. If he didn't leak anything or talk to anyone outside of his government, than we have reason to believe that we could give him what he want, access to our reality, under the full penalty of the law of course."
+
+"I think that discussion is over, though I disagree with your assessment. Let's move on. My superior agreed that we should be communicating with Swift's government. This will not be a CIA operation by any means, but we will provide support to the diplomatic corp, who had been preparing for all this time. There will need for research on the currency political environment..."
