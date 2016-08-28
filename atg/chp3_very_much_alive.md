@@ -35,12 +35,12 @@ O'Neil froze in disbelief. "I don't believe it."
 
 "No, it's not out of the realm of possibility. One time, Doctor Jackson somehow ended up in an alternate universe via the reality mirror before we got him out. But right now, I just don't believe it."
 
-It may be sheer improbability, but he cannot deny what he seen in front of his eyes, or what was coming from the rover. The problem was aligning his gut feeling with reality.
+It may be sheer improbability, but he cannot deny what he was seeing in front of his eyes, or what was coming from the rover. The problem was aligning his gut feeling with reality.
 
 
 ***
 
-Naturally, with an incident like this, General Hammond was called in.
+General Hammond was nearby, so it wasn't hard to call him in so that he can make decision about an upending crisis.
 
 "Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
 
