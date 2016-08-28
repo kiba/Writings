@@ -1,5 +1,6 @@
 # **Chapter Two: Aftermath**
 
+***
 **Colonel Jack O'Neill**
 **Stargate Command, SG-Earth**
 
