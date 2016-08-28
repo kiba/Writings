@@ -54,7 +54,7 @@ As he walked toward a guestroom he will be staying in, he realized how the futur
 
 Technology had clearly advanced, but it hasn't morphed into unrecognizable form.
 
-For Cromwell, it was also clear that the bedroom still looked and functioned the same as it did in nineteen ninety-eight. There were the closet, dresser, drawers and the mattress. If there were any technological changes for the past seventeen years, it was unnoticeable.
+For Cromwell, it was also clear that the bedroom still looked and functioned the same as it did in nineteen ninety-eight. There were the closet, dresser, drawers and the mattress, pillows, and so on. If there were any technological changes for the past seventeen years, it was unnoticeable.
 
 ***
 
