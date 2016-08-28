@@ -2,7 +2,7 @@
 
 ***
 **John Swift**
-**January, 16, 2015**
+**September 16, 2015**
 
 He could have lost all his money, most likely either during the financial crisis, or during the dot-com crash. At age thirty five, John Swift became a self-made billionaire.
 
