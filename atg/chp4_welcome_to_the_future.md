@@ -9,7 +9,9 @@ As John Swift stood in front of the stargate, Swift was still searching in his m
 
 Either he was hallucinating vividly or that he was really witnessing reality. For now he decided that it was the later rather than the former.
 
-Swift made a commitment some time ago to help the formerly fictional SGC with meeting with his government. To be able to do that, he announced that he was taking a sudden and long vacation. It wasn't something to be taken lightly, but it wasn't hard either. It was like a childhood dream come true. Recently, the SGC requested for a place to stay and set up operation. Swift obliged.
+Swift made a commitment some time ago to help the formerly fictional SGC with meeting with his government. To be able to do that, he announced that he was taking a sudden and long vacation. Helping out the SGC wasn't something to be taken lightly at all, but it wasn't hard either. It was more like a childhood dream come true, a fulfillment of a fantasy, even if it became more like a responsibility.
+
+So when the SGC requested for a place to stay and set up operation, Swift quickly obliged.
 
 Swift took a look at his phone. It was eight AM sharp. Then the gate's inner ring started moving. There's going to be a gate connection.
 
