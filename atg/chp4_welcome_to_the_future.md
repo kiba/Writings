@@ -71,27 +71,55 @@ There were also cardboards and packages strewn around, and new laptops.
 "Naturally, I expect some compensation," Swift said. "My time is expensive, but, I am not going to sucker every dimes and pennies to make a quick buck. I have enough of bullshit. I don't think I need to skewer the SGC for more of their precious resources. Now, let me get this show on the road and show you how to purchase things on the internet."
 
 ***
-**General Hammond**
+**General George Hammond**
 **SGC, SG-Earth**
+**September 24, 1998**
 
-It was easy to satisfy John Swift's requirement. There was already a process for creating identities for aliens which was in turn ripped from the US marshall's witness protection program. Creating a new one for John Swift was completely identical.
+If anything that made Stargate Command unique, it was the fact that the organization was responsible for everything from basic science research, archaeological digs, cultural outreach, espionage and stabotage, direct strike missions, and diplomatic mission.
 
-The CIA officer who was meeting with him was not the slightest amused.
+There was no way that General George Hammond could manage this alone. He didn't have the skillset nor wanted to handle such a dizzingly array of concerns. That meant delegation. Carter and Jackson both respectively head their own scientific department, while O'Neill handles military training and oversee special operation teams assigned here.
 
-"General, I thought we were already constraining the amount of aliens who are allowed access to outside of this base," Kerry Johnson, the CIA liaison to Stargate Command said.
+Some delegation were ordered from the higher ups. One of them, CIA Station Chief Andrew Brewster was meeting with him today in his office. Hammond didn't so much give orders, but cooperate with the chief on intelligence matters, but mostly left him to his own device to manage SGC's growing spy network.
 
-"I assured you that it was done in the view that gaining access to his government would be extremely valuable. He seemed willing to cooperate with us."
+"I trust that you have no problem with the deal I made with the billionaire John Swift?" Hammond questioned.
 
-"Couldn't you just give him gold and precious metals to gain his cooperation?"
+"No, general," Brewster said. "As you rightfully pointed out, we have no choice but to trust him to keep the stargate a secret from the public. If he can keep his end of the bargain, we'll create a false identity for him. Of course we'll have the full weight of the law on him once he's on this side."
 
-"He had an argument against that one. Gold is not valuable when they will be common in the future. If anything, he wanted naquadah and trinium. Naturally of course, I said no."
+"If he's not playing a long-con with us and that any punishment we may exact him doesn't scare him."
 
-Johnson frown. "This alien-"
+"There's a risk that he will reveal the secrets if we don't keep our end of the bargain."
 
-"An American," Hammond insisted. "He is as American as you and I."
+"Then as far as we're concerned, we're done with him."
 
-"That may be true, General, but not every citizen is capable of or should be trusted with secrets.."
+"We'll still need to monitor this man's disposition to see how they change, but that's it."
 
-"In that case, we have no choice but to trust him on his honor. If he didn't leak anything or talk to anyone outside of his government, than we have reason to believe that we should honor the other end of our bargain, access to our reality, under the understanding that he will be held to the same standard as you and I."
+"Let's move on to the next topic. I asked you to provide a plan on how to contact his government."
 
-"I think that discussion is over, though I disagree with your assessment. Let's move on. My superior agreed that we should be communicating with Swift's government. This will not be a CIA operation by any means, but we will provide support to the diplomatic corp, who had been preparing for all this time. There will need for research on the currency political environment..."
+The greying man cleared out his throat, before handling him the folder. "I believe this will be mostly a diplomatic operation, rather than an intelligence one, but it still require our expertise in planning covert operation. The overall plan is as followed, our diplomatic envoy will deliver himself to a military base, which will get him arrested. In a briefcase are all select classified materials that will prove our story. The envoy himself with a double of the one that existed on their Earth."
+
+"By classified materials? If they don't believe it, then something might happen that the materials will be released to the public."
+
+"It's a calculated risk. My analysts will select materials that will be of interest to that government yet not pose a dangerous threat to national security if exposed. The president will be giving his own take. If it's a GO, then we'll execute the plan."
+
+"I understand. When will I expect this to be done?"
+
+"Three weeks is the deadline. "
+
+***
+**Colonel Frank Cromwell**
+**Hawthrone, Infopunk-Earth**
+**September 25, 2015**
+
+There was no cable nor a landline in the house. According to his host, it was outdated. Even in a timeline seventeen years in advanced, Swift reveled on living in the future, just one that was unevenly distributed.
+
+Cromwell eventually turned to the the glowing screen of a newly purchased laptop. That connected to the internet, a network more powerful and captivating than it was in nineteen ninety-eight. In his downtime, he browsed the web like a zombie, subsisting on various media such as books and videos, though he didn't care much for some aspects of the internet. "What do people use?" he would say. The billionaire would reply a number of things that young people use that Swift himself cared not to use.
+
+Of course, there were also work to be done for SGC. It was never in Cromwell's nature to be completely useless or lazy, even if he has to fly a desk. Luckily, homework were provided. Doctor Jackson saw fit to provide a daily questionnaire from his department. O'Neill wanted him to buy all the books on the war on terror, as well as the war in Iraq, Afghanistan, and Syria. Carter did tried to give him homework, but it became quickly clear that Cromwell wasn't well versed in that field, so it was dropped.
+
+A light flickered on, lighting the workspace that was the dinning room. Cromwell knew who was in the house from the moment that the garage door opened. An home automation app notified him of that.
+
+"Colonel? You're still sitting there the last time I left," Swift said.
+
+"Yes?"
+
+"Never mind."
