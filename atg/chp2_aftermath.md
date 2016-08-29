@@ -4,7 +4,7 @@
 **Colonel Jack O'Neill**
 **Stargate Command, SG-Earth**
 
-After a well deserved slept-in and a few days off, Colonel Johnathan 'Jack' O'Neill found himself back in familiar routine, standing outside one of his teammate's office.
+After a well deserved slept-in and a few days off, Colonel Johnathan 'Jack' O'Neill was back in a familiar routine, standing just outside a teammate's office.
 
 He knocked on the door.
 
@@ -18,7 +18,7 @@ He knocked on the door.
 
 "Right errr...let me find my Goa'uld worksheet."
 
-It would be very convenient if the galaxy at large spoke English for his team's benefit. Alas, his team has yet to come across a universal language translator to reverse engineer it from. At least the galaxy at large do speak a lingua franca, which is Goa'uld. Which means that Teal'c and Jackson can interact with the locals. The only problem with that language is that you can be sure that some kooky Goa'uld overlord had influenced that particular gate address in some way or fashion, frequently in a traumatizing sort of way. Unless they're tok'ra. Tok'ra are the good guys. That's more of an exception.
+It would be very convenient if the galaxy at large spoke English for his team's benefit. Alas, his team never found a universal language translator to reverse-engineer nor did anyone actually spoke English. At least the galaxy at large do speak a lingua franca, which is Goa'uld. Which means that Teal'c and Jackson can interact with the locals. The only problem with that language is that you can be sure that some kooky Goa'uld overlord had influenced that particular gate address in some way or fashion, frequently in a traumatizing and tyrannical manner. Unless they're tok'ra. Tok'ra are the good guys, but they're the exception to the rule.
 
 To increase the field efficacy and efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld, not that it was any particularly new to O'Neill. Throughout his military career, more specifically, special operation, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
 
