@@ -34,7 +34,7 @@ After waiting several minutes or so, the archaeologist found the team's homework
 
 The doctor shrugged.
 
-At least the worksheet weren't the feel good bullshit mandated by bureaucrats, or god forbidden, [i]congress[/i]. There was a reason all these years that he tried to stay retired until some evil snakehead invaded Cheyenne mountain.
+At least the worksheet weren't the feel good bullshit mandated by bureaucrats, or god forbidden, [i]congress[/i]. There was a reason why he retired and tried to stay retired. Of course, an evil snakehead decided to invade Cheyenne mountain.
 
 "Doctor, just print the god damn worksheet the next time," O'Neill said.
 
@@ -51,9 +51,9 @@ At least the worksheet weren't the feel good bullshit mandated by bureaucrats, o
 
 As a precaution, General Hammond shut down gate explorations until further notice after the near disastrous black hole incident. An incident review procedure was initialized, and an independent team took charge of the investigation. They interviewed everyone and everything, performed root cause analysis, and made a number of recommendations for SGC to implement. Then there were the debriefing with the higher-ups. Finally, changes was made to SGC's standard operating procedures to never let this happen again.
 
-The black hole may be extremely rare, but it almost engulfed Stargate Command and maybe Earth as well. To march on forward pretending that it never happened. That was unacceptable. Public opinion would torn Stargate Command and its personnel apart.
+It may be extremely rare to encounter a blackhole on any given gate address, but it almost engulfed Earth. To march on forward pretending that it never happened? That was unacceptable. Public opinion may not be in effect right now, but it would all later come out eventually. They would rightfully tear the reputation of SGC and its personnel apart.
 
-Captain Carter's own improvised solution became a ready-made solution and a new set of exercise. A shaped charge bomb became reserved for this type of incident as well as several components required for a successful denotation.
+Captain Carter's own improvised solution became a ready-made solution and a new set of exercises. A shaped charge bomb became reserved for this type of incident as well as several components required for a successful denotation.
 
 Pretty soon, Stargate Command personnels will be drilled so regularly so that the response will be delivered at the right time.
 
@@ -61,11 +61,11 @@ Still, that wasn't enough for Hammond. He authorized a new project out of SGC's 
 
 As a result of all of this, Carter found herself with boxes of electronics and equipment stacked in her office and a clipboard in her hands. She flew a fighter jet during Desert Shield and Desert Storm years ago, so the treasure trove of really expensive electronics made her only mildly nervous.
 
-There was no doubt in her mind that nobody would dare try to steal anything from her. Still, through a force of habit, Carter personally inventoried every single box herself.
+It was true that no SGC personnel would dare to steal anything from her, but it was instilled early in her military career that she should take serious responsibility for what she was entrusted with. Carter personally inventoried every single box herself.
 
 These are the latest cesium atomic clock. She came up with a proposal to tie the atomic clock to the SGC sensor grid and to the DHD supercomputer to act as an early warning system for faster than normal time dilation, the kind that would portent a black hole that's too near.
 
-Physics wise, it shouldn't be anything out of her depth. Einstein's theory of relativity came into play, but not hyperspace, faster than light, or subspace. Any of those concepts would give her a  huge headache any time of the day, and she was one of the best of her generation.
+Physics wise, it shouldn't be anything out of her depth. Einstein's theory of relativity came into play, but not hyperspace, faster than light, or subspace or any exotic concepts that was previously science fiction. Any of those concepts would give her a huge headache any time of the day, and she was one of the best of her generation. She was glad it was just relativity.
 
 There was a knock on the door.
 
@@ -75,7 +75,7 @@ There was a knock on the door.
 
 "I'll be there in a minute. Just need to check one last box off."
 
-When she was done, she joined the rest of SG-1 at a local resturant.
+When she was done, she joined the rest of SG-1 at a local restaurant.
 
 ***
 
@@ -112,7 +112,7 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 
 It was the lounge, the only room to hang out downstair of NORAD, and it was small too. Still, Major Charles Kawalsky appreciated it all the same for the downtime it represented.
 
-"And then Doctor Jackson got married again!" Charles Kawalsky reminisced. His squadmates and himself laughed at that memory of cultural misunderstanding. In the expedition to Abydos, Jackson did get married to the local chief's daughter based on that misunderstanding before O'Neil blew up Ra's spaceship and started a galactic-scale civil war.
+"And then Doctor Jackson got married again!" Charles Kawalsky reminisced. His squadmates and himself laughed at that memory of cultural misunderstanding. Although, Jackson did genuinely get married in the first expedition to Abydos. It was initially a misunderstanding that grew into true love. That wasn't the case for other missions, especially since he was still searching for his wife.
 
 "Seriously, why did Doctor Jackson gets all the girls? We soldiers are supposed to be getting the girls?" Sergeant Warren asked.
 
@@ -124,7 +124,7 @@ There were a sudden chill in the room as the grim realization set in.
 
 "You think our luck will hold?" Sergeant Avery Casey wondered.
 
-"It will have to," Kawalsky answered. SG-1 was the flagship team, but also the most dangerous team to be on, given their worse than rotten luck. Given those luck, it was already the most storied and legendary team in the hall of Stargate Command.
+"It will have to," Kawalsky answered. SG-1 was the flagship team, but also the most dangerous team to be on, given their worse than rotten luck. As a result, it was already the most storied and legendary team in the hall of Stargate Command.
 
 "You know what I wish for? Power armor," Specialist Ben Pierce said. "With lot of armor plates, and the ability to leg it as fast as possible. We got power with all the naquadah cells sitting unused in staff weapons stored at our armory."
 
@@ -168,7 +168,7 @@ Of course, even under those weeks, SGC never really slept, as there were always 
 
 Now, he was in the operation room with the rest of SG-1, watching Chief Master Sergeant Harriman dialed a completely new address.
 
-If there's a connection, the standard operating procedure would be to send in a rover, check things out. See if it's possible to breathe. Only then would SG-1 embark on a new mission into the unknown.
+If there's a connection, the standard operating procedure would be to send in a rover, check things out. See if it's possible to breathe or if there are hostiles. Only then would SG-1 embark on a new mission into the unknown.
 
 "And we have a connection!" Harriman said in excitement. "Commencing operation."
 
