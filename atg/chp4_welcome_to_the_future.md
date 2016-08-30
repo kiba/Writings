@@ -112,16 +112,46 @@ The greying man cleared out his throat, before handling him the folder. "I belie
 **Hawthrone, Infopunk-Earth**
 **September 25, 2015**
 
-There was no cable nor a landline in the house. According to his host, it was outdated. Even in a timeline seventeen years in advanced, Swift reveled on living in the future, just one that was unevenly distributed.
+The future wasn't only defined by what's there, but also what's missing. A common form of reference between nineteen ninety-eight and two thousand fifteen was the television. The device was much flatter, while providing greater clarity and resolution. However, the biggest change was the programming. The owner of the house declined to get any cable at all, instead subscribing to services like 'youtube' and 'netflix'.
 
-Cromwell eventually turned to the the glowing screen of a newly purchased laptop. That connected to the internet, a network more powerful and captivating than it was in nineteen ninety-eight. In his downtime, he browsed the web like a zombie, subsisting on various media such as books and videos, though he didn't care much for some aspects of the internet. "What do people use?" he would say. The billionaire would reply a number of things that young people use that Swift himself cared not to use.
+Another change that Cromwell didn't expect was the disappearance of the landline. His host told him, that like cable, it was outdated. Instead, everyone carried 'smartphones', a mobile general purpose computing device that happened to be a phone.
 
-Of course, there were also work to be done for SGC. It was never in Cromwell's nature to be completely useless or lazy, even if he has to fly a desk. Luckily, homework were provided. Doctor Jackson saw fit to provide a daily questionnaire from his department. O'Neill wanted him to buy all the books on the war on terror, as well as the war in Iraq, Afghanistan, and Syria. Carter did tried to give him homework, but it became quickly clear that Cromwell wasn't well versed in that field, so it was dropped.
+Only later, Cromwell understood that not everyone cut out cable or their landline, but it was steadfastly becoming the case.
 
-A light flickered on, lighting the workspace that was the dinning room. Cromwell knew who was in the house from the moment that the garage door opened. An home automation app notified him of that.
+With 'limited' entertainment option, eventually turned to the the glowing screen of a newly purchased laptop and its connection to the internet. The internet of the future was far more captivating and rich than what was available in nineteen ninety-eight. In his downtime, he browsed the web like a zombie, subsisting on various media.
 
-"Colonel? You're still sitting there the last time I left," Swift said.
+Yet, there were some aspects that still mystified the airman. "What do people use?" he would say. The billionaire would supply a number of things that young people use that Swift himself cared not to use. To be honest, he didn't care about twitter or facebook either.
 
-"Yes?"
+The colonel didn't know how to think about this. Here was a man who reveled in 'living in the future' and 'forcefully creating the future', yet he completely failed to adopt certain technologies. Swift was a technophile until he wasn't. Maybe the technologist was stuck in past vision of the future?
 
-"Never mind."
+Whatever the case may be, he didn't come here to subsist on Swift's charity. It wasn't in the Colonel's nature to be completely useless or lazy, even if has to fly a desk. Luckily, SGC supplied him some homework. Doctor Jackson saw fit to provide a daily questionnaire and language worksheets from his department. O'Neill wanted him to buy and read books about the wars that this country's military had campaigned in since ninety-eight. Carter did tried to give him homework, but it became quickly clear that Cromwell wasn't well versed in that field, so it was dropped. Ditto for the medical department.
+
+That led him to spending countless hours on the laptop in Swift's dining room, reading and writing answers questions in word document, encrypting it, and saving it on a usb drive. Swift made it clear that there were surveillance on online email account, if not necessary by his own government, but certainly by corporations.
+
+A light flickered on. The billionaire was present, dressed in a business suit, looking a bit tired.
+
+"How's today, Colonel?" Swift asked.
+
+"Business as usual," the Colonel said. "Flying a desk is not my idea of 'fun'. I spent my career in special operation, in the field. At least the questions were intellectually interesting."
+
+"You had been reading about the wars in Iraq and Afghanistan," Swift noted.
+
+"It provided useful insight on how to conduct asymmetrical warfare. This is how we are going to fight and win against the Goa'uld, not with space guns that O'Neill is so fond of."
+
+"No starship enterprise?"
+
+"Oh, we'll still build starships, but we have to be realistic about confronting something much bigger than us. It's David versus Goliath."
+
+"In a way, that's how SGC conducted warfare in the series. We couldn't win in space, but we could win ground engagements."
+
+"I am not inclined to use fiction as evidence, Mr. Swift. But, yes, that's how we're doing it now."
+
+"On another topic, how do you feel about rocketry?"
+
+"I know you invested in a company that's trying to make rockets reusable."
+
+"Right. I can offer you an exclusive tour."
+
+"Excuse me? I think I know a profit motive when I see it."
+
+"It's true that I have something to gain from all of this," Swift said. "But there's no other company in the world that focused on advancing space travel."
