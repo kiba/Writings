@@ -18,11 +18,11 @@ He knocked on the door.
 
 "Right errr...let me find my Goa'uld worksheet."
 
-It would be very convenient if the galaxy at large spoke English for his team's benefit. Alas, his team never found a universal language translator to reverse-engineer nor did anyone actually spoke English. At least the galaxy at large do speak a lingua franca, which is Goa'uld. Which means that Teal'c and Jackson can interact with the locals. The only problem with that language is that you can be sure that some kooky Goa'uld overlord had influenced that particular gate address in some way or fashion, frequently in a traumatizing and tyrannical manner. Unless they're tok'ra. Tok'ra are the good guys, but they're the exception to the rule.
+It would be very convenient if the galaxy at large spoke English for his team's benefit. Alas, his team never found a universal language translator to reverse-engineer nor did anyone actually spoke English. At least the galaxy at large do speak a lingua franca, which is Goa'uld. That usually means that Teal'c and Jackson can interact with the locals. The only problem with that language is that you can be sure that some kooky Goa'uld overlord had influenced that particular gate address in some way or fashion, frequently in a traumatizing and tyrannical manner. Unless they're tok'ra. Tok'ra are the good guys, but they're the exception to the rule.
 
-To increase the field efficacy and efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld, not that it was any particularly new to O'Neill. Throughout his military career, more specifically, special operation, he was always learning the languages of allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
+To increase the field efficacy and efficiency of stargate exploration teams, it became a staple of the local learning curriculum to learn Goa'uld, not that language learning was particularly new to O'Neill. Throughout his military career, more specifically, special operation, he was always learning the languages of his country's allies, like German, and sometime the enemies as well, such as Russian. His time at this command was no exception.
 
-But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find homework.
+But god damn it! This man needed to be better organized. The good doctor was still ruffling through the mess to find his homework.
 
 After waiting several minutes or so, the archaeologist found the team's homework. He handed O'Neill a copy.
 
@@ -34,13 +34,13 @@ After waiting several minutes or so, the archaeologist found the team's homework
 
 The doctor shrugged.
 
-At least the worksheet weren't the feel good bullshit mandated by bureaucrats, or god forbidden, [i]congress[/i]. There was a reason why he retired and tried to stay retired. Of course, an evil snakehead decided to invade Cheyenne mountain.
+At least the worksheet weren't the feel good bullshit mandated by bureaucrats, or god forbidden, [i]congress[/i]. There was a reason why he retired and tried to stay retired. Of course, an evil snakehead had to invade Cheyenne mountain, forcing him out of retirement.
 
 "Doctor, just print the god damn worksheet the next time," O'Neill said.
 
 "I have a system," the doctor said defensively. "And it's a waste of money and paper to just print like that."
 
-"In case you didn't notice, you are no longer a poorly paid humanity professor. You provide actionable intelligence day in day out on a daily basis which not only helped this team survive the many incidents, but also saved Stargate Command several times. A nickel or whatever it is, isn't going to hurt your six figures income plus tax-free hazard pay and medical benefits."
+"In case you didn't notice, you are no longer a poorly paid humanity professor. You provide actionable intelligence day in day out on a daily basis which not only helped this team survive the many incidents we found ourselves in, but also saved Stargate Command several times. A nickel or whatever it is, isn't going to hurt your six figures income plus tax-free hazard pay and medical benefits."
 
 "OK. Fine. Whatever, I'll print the damn thing next time."
 
@@ -112,7 +112,7 @@ O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We'r
 
 It was the lounge, the only room to hang out downstair of NORAD, and it was small too. Still, Major Charles Kawalsky appreciated it all the same for the downtime it represented.
 
-"And then Doctor Jackson got married again!" Charles Kawalsky reminisced. His squadmates and himself laughed at that memory of cultural misunderstanding. Although, Jackson did genuinely get married in the first expedition to Abydos. It was initially a misunderstanding that grew into true love. That wasn't the case for other missions, especially since he was still searching for his wife.
+"And then Doctor Jackson got married again!" Charles Kawalsky reminisced. His squadmates and himself laughed at that memory of cultural misunderstanding. Although, Jackson did genuinely get married in the first expedition to Abydos. That particular misunderstanding actually grew into true love. That wasn't the case for other missions, especially since he was still searching for his wife.
 
 "Seriously, why did Doctor Jackson gets all the girls? We soldiers are supposed to be getting the girls?" Sergeant Warren asked.
 
