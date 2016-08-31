@@ -91,7 +91,7 @@ His opponents rushed the Jaffa as soon as they began. The First Prime grabbed th
 
 He soon made quick work of the rest of his sparring partners, almost as if Teal'c was in a martial art movie. Finally, with all five airmen scrawling on the ground, Teal'c bowed.
 
-Polite applause came. By then, the Tau'ri were used to this display of skills of a nearly century old warrior.
+Polite applause came. By then, the Tau'ri were used to this display of skills of a nearly century old warrior. Of course, his body was much stronger than the Tau'ri, as bred by his slavemasters, but he did not win this round based on his strength and bulk but through finesses. That was how he gained respect in this gym.
 
 "Anyone would like to try?" he asked the audience.
 
@@ -101,7 +101,7 @@ An hour passed by. Already, most of SG-1 were standing outside when Teal'c walke
 
 "How's class?" O'Neill asked.
 
-"Excellent as usual. Normal and routine," Teal'c appraised. "A Jaffa warrior is very difficult take on in melee combat, but I believed some of my students now have a fighting chance to stay alive."
+"Excellent as usual. Normal and routine," Teal'c appraised. "A Jaffa warrior is very difficult to take on in melee combat, but I believed some of my students now have a fighting chance to stay alive."
 
 O'Neill smiled. "I am glad we aren't totally outmuscled in that department. We're going to go to a diner nearby for lunch. Want to come with us?"
 
