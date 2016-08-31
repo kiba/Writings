@@ -109,7 +109,7 @@ The greying man cleared out his throat, before handling him the folder. "I belie
 
 ***
 **Colonel Frank Cromwell**
-**Hawthrone, Infopunk-Earth**
+**Hawthorne, Infopunk-Earth**
 **September 25, 2015**
 
 The future wasn't only defined by what's there, but also what's missing. A common form of reference between nineteen ninety-eight and two thousand fifteen was the television. The device was much flatter, while providing greater clarity and resolution. However, the biggest change was the programming. The owner of the house declined to get any cable at all, instead subscribing to services like 'youtube' and 'netflix'.
