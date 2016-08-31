@@ -144,7 +144,7 @@ Suddenly, the motion sped up rapidly.
 
 The next thing he knew, he awoke entangled in the bodies of two other men.
 
-United States Air Force Colonel and Gulf War veteran Frank Cromwell groaned in absolute agony, his body feeling the aftermatch of striking two men and colliding into a wooden wall.
+United States Air Force Colonel and Gulf War veteran Frank Cromwell groaned in absolute agony, his body feeling the aftermath of striking two men and colliding into a wooden wall.
 
 It took a minute to register before he came to a conclusion.
 
