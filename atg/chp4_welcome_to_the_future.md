@@ -134,24 +134,26 @@ A light flickered on. The billionaire was present, dressed in a business suit, l
 
 "Business as usual," the Colonel said. "Flying a desk is not my idea of 'fun'. I spent my career in special operation, in the field. At least the questions were intellectually interesting."
 
-"You had been reading about the wars in Iraq and Afghanistan," Swift noted.
+"You have been reading about the wars in Iraq and Afghanistan," Swift noted.
 
-"It provided useful insight on how to conduct asymmetrical warfare. This is how we are going to fight and win against the Goa'uld, not with space guns that O'Neill is so fond of."
+"It provided useful insight on how to conduct asymmetrical warfare. We cannot hope to stand up to the Goa'uld in a straight fight."
 
 "No starship enterprise?"
 
 "Oh, we'll still build starships, but we have to be realistic about confronting something much bigger than us. It's David versus Goliath."
 
-"In a way, that's how SGC conducted warfare in the series. We couldn't win in space, but we could win ground engagements."
+"Isn't that how we won the war against the Goa'uld in the series?"
 
-"I am not inclined to use fiction as evidence, Mr. Swift. But, yes, that's how we're doing it now."
+"I am not inclined to use fiction as evidence, Mr. Swift, even ignoring the cases of deus ex machina being used repeatedly to solve problems."
 
-"On another topic, how do you feel about rocketry?"
+"I heard your SG-1 is a bit like the series' SG-1."
 
-"I know you invested in a company that's trying to make rockets reusable."
+The colonel chuckled. "It's certainly the legendary team. But they're nowhere as unprofessional or as heroic as in the show. In our line of business, we considered 'heroic' bad. How many time do you want to risk Earth almost dying before saving the day?"
 
-"Right. I can offer you an exclusive tour."
+"Aren't you the guy who got sucked in by a blackhole?"
 
-"Excuse me? I think I know a profit motive when I see it."
+"See why 'heroic' are bad? You might get a really shiny medal for your effort, but it's likely that you will also end up in the ground."
 
-"It's true that I have something to gain from all of this," Swift said. "But there's no other company in the world that focused on advancing space travel."
+"Will you get one?"
+
+There was a pause before Cromwell answered. "I never thought about it until now, but I am not going to lie to you. I like to be acknowledged for what I accomplished. Who wouldn't? However, I am not going to let anything like that gets to my head. My reward is an Earth that's still not swallowed by a blackhole, and all the people on it. Will I get one? Probably, but not before SG-1."
