@@ -37,6 +37,8 @@ A special operator in the United States Air Force, he has decade of experience i
 
 Leader of SG-1 and a member of the United States Air Force.
 
+### CIA Deputy Directory Bruke Pigeon
+
 ### CIA Analyst Casey Martin
 
 A new analyst with a degree in physics. His first project was to analyze a science fiction series known only as Stargate.
