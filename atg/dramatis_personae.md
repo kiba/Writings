@@ -34,3 +34,5 @@ A special operator in the United States Air Force, he has decade of experience i
 * Gender: Male
 
 ### Colonel Johnathan 'Jack' O'Neil
+
+Leader of SG-1 and a member of the United States Air Force. 
