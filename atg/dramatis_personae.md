@@ -37,6 +37,12 @@ A special operator in the United States Air Force, he has decade of experience i
 
 Leader of SG-1 and a member of the United States Air Force.
 
+### Doctor Daniel Jackson
+
+### Captain Samantha Carter
+
+### Teal'c
+
 ### CIA Deputy Directory Bruke Pigeon
 
 ### CIA Analyst Casey Martin
