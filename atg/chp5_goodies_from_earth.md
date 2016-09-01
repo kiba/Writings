@@ -1,4 +1,4 @@
-# Chapter Five: Analysis
+# Chapter Five: Goodies from Earth
 
 ***
 **Captain Michael Griff**
