@@ -14,3 +14,4 @@ ALL timeline events will be noted in infopunk dates.
 September 16, 2015 - Frank Cromwell came out of a wormhole connection made by the stargate.
 September 17, 2015 - Cromwell meet with SG-1 and General Hammond.
 September 22, 2015 - Cromwell visit infopunk-Earth and elected to stay at Swift's residence.
+September 28, 2015 - Goods from Infopunk-Earth were delivered to Stargate-Earth and distributed.
