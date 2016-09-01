@@ -32,6 +32,7 @@ However, once he took it back to his lab and tried to start using it, he realize
 ***
 **Analyst Casey Martin**
 **CIA headquarter, SG-Earth**
+**September 30, 1998**
 
 Analyst Casey Martin wasn't sure what to expect. He spent four years getting a bachelor degree in physics, expecting to work in the industry doing something. Instead he landed a job in the CIA.
 
