@@ -28,7 +28,7 @@ A renown hard science fiction author that accompanied Swift to the warehouse tha
 
 ### Colonel Frank Cromwell
 
-A special operator in the United States Air Force, he has decade of experience in wide variety of environment, conducting special operations and highly sensitive missions against America's adversaries. He was tapped to lead the quick reaction force at Stargate Command after some unfortunate incidents inside the base. Since there was already a funeral, it became difficult for Stargate Command to backtrack and give him his own life back. Cromwell instead volunteered to become a liaison to infopunk-Earth.
+A special operator in the United States Air Force, he has decade of experience in wide variety of environment, conducting special operations and highly sensitive missions against America's adversaries. He was tapped to lead the quick reaction force at Stargate Command after some unfortunate incidents inside the base. He became missing in accident in the blackhole incident before landing on infopunk-Earth. Since there was already a funeral, it became difficult for Stargate Command to backtrack and give him his own life back. Cromwell instead volunteered to become a liaison to infopunk-Earth.
 
 * DOB: September 8, 1955.
 * Gender: Male
