@@ -77,3 +77,17 @@ But it dawn on them that all those 'characters' are actually real people, even t
 "A coverup for their program?" Aubrey May, a green hair woman with a bachelor in economic, speculated. Her hands were on the folder of a dead colonel named Frank Cromwell, who was in black ops. They looked into it between their bingewatching and found some inconsistency and irregularity, especially since he was stationed at "Deep Blue", the program for Deep Space Telemetry.
 
 "You think this is all real?" he wondered. "That there is really an alien artifact and a secret command devoted to it under NORAD?"
+
+"I don't think by any stretch of imagination that it's all real," Jake Wellington, an African-American analyst with a degree in sociology said. "But it's clearly based on our reality."
+
+"What the hell does that mean? If it's all real, why are we analyzing fictional nonsense instead of the real things?"
+
+"Forgive me, but I don't think the stargate is real. It's science fiction. It must be for an advanced research program."
+
+"That is?"
+
+The team argued around in circle, but no consensus were reached.
+
+***
+
+"Alright, you gathered enough evidence to notice something strange was going on," Pigeon said to a now stunned team now. "Yes, the stargate program is real. No, it's not a a hoax or a test. That fictional materials you are analyzing? It comes from an alternate reality. No, I can't tell you beyond that confirmation. Honestly, it's to keep you unbiased."
