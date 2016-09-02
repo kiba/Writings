@@ -39,17 +39,19 @@ Leader of SG-1 and a member of the United States Air Force.
 
 ### Doctor Daniel Jackson
 
-An archaeologist and linguistic expert.
+He lost his position at universities and laughed out of conference for his 'crackpot' theories before being recruited for the stargate project, which eventually lead to the formation of Stargate Command.
+
+An archaeologist and linguistic expert, as well also being a convenient polygot, he frequently served as translator for his team, as well helping them avoid cultural gaffe.
 
 ### Captain Samantha Carter
 
-Former air force pilot with a degree in physics.
+Former air force pilot with a degree in physics. She is one of the most brilliant physicist of her generation. Her skillset frequently proved surprisingly timely in situations that SGC found themselves in.
 
 ### Teal'c
 
-Former first prime of Apophis. 
+Former first prime of Apophis. He joined SGC and SG-1 in the hope of freeing his people and the galaxy at large from the rule of the Goa'uld, who he called, "false gods".
 
-### CIA Deputy Directory Bruke Pigeon
+### CIA Deputy Director Bruke Pigeon
 
 ### CIA Analyst Casey Martin
 
