@@ -30,21 +30,11 @@ After waiting several minutes or so, the archaeologist found the team's homework
 
 "I am not just that good at computers. When I was a professor, this is what I always do. Excuse me, I was simply a lecturer."
 
-"Daniel, I don't care about the excuses you make in the past. This is not good enough."
+"Daniel, I don't care about the excuses you make or how you organized your workspace, but I draw the line when it impacts me and the rest of the team. You're dragging down precious time we could be enjoying lunchtime together. Just print the damn thing next time."
 
-The doctor shrugged.
+"Fine," the doctor grumped.
 
-At least the worksheet weren't the feel good bullshit mandated by bureaucrats, or god forbidden, [i]congress[/i]. There was a reason why he retired and tried to stay retired. Of course, an evil snakehead had to invade Cheyenne mountain, forcing him out of retirement.
-
-"Doctor, just print the god damn worksheet the next time," O'Neill said.
-
-"I have a system," the doctor said defensively. "And it's a waste of money and paper to just print like that."
-
-"In case you didn't notice, you are no longer a poorly paid humanity professor. You provide actionable intelligence day in day out on a daily basis which not only helped this team survive the many incidents we found ourselves in, but also saved Stargate Command several times. A nickel or whatever it is, isn't going to hurt your six figures income plus tax-free hazard pay and medical benefits."
-
-"OK. Fine. Whatever, I'll print the damn thing next time."
-
-"Good..let's get the rest of the team."
+"Good, let's get the others."
 
 ***
 **Captain Samantha Carter**
