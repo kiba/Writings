@@ -48,7 +48,7 @@ The director's gaze turned over to the analysts.
 
 "Yes, sir," the analysts found themselves chorusing.
 
-"Good." The director then pointed to the pile of the material. "There are certain assumption and suspension of disbelief you have to make. Faster than light travel is possible. Time travel is possible. Otherwise, you will analyze the fictional material for any logical inconsistency, plot holes, mistakes in the story. You will build a database of characters, locations, planets, technologies, organizations, plot summary, and so forth. You analyze the fictional elements' connection with our reality, including any coincidence. Is there any questions?"
+"Good." The director then pointed to the pile of the material. "There are certain assumption and suspension of disbelief you have to make. Faster than light travel is possible. Time travel is possible. Otherwise, you will analyze the fictional material for any logical inconsistency, plot holes, mistakes in the story. You will build a database of characters, locations, planets, technologies, organizations, plot summary, and so forth. You analyze the fictional elements' connection with our reality, including any coincidence. You have my permission to bring in any non-classified open source materials that you see or find to the tune up to ten thousand dollars. I trust your group to use your money wisely. Then we will discuss why you need more money. Is there any questions?"
 
 "Sir, why are we analyzing fiction?" Martin meekly asked.
 
@@ -56,8 +56,24 @@ The director's gaze turned over to the analysts.
 
 "Are we allowed to contact whoever made it?" another analyst asked.
 
-"No, you cannot. I mean it absolutely that you cannot speak of this to anyone, not even to ask questions. Whatever go in this room, stay in this room."
+"No, you cannot. I mean it absolutely that you cannot speak of this to anyone, not even to ask questions. Whatever go in this room, stay in this room. Any more questions."
 
-"We can bring in books and other information, right?" Martin questioned.
+None were forthcoming.
 
-"Yes. You have my permission to bring in any non-classified open source materials that you see or find. You have my permission as a group up until ten thousand dollars. Then we will discuss why you need more money."
+The director started handing everyone a folder. "In this folder are a list of questions we expect you to answer, but not the only questions you will answer. Don't expect that answering these questions to mean that your work is over. I expect you to keep working until I say that you are done. If you have any questions, I will try to answer. If I can't, you know the default answer I gave you earlier. I expect to have something at the end of the day."
+
+Then he walked away before closing the door, leaving Casey Martin and the others on their own.
+
+"What we do now?" he said.
+
+***
+
+There was a futuristic television screen in front of them. He and the others didn't really question it. Instead, their workday consisted of binging through the episodes, making detailed and copious notes for each episode.
+
+But it dawn on them that all those 'characters' are actually real people, even the actors too. Sometime, they are really actors, sometime they have different career.
+
+"What are the fuck we watching?" Martin asked, as he looked over a folder about Deep Space Telemetry.
+
+"A coverup for their program?" Aubrey May, a green hair woman with a bachelor in economic, speculated. Her hands were on the folder of a dead colonel named Frank Cromwell, who was in black ops. They looked into it between their bingewatching and found some inconsistency and irregularity, especially since he was stationed at "Deep Blue", the program for Deep Space Telemetry.
+
+"You think this is all real?" he wondered. "That there is really an alien artifact and a secret command devoted to it under NORAD?"
