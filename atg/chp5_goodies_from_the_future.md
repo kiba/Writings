@@ -91,3 +91,11 @@ The team argued around in circle, but no consensus were reached.
 ***
 
 "Alright, you gathered enough evidence to notice something strange was going on," Pigeon said to a now stunned team now. "Yes, the stargate program is real. No, it's not a a hoax or a test. That fictional materials you are analyzing? It comes from an alternate reality. No, I can't tell you beyond that confirmation. Honestly, it's to keep you unbiased for as long as possible."
+
+***
+
+John Swift decided to throw in two hundred thousand dollars for the SGC, for which they will not be "billed." He said it's a charity contribution to what will be a galaxy changing force.
+
+For Cromwell, it kept the eggheads from the SGC at bay, preventing them from sending impassioned plea for which he could do nothing.
+
+"That's some pretty expensive kits I am buying on your credit card. I am worried that the media will get wind of it."
