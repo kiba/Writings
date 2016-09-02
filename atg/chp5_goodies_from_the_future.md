@@ -99,3 +99,5 @@ John Swift decided to throw in two hundred thousand dollars for the SGC, for whi
 For Cromwell, it kept the eggheads from the SGC at bay, preventing them from sending impassioned plea for which he could do nothing.
 
 "That's some pretty expensive kits I am buying on your credit card. I am worried that the media will get wind of it."
+
+"Don't worry, they will just think I am an eccentric billionaire. After all, I audaciously funded a space lunch provider."
