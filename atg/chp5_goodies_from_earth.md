@@ -90,4 +90,4 @@ The team argued around in circle, but no consensus were reached.
 
 ***
 
-"Alright, you gathered enough evidence to notice something strange was going on," Pigeon said to a now stunned team now. "Yes, the stargate program is real. No, it's not a a hoax or a test. That fictional materials you are analyzing? It comes from an alternate reality. No, I can't tell you beyond that confirmation. Honestly, it's to keep you unbiased."
+"Alright, you gathered enough evidence to notice something strange was going on," Pigeon said to a now stunned team now. "Yes, the stargate program is real. No, it's not a a hoax or a test. That fictional materials you are analyzing? It comes from an alternate reality. No, I can't tell you beyond that confirmation. Honestly, it's to keep you unbiased for as long as possible."
