@@ -6,6 +6,7 @@ Arc One: Meeting of People - SGC meets a billionaire and a sci-fi author.
 Arc Two: Meeting of Worlds - 'First contact' made with 2016-Earth
 Arc Three: Cooperation - The two worlds collaborate with each other, strengthening SGC.
 Arc Four: Under Fire - SG-1 must survive an ambush and search set up by Hathor's warriors while SGC works to rescue them.
+Arc Five: Starship Captured - In a daring raid concurrent with the ambush, Earth commandos captured a goa'uld mothership from Hathor and killed the queen in the process. 
 
 timeline:
 
