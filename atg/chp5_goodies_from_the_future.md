@@ -93,11 +93,37 @@ The team argued around in circle, but no consensus were reached.
 "Alright, you gathered enough evidence to notice something strange was going on," Pigeon said to a now stunned team now. "Yes, the stargate program is real. No, it's not a a hoax or a test. That fictional materials you are analyzing? It comes from an alternate reality. No, I can't tell you beyond that confirmation. Honestly, it's to keep you unbiased for as long as possible."
 
 ***
+**Colonel Frank Cromwell**
+**Swift's residence, Infopunk-Earth**
 
-John Swift decided to throw in two hundred thousand dollars for the SGC, for which they will not be "billed." He said it's a charity contribution to what will be a galaxy changing force.
+With all fifty thousand dollars spent, there was nothing for the colonel to do procurement wise. Still, that didn't prevent researchers from sending him impassioned flee to purchase this or that. Truth be said, laboratory equipment can get really expensive, and fifty thousand dollars can only buy so much.
 
-For Cromwell, it kept the eggheads from the SGC at bay, preventing them from sending impassioned plea for which he could do nothing.
+Swift wasn't that generous, although he acknowledge that stargate program needed everything it can get. It wasn't that urgent, he said. Once the deal on the other side of the gate was held up, he will do everything he can help both Earth.
 
-"That's some pretty expensive kits I am buying on your credit card. I am worried that the media will get wind of it."
+Recently, SGC sent just one personnel over, an anthropologist, to stay at Swift's residence. Cromwell no longer have to answer questions from Jackson's department. It was her job now.
 
-"Don't worry, they will just think I am an eccentric billionaire. After all, I audaciously funded a space lunch provider."
+Still, Cromwell found other things to occupy his mind with. Like how the hell a presumably fictional device end up being real in Swift's universe? That was one of Cromwell's responsibility when he discussed his new job with Hammond.
+
+"What does he look like?" Cromwell asked the billionaire.
+
+"Well..ummm..I am drawing a blank," Swift said.
+
+Cromwell groaned in frustration. Every lead or receipt ended up with nothing. There was absolutely no proof. Yet, he felt that Swift wasn't lying. Something or somebody put the stargate there, whether that was in the deep past or just recently.
+
+"So not only you don't know what his name is, but you don't know what he look like either."
+
+"I swear! I know!" Swift protested.
+
+"Look, I believe you. But right now, there's some sort of black hole regarding any documentation on the stargate device, but there's documentation for everything."
+
+"So what's next then?"
+
+"I don't know. An MRI? Somebody might messed with your brain."
+
+Swift didn't look a bit happy about that. "I dislike the idea of someone noodling around my brain and my life."
+
+"Somebody already did with your life. I am just trying to help you out. Otherwise, if we can't find anything on this device, it might as well an act of god."
+
+"From the ascended beings? Connecting a gate to another reality?"
+
+"It may be well 'God did it' is the answer, but I would like to see evidence for that."
