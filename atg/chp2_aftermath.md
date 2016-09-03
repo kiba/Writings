@@ -4,7 +4,11 @@
 **Colonel Jack O'Neill**
 **Stargate Command, SG-Earth**
 
-After a well deserved slept-in and a few days off, Colonel Johnathan 'Jack' O'Neill was back in a familiar routine, standing just outside a teammate's office.
+He nearly died again, this time against a force of nature known as black holes. O'Neill liked black holes. He thought it was really cool, until he was too close to its gravitational well for comfort. Black holes are best admired far away.
+
+In any case, SGC was shut down afterward. So he went home.
+
+After a well deserved slept-in and a few days off, Colonel Johnathan 'Jack' O'Neill was back again in a familiar routine, standing just outside a teammate's office.
 
 He knocked on the door.
 
