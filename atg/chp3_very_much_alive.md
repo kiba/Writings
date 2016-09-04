@@ -44,19 +44,21 @@ It didn't take long for General Hammond to get to the control room. His office w
 
 "Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
 
-"Yes, you heard that right."
+"Yes, I believe that's about right," Cromwell affirmed.
 
-"The probability of encountering such a reality is incredibly low," Carter said. "Although we still have no theories on how to cross one."
+"The probability of encountering such a reality is incredibly low," Carter said. "To be the same in all the ways except that we are a science fiction series? It's far more likely that we would encounter a reality very similar to ours but just a tiny different. Even though that parallel realities posited by the many-world interpretation of quantum mechanics, we still have no working theories on how to actually cross one."
 
-"And now we have verification of a method how to cross one," Hammond conjectured.
+"And now we have verification of a method how to cross one," Hammond conjectured. "Aside from the reality mirror that was destroyed."
 
 "Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have less than forty-eight minutes before the gate shut down."
 
-"I doubt we can do anything under incredible time constraint. If it comes to worst case scenario, Cromwell will still be considered missing in action if not dead."
+Hammond gritted his teeth. "If it come to the worst case scenario, Cromwell will be considered missing-in-action rather than dead."
+
+A man came into the screen.
 
 "I am a billionaire. I can arrange something for him for his stay on my Earth," an unidentified tall man spoken from the MALP. "Permanently if necessary."
 
-"Forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is no way to get him back. You have whatever left to chuck whatever is useful for him through the gate. Make it quick."
+"Thank you, but forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is no way to get him back. You have whatever time is left to chuck whatever is useful for him through the gate. Make it quick."
 
 "Yes, sir," SG-1 replied with a grimace.
 
