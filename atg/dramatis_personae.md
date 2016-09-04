@@ -41,7 +41,8 @@ Leader of SG-1 and a member of the United States Air Force.
 
 He lost his position at universities and laughed out of conference for his 'crackpot' theories before being recruited for the stargate project, which eventually lead to the formation of Stargate Command.
 
-He is an archaeologist, linguist, and polygot all in one. He served as the team translator and often cultural ambassador. 
+He is an archaeologist, linguist, and polygot all in one. He served as the team translator and often cultural ambassador.
+
 ### Captain Samantha Carter
 
 Former air force pilot with a doctor degree in physics. She is one of the most brilliant physicist of her generation. Her skillset frequently proved surprisingly timely in situations that the SGC found themselves in.
@@ -51,6 +52,8 @@ Former air force pilot with a doctor degree in physics. She is one of the most b
 Former first prime of Apophis. He joined SGC and SG-1 in the hope of freeing his people and the galaxy at large from the rule of the Goa'uld, who he called, "false gods".
 
 ### CIA Deputy Director Bruke Pigeon
+
+Bruke Pigeon is the CIA deputy director of the Special Analytic division as well being in the known about the stargate program. 
 
 ### CIA Analyst Casey Martin
 
