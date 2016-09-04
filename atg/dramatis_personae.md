@@ -41,11 +41,10 @@ Leader of SG-1 and a member of the United States Air Force.
 
 He lost his position at universities and laughed out of conference for his 'crackpot' theories before being recruited for the stargate project, which eventually lead to the formation of Stargate Command.
 
-An archaeologist and linguistic expert, as well also being a convenient polygot, he frequently served as translator for his team, as well helping them avoid cultural gaffe.
-
+He is an archaeologist, linguist, and polygot all in one. He served as the team translator and often cultural ambassador. 
 ### Captain Samantha Carter
 
-Former air force pilot with a degree in physics. She is one of the most brilliant physicist of her generation. Her skillset frequently proved surprisingly timely in situations that SGC found themselves in.
+Former air force pilot with a doctor degree in physics. She is one of the most brilliant physicist of her generation. Her skillset frequently proved surprisingly timely in situations that the SGC found themselves in.
 
 ### Teal'c
 
