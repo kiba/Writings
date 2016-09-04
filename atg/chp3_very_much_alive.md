@@ -6,13 +6,13 @@
 
 "My name is Colonel Frank Cromwell of the United States Air Force. Service number is...." the man on the screen recited.
 
-Surprise was part of the job at Stargate Command. Somehow that fact never really kept surprise from happening on a frequent basis.
+Surprise was part of the job at Stargate Command. That knowledge never really keep surprises from being surprises. This was one of them.
 
-He couldn't believe what he was seeing on the screen. There's a dead man on the opposite side of the wormhole speaking to the rover inside what appeared to be a copy of Stargate Command.
+He couldn't believe what he was seeing on the screen. There's a dead man on the opposite side of the wormhole. He was speaking to the rover inside what appeared to be a copy of Stargate Command.
 
 "Harriman, I need to speak with the Colonel," O'Neill ordered.
 
-"Understood sir," the technician replied, before flipping the switch on the microphone. "You can speak now, Colonel."
+"Yes sir," the technician replied, before flipping the switch on the microphone. "You can speak now."
 
 "This is Colonel Johnathan O'Neill of United States Stargate Command, it's good to see you."
 
@@ -28,20 +28,19 @@ Then he finally got to ask a burning question. "Say, why are you standing what l
 
 "I seen a lot of strange and unbelievable things at my time at Stargate Command."
 
-"Very well. It's not Stargate Command, it's a television set for a series about us. I am in an alternate universe where our missions and lives are a television show, and it's the year two thousand sixteen. Or so what I been led to believe."
+"Very well. It's not Stargate Command, it's a television set for a series about us. I am in an alternate universe where our missions and lives are a television show, and it's the year two thousand fifteen. Or so what I been led to believe."
 
-O'Neill froze in disbelief. "I don't believe it."
+O'Neill froze in disbelief. "That sounds unbelievable even for what we encounter on the job."
 
 "I could be delusional."
 
-"No, it's not out of the realm of possibility. One time, Doctor Jackson somehow ended up in an alternate universe via the reality mirror before we got him out. But right now, I just don't believe it."
+"No, I don't believe that your situation is out of the realm of possibility. One time, Doctor Jackson somehow ended up in an alternate universe via the reality mirror before we got him out."
 
 It may be sheer improbability, but he cannot deny what he was seeing in front of his eyes, or what was coming from the rover. The problem was aligning his gut feeling with reality.
 
-
 ***
 
-General Hammond was nearby, so it wasn't hard to call him in so that he can make decision about an upending crisis.
+It didn't take long for General Hammond to get to the control room. His office wasn't far from here.
 
 "Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
 
@@ -49,15 +48,15 @@ General Hammond was nearby, so it wasn't hard to call him in so that he can make
 
 "The probability of encountering such a reality is incredibly low," Carter said. "Although we still have no theories on how to cross one."
 
-"And now we have verification of a method how to cross one," Hammond said.
+"And now we have verification of a method how to cross one," Hammond conjectured.
 
-"Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have an hour of time before the gate shut down."
+"Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have less than forty-eight minutes before the gate shut down."
 
-"I doubt we can do anything under incredible time constraint. If it comes to worst case scenario, Cromwell will be considered missing in action again."
+"I doubt we can do anything under incredible time constraint. If it comes to worst case scenario, Cromwell will still be considered missing in action if not dead."
 
 "I am a billionaire. I can arrange something for him for his stay on my Earth," an unidentified tall man spoken from the MALP. "Permanently if necessary."
 
-"Forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is  way to get him back. You have whatever left to chuck whatever is useful for him through the gate. Make it quick."
+"Forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is no way to get him back. You have whatever left to chuck whatever is useful for him through the gate. Make it quick."
 
 "Yes, sir," SG-1 replied with a grimace.
 
@@ -65,11 +64,13 @@ General Hammond was nearby, so it wasn't hard to call him in so that he can make
 
 O'Neill didn't think whatever was chucked into the gate was going to help Cromwell much if any. If anything, the 'billionaire' is probably his friend's best bet.
 
+But he wasn't about to do absolutely nothing if he could do something.
+
 ***
 **Colonel Frank Cromwell**
-**Hawthrone, Infopunk-Earth**
+**Hawthorne, Infopunk-Earth**
 
-It wasn't long that an agreement was quickly made that Cromwell should go home, and with a macbook in his hand.
+It didn't take long for Cromwell to improvise, neither was it tough to get both men working with him to get him home. Although they insisted that Cromwell carry a laptop to return home with.
 
 "Ready?" John Swift said via radio.
 
@@ -77,7 +78,9 @@ It wasn't long that an agreement was quickly made that Cromwell should go home, 
 
 The wormhole connected.
 
-"You are good to go."
+"This is Cromwell. SGC, do you copy?" he radioed.
+
+"Copy. The iris is now open. You are free to proceed," the voice on the other side said.
 
 Cromwell walked boldly into the gate. Then, he suddenly saw people in hazmat suits.
 
@@ -88,7 +91,7 @@ He complied.
 ***
 **September 17, 1998**
 
-Cromwell was finally in the meeting room with SG-1 and General Hammond. He endured a twenty four hours isolation period, with stringent medical check by the the medical staff, and some hours before this meeting.
+Cromwell was finally in the meeting room with SG-1 and General Hammond. He endured a twenty four hours isolation period, with stringent medical check by the the medical staff, and a few hours of boredom before this meeting.
 
 There was a macbook in the middle of the desk. Everyone was staring at it.
 
@@ -96,9 +99,9 @@ There was a macbook in the middle of the desk. Everyone was staring at it.
 
 "Likewise."
 
-"I am happy to let you know that we reconnected with the alternate Earth repeatedly and that there's no problem going back and forth. Carter and her team still don't know how long the connection will last."
+"I am happy to let you know that we reconnected with the alternate Earth repeatedly and that there's no problem going back and forth. Carter and her team still don't know how long the connection will last, but it's looking like it's permanent."
 
-Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth and probably so did everyone else. That did not exclude the alternate Earth being a threat but it was low probability.
+Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth and probably so did everyone else. That did not exclude the alternate Earth being a threat but it was at low probability.
 
 "I believe everyone here viewed the science fiction series?" Cromwell asked.
 
@@ -138,7 +141,7 @@ Frank Cromwell approached his table with a cafeteria tray.
 
 "Forgiveness?"
 
-"Maybe not even that. If what you said is true, then there's nothing to forgive. You made a judgement call on that day, and it was wrong. Only weeks ago, you saved the world, so I can't exactly complained about being personally tortured in some forsaken Iraqi prison."
+"Maybe not even that. If what you said is true, then there's nothing to forgive. You made a judgement call on that day, and it was wrong. Only weeks ago, you saved the world, so I can't exactly complaine about being personally tortured in some forsaken Iraqi prison."
 
 "If I had to do it over again, I would drag you back to the helicopter."
 
@@ -156,11 +159,11 @@ It occurred to Frank Cromwell that the office of Major General Hammond was very 
 
 Cromwell could see the exasperated gesture exhibited by the general.
 
-"What am I going to do with you?" Hammond said.. "You know how much headache is when a SGC personnel come back from the dead? Luckily I didn't have to find out until now. Doctor Jackson was only gone a few hours before we retrieved him from an aquatic being. But you have been gone for a few weeks with all the ceremonies into play."
+"What am I going to do with you?" Hammond said.. "You know how much headache is when a SGC personnel come back from the dead? Luckily I didn't have to find out until now. Doctor Jackson was only gone a few hours before we retrieved him from an aquatic alien. But you have been gone for a few weeks. A funeral was already conducted and all the paperwork was done."
 
 "So this is going to be a problem."
 
-"Yes, a very big nasty problem. This is by no mean your fault, but coming from the dead plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?'. We're going to have to craft a very convincing story as to why. That would be easier if we were officially at war with someone else on this planet. Thankfully, we are not. "
+"Yes, a very big nasty problem. This is by no mean your fault, but coming from the dead plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?'. We're going to have to craft a very convincing story as to why. That would be a lot easier if we were officially at war with someone else on this planet. Thankfully, we are not. "
 
 "So, I am not going back to my old life."
 
@@ -168,7 +171,7 @@ Cromwell could see the exasperated gesture exhibited by the general.
 
 "Sir, wouldn't it be easier that it just wasn't going to happen? At least until a few years?"
 
-"You'll be stuck here in this base. There's no telling when we will reveal the program to the public"
+"You'll be stuck here in this base. There's no telling when we will reveal the program to the public."
 
 "In the television series, they never made stargate command public, even when they finally have the capability to manufacture the ships needed to defend Earth. It was all up to SG-1 to save the day again and again. I hope we are not going in that direction."
 
