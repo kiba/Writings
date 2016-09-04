@@ -127,3 +127,13 @@ Swift didn't look a bit happy about that. "I dislike the idea of someone noodlin
 "From the ascended beings? Connecting a gate to another reality?"
 
 "It may be well 'God did it' is the answer, but I would like to see evidence for that."
+
+***
+
+The billionaire was sitting in Fraiser's clinic in a medical grown. He wasn't sick, but Cromwell wanted him assessed. That included psychological testing as well to rule out any anomaly.
+
+"I am afraid that I can't find an anomaly," Fraiser said. "He got a clean bill of health, and the psychologist said that he's sound of mind as far as he can tell."
+
+"So no clues why I am blanking the seller of the stargate?" John Swift asked.
+
+Fraiser shook her head. "I wish I know."
