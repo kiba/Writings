@@ -72,19 +72,39 @@ But he wasn't about to do absolutely nothing if he could do something.
 **Colonel Frank Cromwell**
 **Hawthorne, Infopunk-Earth**
 
-It didn't take long for Cromwell to improvise, neither was it tough to get both men working with him to get him home. Although they insisted that Cromwell carry a laptop to return home with.
+There was no way for Cromwell to walk back home without first reconnecting from his side of the gate. He was warned that a reconnection might not work. There was no way to know. So, the SGC did the only thing they could do. They begun chucking survival kits, MREs, and weapons.
+
+"What we do now?" Swift asked.
+
+"I'll get the stuff sorted, but I want to be ready to reconnect as soon as possible."
+
+"You want to go home. I'll make sure that you go home."
+
+"Thanks."
+
+"But first, I want you have my laptop."
+
+"I am sorry?"
+
+"If your reality is anything like the stargate series, you guys have a tough road ahead. I can spare you a macbook."
+
+It wasn't long before Cromwell held a macbook in his hand. Stuff were still being chucked, but that wasn't important. If he was truly stuck in this place, he could organize it later.
+
+Then the gate shut down unceremoniously. Only for the gate to start rotating again.
+
+"Please step back far away from the hazard line, Colonel," Swift said. Cromwell compiled. Better to have extra margin then to die.
+
+The gate connected. It worked! He could finally go home!
 
 "Ready?" John Swift said via radio.
 
 "Copy that. I am ready," Cromwell said.
 
-The wormhole connected.
-
 "This is Cromwell. SGC, do you copy?" he radioed.
 
 "Copy. The iris is now open. You are free to proceed," the voice on the other side said.
 
-Cromwell walked boldly into the gate. Then, he suddenly saw people in hazmat suits.
+Cromwell walked into the gate. Then, he suddenly saw people in hazmat suits.
 
 "Follow me," one of them said.
 
