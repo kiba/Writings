@@ -99,3 +99,18 @@ Bruke stood up. "I will now answer that question for you," he said. "There were 
 Bruke paused, before continuing again, "The Stargate is a real alien artifact, and that Deep Space Telemetry is actually a cover program for Project Deep Blue." Then he picked up a DVD. "But this? It's a complete work of fiction that happens to coincide with ours. Now, I am still not going to tell you which is which, that would bias you, but what I will tell you is those DVDs came from the future from an alternate reality."
 
 "Shit" Martin echoed the thoughts of his teammate.
+
+***
+**Captain Samantha Carter**
+
+Constantly reconnecting to the gate for internet access was expensive, so it had to be timed with deliveries and exchange of personnels. That was only thirty-eight minutes long.
+
+So Samantha Carter circumvented that by going to the other side of the gate for a day and work in the faux Stargate Command television set instead, with the permission of her commanding officer, of course.
+
+It didn't take long for her to connect to wifi and load up her email account, all the while sitting in her faux workshop.
+
+Then she started a program on the command line to politely crawl the pre-print server for physics paper.
+
+Then she started on her emails. Thankfully, none of her communication would be considered 'classified', but she still had to confer with the brass beforehand. Hammond determined that it was worth the small risk of information leak. 
+
+Now, she found herself in animated conversations with physicists all over the world, none who know her identity.
