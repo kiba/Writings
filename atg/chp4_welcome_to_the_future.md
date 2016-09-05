@@ -54,7 +54,7 @@ Swift realized suddenly that his car didn't have a gearstick.
 
 So this was where he will be staying for the foreseeable future. For Swift's wealth, the house was rather modest. It was a standard fare typical three bedroom suburban home.
 
-As he walked toward a guestroom he will be staying in, he realized how the future didn't really change much. There were new and different cars, of course, but they still pollute and consume fossil fuel all the same. Even Swift's car, which ran on electricity wasn't all that different.
+As he settled in a questroom, he realized how much the future changed. There were new models of cars, of course, but they still pollute and consume fossil fuel all the same. Even Swift's electric car seemed more of a refinement than a revolution.
 
 Technology had clearly advanced, but it hasn't morphed into unrecognizable form.
 
@@ -62,13 +62,13 @@ For Cromwell, it was also clear that the bedroom still looked and functioned the
 
 ***
 
-When he arrived in the living room, there was a pizzabox on the coffee table, a sign that he was still in America, if in a different dimension altogether.
+When he arrived in the living room, there was a pizza box on the coffee table, a sign that he was still in America, if in a different dimension altogether.
 
 There were also cardboards and packages strewn around, and new laptops.
 
 "I know you guys asked for the ability to purchase stuff through me," Swift said. "For now, you'll have fifty-thousand dollars limit on what you can purchase, but no rifles or weapons or anything like that. I will be invoicing the expense incurred by ordering using my account to your government. Mainly, it won't be dollars per dollars exchange, but access to your world and the ability to spend some money there."
 
-"I already understood that you negotiated with my government like a good capitalist for consulting fee," Cromwell said. "Thankfully, it was not exorbitant compared to defense contractors. You're downright cheap."
+"You're downright cheap," Cromwell recalled. "At least compared to government contractors."
 
 "Naturally, I expect some compensation," Swift said. "My time is expensive, but, I am not going to sucker every dimes and pennies to make a quick buck. I have enough of bullshit. I don't think I need to skewer the SGC for more of their precious resources. Now, let me get this show on the road and show you how to purchase things on the internet."
 
