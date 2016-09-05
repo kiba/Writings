@@ -53,8 +53,8 @@ Former first prime of Apophis. He joined SGC and SG-1 in the hope of freeing his
 
 ### CIA Deputy Director Bruke Pigeon
 
-Bruke Pigeon is the CIA deputy director of the Special Analytic division as well being in the known about the stargate program. 
+Bruke Pigeon is the CIA deputy director of the Special Analytic division as well being in the known about the stargate program.
 
 ### CIA Analyst Casey Martin
 
-A new analyst with a degree in physics. His first project was to analyze a science fiction series known only as Stargate.
+A new analyst with a degree in physics. He was pulled from his department by Bruke Pigeon and was asked to analyze a body of fiction known as "Stargate SG-1".
