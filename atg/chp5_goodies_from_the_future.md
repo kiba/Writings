@@ -65,3 +65,37 @@ The director started handing everyone a folder. "In this folder are a list of qu
 Then he walked away before closing the door, leaving Casey Martin and the others on their own.
 
 "What we do now?" Martin wondered.
+
+***
+
+Marty, James, and Fionia; that's the name of his teammates. It didn't matter what their expertise were, because it didn't take half a brain to uncover anomalies in the material. For instance, it was impossible not to notice the resolution of the television screen. From there, there were no known models on the market resembling the screen.
+
+Case in point, by the end of the week, they were already making a presentation for the director, complete with a powerpoint presentation. As Casey Martin stood up to the podium. He sized up the director again.
+
+The director didn't look the least bothered by any of those anomalies. He read every report that was handed in. Was this a test? No it couldn't be. Bruke made it clear that he wasn't try to trick them, but he was holding back secrets.
+
+What kind of secrets lie behind Stargate SG-1? His team couldn't even begin to wonder.
+
+"You handed us an assignment to analyze a body of fiction," Casey Martin started. "But it was not any ordinary body of work."
+
+Bruke nodded as a confirmation.
+
+Martin clicked to the next slide on the projector.
+
+"Anomaly One: The Usage of Real People. Every single character is based on a real person. For example, Doctor Daniel Jackson is a crank academic, peddling alternate history about ancient aliens. He disappeared off the radar only to show up at a secretive government program. Curious. The actor behind him is correspondingly real, but he never work on this series. This is truth for most characters, even if the purported actors work in different industry."
+
+There were no reaction from Bruke. None at all.
+
+"Anomaly Two: The uncovering of black programs. What is Deep Space Telemetry? Why at NORAD? What is the purpose of the program. Why are so much bullets being spent at that one facility,  or so many people dying in 'training accidents?' Yet it was deeply connected with the material."
+
+Bruke looked like he was about to talk for several moments, but then motioned for the next slide.
+
+"Anomaly Three: The use of advanced of technology. The model of the DVD player and the television screen clearly was far more advanced than what was possible today, yet clearly built on previous works. The models didn't appear in any catalogue anywhere in the world. Not in Japan or South Korea or China.
+
+Our question now to you: what the hell are we involved in? Is this some sort of science fiction conspiracy?"
+
+Bruke stood up. "I will now answer that question for you," he said. "There were some disagreement on how to handle disclosure of information. In the end it was decided that one of the analyst team will be kept in the dark as much as possible. This is to keep analysis of the materials unbiased as long as possible. Of course, that wasn't possible in the long term. Nonetheless, you compiled materials that were different from the other analyst team."
+
+Bruke paused, before continuing again, "The Stargate is a real alien artifact, and that Deep Space Telemetry is actually a cover program for Project Deep Blue." Then he picked up a DVD. "But this? It's a complete work of fiction that happens to coincide with ours. Now, I am still not going to tell you which is which, that would bias you, but what I will tell you is those DVDs came from the future from an alternate reality."
+
+"Shit" Martin echoed the thoughts of his teammate.
