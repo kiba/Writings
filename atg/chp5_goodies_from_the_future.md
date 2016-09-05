@@ -15,11 +15,11 @@ That's what the boxes are for.
 
 There were men behind those boxes, members from the SGC, holding clipboards, and unpacking.
 
-"Today, I had an opportunity to do a milk run," Captain Michael Griff, the leader of SG-2 said. "You know what I saw in two thousand fifteen? The same god damn green truck."
+"Today this morning, I did a milk run," Captain Michael Griff, the leader of SG-2 said. "You know what I saw in two thousand fifteen? The same god damn green truck."
 
 The room broke into scattered chuckles and laughs.
 
-"That's right, ladies and gentlemen. Some things just don't change, either between realities or in the future. But that's not what you guys are here for. Some things had changed, much of which you can't get right now. Without further ado, let start procurement handout process."
+"That's right, ladies and gentlemen. The same green truck that I saw deliver stuff, was still delivering things in an alternate dimension almost two decade into the future. But that's not what you guys are here for. Some things had changed, much of which you can't get right now. Without further ado, let start the procurement handout process."
 
 There were healthy cheer for that.
 
