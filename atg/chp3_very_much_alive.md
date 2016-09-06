@@ -6,7 +6,7 @@
 
 "My name is Colonel Frank Cromwell of the United States Air Force. Service number is...." the man on the screen recited.
 
-Surprise was part of the job at Stargate Command. That knowledge never really keep surprises from being surprises. This was one of them.
+Surprise was part of the job at Stargate Command. Simply knowing that surprises was going to happen never really diminish the surprise factor.
 
 He couldn't believe what he was seeing on the screen. There's a dead man on the opposite side of the wormhole. He was speaking to the rover inside what appeared to be a copy of Stargate Command.
 
@@ -22,25 +22,29 @@ He couldn't believe what he was seeing on the screen. There's a dead man on the 
 
 O'Neill asked a series of question to which Cromwell answered to his satisfaction, including a secret question of whether Cromwell was under duress.
 
-Then he finally got to ask a burning question. "Say, why are you standing what looked like a brightly lit Stargate Command?"
+Then he finally got to ask a burning question. "Say, why are you standing in what looked like a brightly lit Stargate Command?"
 
-"It's not," Cromwell answered. "You are not going believe me-"
+"It's not," Cromwell answered. "You are not going believe me."
 
-"I seen a lot of strange and unbelievable things at my time at Stargate Command."
+"Try me."
 
-"Very well. It's not Stargate Command, it's a television set for a series about us. I am in an alternate universe where our missions and lives are a television show, and it's the year two thousand fifteen. Or so what I been led to believe."
+"It's absolutely not Stargate Command, but it's a set of a television series called 'Stargate SG-1'. I am in an alternate universe where our missions and lives are a complete work of fiction and it's the year two thousand fifteen. Or so what I been led to believe."
 
-O'Neill froze in disbelief. "That sounds unbelievable even for what we encounter on the job."
+O'Neill nearly froze in disbelief. "That's something...new. It's hard to believe."
 
 "I could be delusional."
 
-"No, I don't believe that your situation is out of the realm of possibility. One time, Doctor Jackson somehow ended up in an alternate universe via the reality mirror before we got him out."
+"No, but given what I have seen, I can't dismiss it out of hand. Doctor Jackson got himself trapped in an alternate reality before we pulled him out of the reality mirror before it got destroyed."
 
-It may be sheer improbability, but he cannot deny what he was seeing in front of his eyes, or what was coming from the rover. The problem was aligning his gut feeling with reality.
+Just when O'Neill was starting to make peace with Cromwell being dead, he couldn't believe that his friend appeared from out of nowhere, seemly alive and well. He hoped that what he was seeing in front of him wasn't a fake.
+
+Years of special operation has taught him that ignoring reality was likely to lead to very bad things. People who died, should remain dead. Cromwell broke his rule. So he has to believe what what we seeing in front of his eyes.
+
+The man who gave up his life so that Earth can survive is not dead.
 
 ***
 
-It didn't take long for General Hammond to get to the control room. His office wasn't far from here.
+Walking to the control room didn't take long for General Hammond. His office wasn't really that far away.
 
 "Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
 
@@ -48,9 +52,9 @@ It didn't take long for General Hammond to get to the control room. His office w
 
 "The probability of encountering such a reality is incredibly low," Carter said. "To be the same in all the ways except that we are a science fiction series? It's far more likely that we would encounter a reality very similar to ours but just a tiny different. Even though that parallel realities posited by the many-world interpretation of quantum mechanics, we still have no working theories on how to actually cross one."
 
-"And now we have verification of a method how to cross one," Hammond conjectured. "Aside from the reality mirror that was destroyed."
+"And now we have verification of a working method how to cross one?" Hammond conjectured. "We already encountered alternate realities using the Reality Mirror, but that got destroyed."
 
-"Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have less than forty-eight minutes before the gate shut down."
+"Only if we can reliably replicate the method, sir. Frank Cromwell might still be stuck on the other side if he can't dial home and return. We only have less than thirty-eight minutes before the gate shut down."
 
 Hammond gritted his teeth. "If it come to the worst case scenario, Cromwell will be considered missing-in-action rather than dead."
 
@@ -58,7 +62,7 @@ A man came into the screen.
 
 "I am a billionaire. I can arrange something for him for his stay on my Earth," an unidentified tall man spoken from the MALP. "Permanently if necessary."
 
-"Thank you, but forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is no way to get him back. You have whatever time is left to chuck whatever is useful for him through the gate. Make it quick."
+"Thank you, but forgive me if I don't take your words for it," Hammond replied. He looked over to the rest of the team. "We'll assume for now that he can't reconnect with us and that there is no way to get him back. You have whatever time is left to chuck whatever you think is useful for him through the gate. Make it quick."
 
 "Yes, sir," SG-1 replied with a grimace.
 
@@ -72,7 +76,7 @@ But he wasn't about to do absolutely nothing if he could do something.
 **Colonel Frank Cromwell**
 **Hawthorne, Infopunk-Earth**
 
-There was no way for Cromwell to walk back home without first reconnecting from his side of the gate. He was warned that a reconnection might not work. There was no way to know. So, the SGC did the only thing they could do. They begun chucking survival kits, MREs, and weapons.
+There was no way for Cromwell to walk back home without first reconnecting from his side of the gate and he was warned that a reconnection might not work, with the strong probability of forever being stranded here. So, the SGC did the only thing they could do. They begun chucking survival kits, MREs, and weapons.
 
 "What we do now?" Swift asked.
 
@@ -82,15 +86,15 @@ There was no way for Cromwell to walk back home without first reconnecting from 
 
 "Thanks."
 
-"But first, I want you have my laptop."
+"But first, I want you to have my laptop."
 
 "I am sorry?"
 
-"If your reality is anything like the stargate series, you guys have a tough road ahead. I can spare you a macbook."
+"If your reality is anything like the stargate series, you guys have a tough road ahead. I can at least spare you a macbook."
 
-It wasn't long before Cromwell held a macbook in his hand. Stuff were still being chucked, but that wasn't important. If he was truly stuck in this place, he could organize it later.
+It wasn't long before Cromwell held a laptop in his hand. Stuff were still being chucked, but that wasn't important. If he was truly stuck in this place, he could organize it later. If not, then somebody will have to haul the items back to base.
 
-Then the gate shut down unceremoniously. Only for the gate to start rotating again.
+The gate shut down unceremoniously , only for the gate to start rotating again.
 
 "Please step back far away from the hazard line, Colonel," Swift said. Cromwell compiled. Better to have extra margin then to die.
 
@@ -104,16 +108,49 @@ The gate connected. It worked! He could finally go home!
 
 "Copy. The iris is now open. You are free to proceed," the voice on the other side said.
 
-Cromwell walked into the gate. Then, he suddenly saw people in hazmat suits.
+Cromwell walked into the gate, instantaneously emerging on the other side. For a brief moment, he felt an euphoria that he was home.
 
-"Follow me," one of them said.
+A person in an orange hazmat suit made their appearance after a blast door opened.
+
+"Follow me," a female voice ordered.
 
 He complied.
+
+The airman entered a quarantine room, an artifact of the visit to the land of light. That mission got the entire SGC on lockdown, forcing new security and medical procedure to be added
+to prevent such recurrence.
+
+"It's very good to see you alive," Fraiser said, before handing him a hospital gown.
+
+"I can say the same for you, doctor," Cromwell replied as Fraiser put her hands on the back of the neck, checking for opportunistic infection by a Goa'uld parasite.
+
+"Take a shower. After that, we're going to do a lot of medical tests to verify that you are who you are and to make sure that you're healthy. That's going to take a long time."
+
+"Yes ma'am."
 
 ***
 **September 17, 1998**
 
-Cromwell was finally in the meeting room with SG-1 and General Hammond. He endured a twenty four hours isolation period, with stringent medical check by the the medical staff, and a few hours of boredom before this meeting.
+There was a lot of poking and prodding by the medical staff. Then Cromwell endured a full twenty-four hour quarantine. Debriefing was done remotely, via the intercom, but that didn't last long. Thankfully, there were entertainment options to keep the boredom at bay. At time he would watch television, or read books.
+
+Finally, he was let go.
+
+It had been weeks for Stargate personnels, but not for him. He was only been out of the complex for a few hours at most, returning as soon as possible.
+
+There wasn't much to miss.
+
+His stomach beckoned the call for lunch, and it was only hours until the scheduled meeting with General Hammond and SG-1.
+
+He rode the elevator to the cafeteria.
+
+On the left on his entrance was O'Neill's team. Colonel O'Neill's face brighten up.
+
+"Look who's back?" O'Neill announced loudly, getting everyone's attention. "Cromwell is alive and well! Three cheers and a toast!"
+
+Cromwell smiled slightly. It leave no doubt that the SGC is a true community that cared for one another, even if Cromwell didn't feel the same way about himself. He was glad that he was alive, but from their perspective, he was supposed to be dead. They had conducted his funeral not too long ago.
+
+***
+
+Finally, he was in the conference room with SG-1 and General Hammond.
 
 There was a macbook in the middle of the desk. Everyone was staring at it.
 
