@@ -150,6 +150,68 @@ Cromwell smiled slightly. It leave no doubt that the SGC is a true community tha
 
 ***
 
+The SGC dealt with galactic affair, away from the ire of the public yet Lieutenant Major General George Hammond's office was as ordinary as it could get. There's no visible alien tech inside this office just yet. However, Cromwell knew that this command was only two years old, not a lot of time to develop technology.
+
+There's also an extra person in this room beside Hammond and himself, a man named Irvine Fletcher, the SGC's counsel. A mostly bald man in his fifty, this man mostly melted in the background, checking over everything from agreement with aliens to NDA made with individuals outside the SGC.
+
+"Have a seat, Colonel," Hammond said. Already, he could see the weary look on Hammond's face. "What am I going to do with you? Through no fault of your own, you came back from the dead."
+
+Fletcher nodded and adjusted his glasses. "Our assumption is that you died in the black hole. Accordingly, a death certificate was issued, assets were transferred to an estate, and your will is taken care of. You no longer have a penny to your name and you don't exist in the eyes of the court."
+
+Cromwell nearly choked on that. Everything he earned for his entire life is simply gone, because everyone assume that no one can survive being sucked in by a black hole. According to Carter, there's no reason to expect that the black hole would transport him to an alternate reality, let alone a reality that considered this reality part of a fictional universe.
+
+"So this is going to be a problem," Cromwell replied.
+
+"It is," Hammond said. "Aside from the legal aspect, it also plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?'. We're going to have to craft a very convincing story as to why. That would be a lot easier if we were officially at war with someone else on this planet. Thankfully, we are not."
+
+"So, I am not going back to my old life."
+
+"I didn't say that we are going to just throw up our hands up and do nothing."
+
+"The general spoken to the president about this, and the president are willing to provide you lawyers to help get back your legal identity," Fletcher said. "Of course, there's a balancing act to keep the program secret."
+
+"During that time, I am stuck in a limbo?"
+
+"That is correct," Fletcher admitted. "You are also not under contract nor obligation to serve in the United States Air Force. If you decided not to work for the SGC or the air force, the SGC is willing to provide cost-of-living stipend plus pension and a temporary identity so that you can find wo-."
+
+"I am not going to do that," Cromwell said. "From my perspective, I had only left the SGC hours at most."
+
+"You will also acquire a temporary identity if you decide to work here, but you will be paid O-6 and the years you served accordingly," Fletcher continued where he left off. The colonel knew that he will earned more than most Americans, but it still stung to lose everything he had worked for.
+
+"For the sake of secrecy, you will not contact anybody or anyone outside of the SGC community," Hammond added. "This is temporary until we have a cover story for you."
+
+Fletcher handed Cromwell a NDA(non-disclosure agreement). "You will need to sign this. For now, you are not considered a member of the military. I am working to change this as soon as possible."
+
+While most people would sign right away, the colonel read over it. He knew that it was a standard agreement handed out to civilians.
+
+***
+
+The most convenient place to eat was the SGC's cafeteria. It wasn't gourmet food, but it wasn't bad either. O'Neill may be paid six figures plus hazard duty pay, but he wasn't going to go out every time to get food. There was a security process with the need to stay here in case if emergency arise.
+
+Frank Cromwell approached his table with a cafeteria tray.
+
+"May I join you?" Cromwell asked.
+
+"Sure," O'Neill replied.
+
+"About the war in Iraq..."
+
+"Don't say anymore. Whatever happened or didn't happen there, it's over."
+
+"Forgiveness?"
+
+"Maybe not even that. If what you said is true, then there's nothing to forgive. You made a judgement call on that day, and it was wrong. Only weeks ago, you saved the world, so I can't exactly complaine about being personally tortured in some forsaken Iraqi prison."
+
+"If I had to do it over again, I would drag you back to the helicopter."
+
+"I know you would."
+
+"So, we're good?"
+
+O'Neill looked into Cromwell's eyes. "Yeah, we're good."
+
+***
+
 Finally, he was in the conference room with SG-1 and General Hammond.
 
 There was a macbook in the middle of the desk. Everyone was staring at it.
@@ -184,65 +246,6 @@ There were mixed reactions from SG-1.
 
 "It will be a priority project, and it will be done as soon as possible. I am assuming that we will extract the intel from the laptop for use by multiple teams. If we can get Mr. Swift's cooperation, I am sure we will receive more videos from their franchise."
 
-***
-
-The most convenient place to eat was the SGC's cafeteria. It wasn't gourmet food, but it wasn't bad either. O'Neill may be paid six figures plus hazard duty pay, but he wasn't going to go out every time to get food. There was a security process with the need to stay here in case if emergency arise.
-
-Frank Cromwell approached his table with a cafeteria tray.
-
-"May I join you?" Cromwell asked.
-
-"Sure," O'Neill replied.
-
-"About the war in Iraq..."
-
-"Don't say anymore. Whatever happened or didn't happen there, it's over."
-
-"Forgiveness?"
-
-"Maybe not even that. If what you said is true, then there's nothing to forgive. You made a judgement call on that day, and it was wrong. Only weeks ago, you saved the world, so I can't exactly complaine about being personally tortured in some forsaken Iraqi prison."
-
-"If I had to do it over again, I would drag you back to the helicopter."
-
-"I know you would."
-
-"So, we're good?"
-
-O'Neill looked into Cromwell's eyes. "Yeah, we're good."
-
-***
-
-It occurred to Frank Cromwell that the office of Major General Hammond was very ordinary. If he didn't know, it looked like the office of any general, but this office belonged to one of the most important and special combatant command on Earth.
-
-"Have a seat, Colonel," Hammond said.
-
-Cromwell could see the exasperated gesture exhibited by the general.
-
-"What am I going to do with you?" Hammond said.. "You know how much headache is when a SGC personnel come back from the dead? Luckily I didn't have to find out until now. Doctor Jackson was only gone a few hours before we retrieved him from an aquatic alien. But you have been gone for a few weeks. A funeral was already conducted and all the paperwork was done."
-
-"So this is going to be a problem."
-
-"Yes, a very big nasty problem. This is by no mean your fault, but coming from the dead plays hell with keeping a program secret. You are a Colonel. You had been in contact with innumerable people, many of which has came to your funeral. They're going to ask a question, 'why are you alive?'. We're going to have to craft a very convincing story as to why. That would be a lot easier if we were officially at war with someone else on this planet. Thankfully, we are not. "
-
-"So, I am not going back to my old life."
-
-"I didn't say that we are going to just throw up our hands up and do nothing."
-
-"Sir, wouldn't it be easier that it just wasn't going to happen? At least until a few years?"
-
-"You'll be stuck here in this base. There's no telling when we will reveal the program to the public."
-
-"In the television series, they never made stargate command public, even when they finally have the capability to manufacture the ships needed to defend Earth. It was all up to SG-1 to save the day again and again. I hope we are not going in that direction."
-
-"I assure you that we will not. If one of our carrier strike group got sunk, or there was a battle in Antartica, we would absolutely disclose the stargate program to the public. It would be the height of stupidity, not to mention jeopardizing the safety of this world, to not do so."
-
-"It's good to hear. I have a proposal. I was thinking of going to two thousand fifteen. We are in contact with a prominent billionaire, probably with good connection to our, I mean, his government. He could arrange a meeting. When we do contact the government, I could be a liaison to the USAF there. When the program finally become public, I'll get my life back."
-
-"I have one objection that just came to my mind. You are a known face."
-
-"A fictional person there, sir. At most I would get mistaken as the actor who played me."
-
-"I'll see what I can do, but I make no promises."
 
 ***
 **Captain Samantha Carter**
