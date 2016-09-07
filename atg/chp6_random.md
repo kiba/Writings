@@ -75,3 +75,9 @@ Lee could see the scorches that was made into the side of a hill. It hadn't pene
 "This is great!" Lee said with excitement.
 
 The staff weapon project was an idea of low priority, especially SGC had since discovered juicier alien technology to reverse engineer. Lee still checked in from time to time.
+
+***
+
+Diplomacy with aliens? He never thought that he would see it in his lifetime. Yet, he was out in the galaxy making treaties and agreement behind congress' back, who would not be approving any of those treaties.
+
+Still, this assignment was extremely unusual. He was to contact the United States government and to make an offer of cooperation, banding together to fight a common threat. 
