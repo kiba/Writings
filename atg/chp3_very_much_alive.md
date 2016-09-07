@@ -186,29 +186,41 @@ While most people would sign right away, the colonel read over it. He knew that 
 
 ***
 
-The most convenient place to eat was the SGC's cafeteria. It wasn't gourmet food, but it wasn't bad either. O'Neill may be paid six figures plus hazard duty pay, but he wasn't going to go out every time to get food. There was a security process with the need to stay here in case if emergency arise.
+The news coming from Hammond and Fletcher was bad and unexpected, but Frank Cromwell wasn't the kind of man to dwell in misery. As far as he was concerned, the command had taken care of his short term needs and saw fit to give him back his salary. He may not be retiring any time soon, but the airman has it in his mind to keep going as long as possible. He couldn't scarcely imagine what he will do as a retired man. Teach military history?
 
-Frank Cromwell approached his table with a cafeteria tray.
+Still, there was one thing lingering in the back of his mind. His relation with an estranged friend and colleague, O'Neill. The legendary leader of SG-1 has showed every indication of having changed his mind, no longer showing sourness or throwing barbs his way. Still, in Cromwell's mind, it remained unresolved.
 
-"May I join you?" Cromwell asked.
+Cromwell approached O'Neill in a hallway.
 
-"Sure," O'Neill replied.
+"Can I talk with you for a second" Cromwell asked.
+
+"Sure," O'Neill replied, before detouring to an unoccupied room.
 
 "About the war in Iraq..."
 
-"Don't say anymore. Whatever happened or didn't happen there, it's over."
+"Whatever happened there, I sort of got over it."
 
-"Forgiveness?"
+"Because I saved the world and sacrifice myself?"
 
-"Maybe not even that. If what you said is true, then there's nothing to forgive. You made a judgement call on that day, and it was wrong. Only weeks ago, you saved the world, so I can't exactly complaine about being personally tortured in some forsaken Iraqi prison."
+"Yeah," O'Neill admitted, nodding. "I don't know if I believe or forgive you. Maybe I couldn't. Regardless, I ended up in that Iraqi prison. That was personal hell. There's nothing that you experienced could ever possibly come close to this, except this."
 
-"If I had to do it over again, I would drag you back to the helicopter."
+O'Neill gestured a gun to the side of his head. "I closed my eyes in preparation for my final moment. Then there was a click. Nothing happened. It was a mock execution, but it was torture all the same. Maybe it would be better if you shoot me rather than just leaving me for dead."
+
+"I don't think I am that sort of that person."
+
+"I think we are capable of anything given the right impetus. If I am getting tortured all over again, will you kill me?"
+
+"I rather not find out."
+
+"That's a shame, but I believe you will do it."
+
+"If I want to change something in the past, it would not be to shoot you but to drag your ass to the helicopter."
 
 "I know you would."
 
-"So, we're good?"
+"So am I forgiven?"
 
-O'Neill looked into Cromwell's eyes. "Yeah, we're good."
+O'Neill paused, before looking straight into Cromwell's eyes. "Yeah," he said. "We're good."
 
 ***
 
