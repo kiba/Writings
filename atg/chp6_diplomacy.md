@@ -7,7 +7,7 @@ The framers of the Constitution would had never guessed for the need to make tre
 
 Somehow that didn't feel all that egregious to diplomat Gerry Parkinson. For sure, he was a participant in this himself, especially as he walked across a moon to meet with the leader of an amphibious species, the Ohnes.
 
-Accompanying him was Doctor Daniel Jackson himself, who was a diplomat himself, despite or rather because of his training.
+Accompanying him was Doctor Daniel Jackson himself, who found himself a victim of a misunderstanding. More importantly, Jackson was the leading expert on alien cultures. To many in the galaxy, he was the face of Earth, not the diplomatic corp. Thankfully, he was a pretty good diplomat himself. 
 
 "You do the translation and I do the talking, correct?" Parkinson said. "Then we discuss the demand together."
 
