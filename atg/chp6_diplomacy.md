@@ -3,7 +3,7 @@
 **Season One, Post-Episode Thirteen Season One**
 
 
-The framers of the Constitution would had never guessed for the need to make treaties with powers in the stars, or its total secrecy, or the fact that the SGC was there to make or break treaties with aliens without the senate's consent. Those were swept under the rug under terms like "executive agreements" and other weasel terms.
+The framers of the Constitution would had never guessed for the need to make treaties with powers in the stars, or its total secrecy, or the fact that the senate wasn't going to vote on any of those treaties. That was largely up to the SGC's discretion. Those were swept under the rug under terms like "executive agreements" and other weasel terms.
 
 Somehow that didn't feel all that egregious to diplomat Gerry Parkinson. For sure, he was a participant in this himself, especially as he walked across a moon to meet with the leader of an amphibious species, the Ohnes.
 
