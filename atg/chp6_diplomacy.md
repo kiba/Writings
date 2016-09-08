@@ -39,4 +39,8 @@ This man wasn't in a car at all.
 
 "Please get your commander and don't speak to anyone."
 
-The diplomat ended up being arrested. 
+The diplomat ended up being arrested.
+
+***
+
+Parkinson had just deliberately put himself in a situations that he wouldn't want to be in. The interrogation room looked more like an office, rather than a place to question suspects.
