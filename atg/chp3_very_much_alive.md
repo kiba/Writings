@@ -212,7 +212,7 @@ O'Neill gestured a gun to the side of his head. "I closed my eyes in preparation
 
 "I rather not find out."
 
-"That's a shame, but I believe you will do it."
+"That's a shame, but I still believe that you will do it."
 
 "If I want to change something in the past, it would not be to shoot you but to drag your ass to the helicopter."
 
@@ -224,40 +224,37 @@ O'Neill paused, before looking straight into Cromwell's eyes. "Yeah," he said. "
 
 ***
 
-Finally, he was in the conference room with SG-1 and General Hammond.
+Members from SG-1 was arrayed on one side of the conference table. General Hammond sat in the middle. Cromwell sat across from SG-1.
 
-There was a macbook in the middle of the desk. Everyone was staring at it.
+"First of all, I am happy to announce that we are able to repeatedly reconnect with the alternate Earth," Hammond said. "All telemetry is nominal and that there is no indication that this alternate Earth will get sucked in by a black hole any time soon." There were a few chuckles at that. "Carter and her team still don't know how long-term this connection is, but I hoped that it will be permanent."
 
-"It's good to have you back, Colonel," Hammond said warmly.
+Cromwell smiled at that news. Combining two populations in the fight against the Goa'uld would be welcome news. Of course, there was a possibility that this alternate Earth might be hostile or a threat, but that was rated very low.
 
-"Likewise."
+Hammond turned his eyes toward Carter. "Can you elaborate further on this connection?"
 
-"I am happy to let you know that we reconnected with the alternate Earth repeatedly and that there's no problem going back and forth. Carter and her team still don't know how long the connection will last, but it's looking like it's permanent."
+"As the general said earlier, the physics department still do not understand the underlying physics of the connection established between ours and their," Doctor Carter confirmed. "We also established that their Earth should be located about roughly where we are, astronomically speaking. Their night sky are the same as ours, seventeen years in advance. This suggested strongly that they are in fact in an alternate universe, but that's not the only possibility."
 
-Cromwell smiled. He thought long and hard about what an alternate Earth might provide to SGC and his Earth and probably so did everyone else. That did not exclude the alternate Earth being a threat but it was at low probability.
+"What do you mean by 'only possibility'?" Colonel O'Neill asked.
 
-"I believe everyone here viewed the science fiction series?" Cromwell asked.
+"In an infinite universe, every iteration and configuration of Earth should come up at least once," Carter answered. "Rather than existing in an alternate dimension, they might simply exist very far away from here. Regardless, we don't know how to yet distinguish one reality from another or if the universe is infinite."
 
-There were mixed reactions from SG-1.
+"So, for now, the science is unsettled," Hammond concluded.
 
-"They left out the other half of the team!" O'Neill complained. "Although the humors and camaradies were spot on."
+"Yes, that's one way to put it," Carter affirmed.
 
-"Mostly inaccurate," Teal'c said.
+"Next's on the agenda is the television series we received when Cromwell crossed back," Hammond announced. "O'Neill?"
 
-"Obviously they're not physicists," Carter said.
+"It was very difficult to watch for some members of my team to watch, sir. The inaccuracy were a distraction." O'Neill appraised. "After a few episodes I realized the potential disaster it might bring to SG-1 and the rest of command, so I ordered everyone to stop watching it.."
 
-"Haha, I knew we were a science fiction series," Kawalsky said, before his face turned into a frown. "Although I died right after pilot episode."
+"Why?" Cromwell questioned.
 
-"It's entertainment," Cromwell conceded. "But it could be useful as an intelligence mine. We just need to be on guard about making assumptions."
+"Because it contained information about the future that might be inaccurate," O'Neill said. "How are we supposed to use something that can be misleading as well a lifesaver? The episodes contradicted our knowledge of how the past went, how we operate, what weapons we used. It's unreliable."
 
-"What if we are in the field having to make split second decision?" O'Neill countered. "We will gather all the knowledge we know to date. The intel could save us, but it could also kill us. SG-1 and any members of the SGC shouldn't had watch the videos in the first place."
-
-"At the time we received the device and watch the videos contained on there, we only checked if it was an obvious bomb or biohazardous material. Nobody made any objection about contamination using future information, however inaccurate it may be on many points," Hammond noted. "Nonetheless, the mistake can't be undone. We'll have to move on to make use of or neutralize dangerous information. I want every piece of the franchise analyzed to the last scrap for any useful intelligence. It will be analyzed independently by separate teams not from SGC so that their conclusion will not be contaminated. Is there any objections or concerns?"
+"Nonetheless, the mistake can't be undone," Hammond said. "We'll have to move on to make use of or neutralize dangerous information. I want every piece of the franchise analyzed to the last scrap for any useful intelligence. It will be analyzed independently by separate teams not from SGC so that their conclusion will not be contaminated. Is there any objections or concerns?"
 
 "How fast could we get it done?" Cromwell asked.
 
 "It will be a priority project, and it will be done as soon as possible. I am assuming that we will extract the intel from the laptop for use by multiple teams. If we can get Mr. Swift's cooperation, I am sure we will receive more videos from their franchise."
-
 
 ***
 **Captain Samantha Carter**
