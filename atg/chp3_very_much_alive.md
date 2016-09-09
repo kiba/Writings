@@ -244,11 +244,11 @@ Hammond turned his eyes toward Carter. "Can you elaborate further on this connec
 
 "Next's on the agenda is the television series we received when Cromwell crossed back," Hammond announced. "O'Neill?"
 
-"It was very difficult to watch for some members of my team to watch, sir. The inaccuracy were a distraction." O'Neill appraised. "After a few episodes I realized the potential disaster it might bring to SG-1 and the rest of command, so I ordered everyone to stop watching it.."
+"It was very difficult to watch for some members of my team to watch. There's lot of inaccuracies in both the chronology and how we operate, though sometime it also hit too close to the truth." O'Neill appraised. "After a few episodes I realized the potential disaster it might bring to SG-1 and the rest of command, so I ordered everyone to stop watching it."
 
 "Why?" Cromwell questioned.
 
-"Because it contained information about the future that might be inaccurate," O'Neill said. "How are we supposed to use something that can be misleading as well a lifesaver? The episodes contradicted our knowledge of how the past went, how we operate, what weapons we used. It's unreliable."
+"Because it contained information about the future that might be inaccurate," O'Neill said. "How are we supposed to use something that can be misleading as well a lifesaver? The episodes contradicted our knowledge of how the past went, how we operate, what weapons we used. It's unreliable. We can't simply forget what we just learned either. It's all up in our head."
 
 "Nonetheless, the mistake can't be undone," Hammond said. "We'll have to move on to make use of or neutralize dangerous information. I want every piece of the franchise analyzed to the last scrap for any useful intelligence. It will be analyzed independently by separate teams not from SGC so that their conclusion will not be contaminated. Is there any objections or concerns?"
 
