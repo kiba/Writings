@@ -70,8 +70,35 @@ Now, he was at the range again, still hearing the tell-tale sign of the staff we
 
 "Yeah, you have to see it to believe it. It's extremely reliable. Our problem has more to do with keeping personnel alert and not complacent."
 
-Lee could see the scorches that was made into the side of a hill. It hadn't penetrated at all, but the side of the hill was basically blasted repeatly into glasses.
+Lee could see the scorches that was made into the side of a hill. It hadn't penetrated at all, but the side of the hill was basically blasted repeatedly into glasses.
 
 "This is great!" Lee said with excitement.
 
 The staff weapon project was an idea of low priority, especially SGC had since discovered juicier alien technology to reverse engineer. Lee still checked in from time to time.
+
+***
+**White House, Infopunk-Earth**
+
+"Excuse me?" the president said. "Is this some kind of joke?"
+
+The general gravely shook his head. "No, Mr. President. It's very real. It's either that, or that somehow an elaborate prank has been perpetuated on whitehouse staff."
+
+The president played a video on an ipad, showing what was supposed to be fictional an actual reality. A machine came through, as if appearing from thin air. An ipad was mounted on the machine, showing the face of Colonel O'Neill.
+
+"Alright, I am not going take your word for it," the president said.
+
+"You shouldn't, but we should be prepared for both possibility it's real or that it's a complete hoax. I should be able to come up with options."
+
+"Is this an emergency?"
+
+"Possible. We don't know yet."
+
+"Then I want to be up in the air as soon as possible."
+
+"We need a coverup story as well. A readiness exercise? It won't make people panic, but the Russians might be alarmed."
+
+"Then..."
+
+"Just a bit, sir. I don't believe they will break out the nukes."
+
+"Let's do it then."
