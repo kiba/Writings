@@ -103,4 +103,12 @@ The president played a video on an ipad, showing what was supposed to be fiction
 
 "Let's do it then."
 
-The president and his family were immediately transported to a 747 in the middle of the night in anticipation of possible world-changing crisis. 
+The president and his family were immediately transported to a 747 in the middle of the night in anticipation of possible world-changing crisis.
+
+***
+**Colonel Jack O'Neill**
+**Whitehouse, Infopunk-Earth**
+
+O'Neill never thought he will end up having dinner with the future President of the United States. On second thought, the butterfly effect might make it so that the African American politician would never become president.
+
+On this Earth, O'Neill was practically a household name. Granted, his television self did too many stupid things to count, but that was why he's in the white house, instead of back at the SGC.
