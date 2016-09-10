@@ -23,7 +23,7 @@ Despite the fact that it was a first contact situation, this wasn't the first ti
 
 Now, on the other side of the table, Nem was there.
 
-"Hello, my name is Gerry Parkinson, a diplomat of the United States of America. I come here to negotiate an alliance with you agains the Goa'uld."
+"Hello, my name is Gerry Parkinson, a diplomat of the United States of America. I come here to negotiate an alliance with you against the Goa'uld."
 
 ***
 
@@ -45,14 +45,48 @@ A bored soldier jolted into alertness as the sight of a man in suit carrying a b
 
 This man wasn't in a car at all.
 
-"I am Gerry Parkinson with the state department. I need to speak to the president as soon as possible, please."
+"I am Gerry Parkinson with the state department. I need to speak with the base commander as soon as possible."
 
-"I am sorry, what?"
+"Can I see your identification please?" the soldier asked.
 
-"Please get your commander and don't speak to anyone."
+Parkinson obliged, giving him his nineteen ninety-eight documentations.
 
-The diplomat ended up being arrested.
+"Excuse me? Do you have anything more recent than this? Is this a joke?"
+
+"No."
+
+The soldier phoned the base headquarter. "Do we have a Gerry Parkinson meeting with the commander? No? OK."
+
+Then the soldier turned his attention to the diplomat. "You don't have an appointment with the commander."
+
+"Yes, um, this is an emergency. I am with the state department."
+
+Twenty minutes on in an infuriating bureaucracy and a couple of google search, the soldier finally announced, "sir, you are under arrest for imitation of a government official."
+
+Fucking finally.
+
+Parkinson turned around for easy access to the handcuffs. "I can explain all of this, but it will be hard to believe," he said.
+
+"Sure," the soldier said incredulously. "But Gerry Parkinson is stationed in China, having just talked to a Chinese official. Unless our diplomat can teleport."
+
+Of course, this was how it was going to end. He hoped to get to the base commander and then to the POTUS of two thousand fifteen, but the security guard was too competent.
 
 ***
 
 Parkinson had just deliberately put himself in a situations that he wouldn't want to be in. The interrogation room looked more like an office, rather than a place to question suspects.
+
+The door opened up to a man and a woman. The smell of food waffled over the diplomat's nose.
+
+"I am special agent Daniel Fox and this is special agent Madison Smith," the male FBI agent introduced myself before the both of them sat down opposite of the diplomat. "Would you like a hot dog as you answer our questions?"
+
+"No."
+
+"That's alright. How about we start with your name? Your real name."
+
+"The only name I ever have in my life is Gerry Parkinson."
+
+"The name of the diplomat you tried to impersonate earlier."
+
+"I acknowledged that his name is Gerry Parkinson, but there's nothing against the law that say I cannot have the same name as him."
+
+The FBI agent looked like he didn't believe that a single bit.
