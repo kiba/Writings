@@ -236,11 +236,11 @@ Hammond turned his eyes toward Carter. "Can you elaborate further on this connec
 
 "What do you mean by 'only possibility'?" Colonel O'Neill asked.
 
-"In an infinite universe, every iteration and configuration of Earth should come up at least once," Carter answered. "Rather than existing in an alternate dimension, they might simply exist very far away from here. Regardless, we don't know how to yet distinguish one reality from another or if the universe is infinite."
+"In an infinite universe, every iteration and configuration of Earth should come up at least once," Carter answered. "Rather than existing in an alternate dimension, they might simply exist very far away from here. We don't know yet if the universe is truly infinite, or how to distinguish between one reality from another. "
 
 "So, for now, the science is unsettled," Hammond concluded.
 
-"Yes, that's one way to put it," Carter affirmed.
+"Yes, that's one way to put it," Carter affirmed. "Without further knowledge, we cannot know how long the connection will last."
 
 "Next's on the agenda is the television series we received when Cromwell crossed back," Hammond announced. "O'Neill?"
 
@@ -250,7 +250,7 @@ Hammond turned his eyes toward Carter. "Can you elaborate further on this connec
 
 "Because it contained information about the future that might be inaccurate," O'Neill said. "How are we supposed to use something that can be misleading as well a lifesaver? The episodes contradicted our knowledge of how the past went, how we operate, what weapons we used. It's unreliable. We can't simply forget what we just learned either. It's all up in our head."
 
-"Nonetheless, the mistake can't be undone," Hammond said. "We'll have to move on to make use of or neutralize dangerous information. I want every piece of the franchise analyzed to the last scrap for any useful intelligence. It will be analyzed independently by separate teams not from SGC so that their conclusion will not be contaminated. Is there any objections or concerns?"
+"Nonetheless, the mistake can't be undone," Hammond said. "We'll have to move on to make use of or neutralize dangerous information. I want every piece of the franchise analyzed to the last scrap for any useful intelligence. It will be analyzed independently by separate teams not from the SGC so that their conclusion will not be contaminated. Is there any objections or concerns?"
 
 "How fast could we get it done?" Cromwell asked.
 
@@ -267,12 +267,14 @@ Captain Samantha Carter was somewhat computer literate, enough to operate safely
 
 "Got it."
 
-Carter sat through it, proactively asking questions along the way, and taking part getting used to this futuristic device with its blazing fast gigabit connection delivered wirelessly through the gate. It was certainly a far cry from her dialup connection that she was used to.
+Carter sat through it, proactively asking questions along the way, and taking part in getting used to this futuristic device. Its connection was ahead of its time even on Swift's Earth, with its gigabit connection. It was certainly a far cry from her dialup connection that she was used to.
 
-Finally, Harriman was gone. She was all alone, with Swift still reachable if she need to ask an question.
+Finally, Harriman was gone after a long tutoring session. She was all alone, with Swift still reachable if she need to ask an question.
 
 She started typing an email to a professor that she knew.
 
-A thought occurred to her? Physics might be different on their Earth. No, if that was true, why was the computer in front of her still working, downloading and transmitting information. For that matter, where did the gate came from?
+A stray thought occurred to her. She might be a crackpot on the other Earth. No, if that was true, why was the computer in front of her still working, downloading and transmitting information?
 
-No. That wasn't relevant to what she need to do. She put those thought aside, and set to work.
+If she could understand a physic paper even with her outdated knowledge, then it must be that the physics are largely the same.
+
+Carter felt reassured that this was the case.
