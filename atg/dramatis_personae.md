@@ -35,7 +35,7 @@ A special operator in the United States Air Force, he has decade of experience i
 
 ### Colonel Johnathan 'Jack' O'Neil
 
-Leader of SG-1 and a member of the United States Air Force.
+Leader of SG-1 and a member of the United States Air Force. He was the man who killed Ra with a nuclear bomb, setting off a Goa'uld civil war. He retired after that, but came back to active duty after Aphosis invaded the facility and kidnapped a female soldier.
 
 ### Doctor Daniel Jackson
 
