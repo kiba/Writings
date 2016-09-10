@@ -5,11 +5,14 @@
 **Infopunk-Earth**
 **September 22, 2015**
 
-As John Swift stood in front of the stargate, Swift was still searching in his mind for answers to the reality he was currently facing. He talked to psychologists to test his sanity, and he even tried to find the man who sold him the gate. His search for answers had only beget more questions.
+As the billionaire stood in front of the stargate, Swift was still searching in his mind for answers to the reality he was currently facing. He talked to psychologists to test his sanity, and he even tried to find the man who sold him the gate. His search for answers had only beget more questions.
 
-Either he was hallucinating vividly or that he was really witnessing reality. For now he decided that it was the later rather than the former.
+Either he was hallucinating vividly or that he was really witnessing reality. Somehow, he felt that the later must be the truth, however improbable it was.
 
-Swift made a commitment some time ago to help the formerly fictional SGC with meeting with his government. To be able to do that, he announced that he was taking a sudden and long vacation. Helping out the SGC wasn't something to be taken lightly at all, but it wasn't hard either. It was more like a childhood dream come true, a fulfillment of a fantasy, even if it became more like a responsibility.
+Swift made a commitment some time ago to help the formerly fictional SGC with meeting with his government, forgoing any publicity and trusting that secrecy was the best approach. To be able to do that, he announced that he was taking a sudden and long vacation. Helping out the SGC wasn't something to be taken lightly at all, but it wasn't hard either. It was more like a childhood dream come true, a fulfillment of a fantasy, even though it has became a burden and a responsibility.
+
+
+Even as a billionaire, he enlisted himself to teaching them the necessary knowledge needed to navigate a modern mac computer, and how to use the internet safely and use google. There was no one else to do it. John Swift or Vincent Sinclair wasn't much of a choice at all, but they rather not let anyone else on the planet know of their existence.
 
 So when the SGC requested for a place to stay and set up operation, Swift quickly obliged.
 
@@ -21,7 +24,7 @@ Colonel Frank Cromwell emerged from the pool-like portal, the energy field colla
 
 "Good to see you as well, Mr. Swift," Cromwell replied back. "Where Sinclair?"
 
-"Probably working at a cafe writing his novel. I already have a place for you to stay at. I'll be driving you there." It was Swift's house. Given the lack of identity and history, there's not a whole of places where they could stay at.
+"Probably working at a cafe writing his novel. I already have a place for you to stay at. I'll be driving you there." It was Swift's house. The Colonel lacked proper identification, let alone currencies. There was no other places that he could stay at.
 
 "No butler?"
 
@@ -31,11 +34,11 @@ When they were were finally at the parking lot, Swift's car's frunk opened up.
 
 "Is this some alternate universe where people put the car engine in the back?" Cromwell asked.
 
-Swift laughed in bemusement. "No, it's nothing like that. With an electric car, our 'engines' are the motors that sat next to each wheel. So there's no need for big engine blocks. That opened up both the back and front for space."
+Swift laughed in bemusement. "No, it's nothing like that. With an electric car, our 'engines' are the motors that sat next to each wheel. So there's no need for big engine blocks. We still have a trunk, but the front is now open space as well."
 
 "Oh."
 
-"And the vast majority of cars today on the road are still the cars that you are used. They each have an internal combustion engine inside and use gasoline, but I don't believe that will be the future."
+"And the vast majority of cars today on the road are what you are used to. They each have an internal combustion engine inside and use gasoline, but I don't believe that will be the future."
 
 "Because of cars like this?"
 
@@ -43,7 +46,7 @@ Swift laughed in bemusement. "No, it's nothing like that. With an electric car, 
 
 The men got inside the car, with Swift taking the driver seat, while Cromwell took the front passenger seat.
 
-Swift could see the colonel scanning everything within the car, paying attention to all the newness that were never present in the car.
+Swift could see the colonel scanning everything within the car, paying attention to the differences.
 
 "Where the gearstick?"
 
@@ -56,9 +59,9 @@ So this was where he will be staying for the foreseeable future. For Swift's wea
 
 As he settled in a questroom, he realized how much the future changed. There were new models of cars, of course, but they still pollute and consume fossil fuel all the same. Even Swift's electric car seemed more of a refinement than a revolution.
 
-Technology had clearly advanced, but it hasn't morphed into unrecognizable form.
+Technology had clearly advanced, but it hasn't morphed into completely unrecognizable form.
 
-For Cromwell, it was also clear that the bedroom still looked and functioned the same as it did in nineteen ninety-eight. There were the closet, dresser, drawers and the mattress, pillows, and so on. If there were any technological changes for the past seventeen years, it was unnoticeable.
+The bedroom still looked and functioned the same as it did in nineteen ninety-eight. There were the closet, dresser, drawers and the mattress, pillows, and so on. He wondered if there were some new type of fabric, or a new type of paint, or some other technological changes that's too subtle.
 
 ***
 
@@ -70,16 +73,16 @@ There were also cardboards and packages strewn around, and new laptops.
 
 "You're downright cheap," Cromwell recalled. "At least compared to government contractors."
 
-"Naturally, I expect some compensation," Swift said. "My time is expensive, but, I am not going to sucker every dimes and pennies to make a quick buck. I have enough of bullshit. I don't think I need to skewer the SGC for more of their precious resources. Now, let me get this show on the road and show you how to purchase things on the internet."
+"My time is expensive," Swift said. "There are thousands of other things that I could be doing right now, but the survival of Earth come first, yeah? Anyway, I do want your money, but it's going to be in the form of a corporation formed on both side, that's going to understand that the survival of humanity is at stake."
 
 ***
 **General George Hammond**
 **SGC, SG-Earth**
 **September 24, 1998**
 
-If anything that made Stargate Command unique, it was the fact that the organization was responsible for everything from basic science research, archaeological digs, cultural outreach, espionage and stabotage, direct strike missions, and diplomatic mission.
+If anything that made Stargate Command unique, it was the fact that the organization was responsible for everything from basic science research, archaeological digs, cultural outreach, espionage and sabotage, direct strike missions, and diplomatic mission.
 
-There was no way that General George Hammond could manage this alone. He didn't have the skillset nor wanted to handle such a dizzingly array of concerns. That meant delegation. Carter and Jackson both respectively head their own scientific department, while O'Neill handles military training and oversee special operation teams assigned here.
+There was no way that General George Hammond could manage this alone. He didn't have the skillset nor wanted to handle such a dizzyingly array of concerns. That meant delegation. Carter and Jackson both respectively head their own scientific department, while O'Neill handles military training and oversee special operation teams assigned here.
 
 Some delegation were ordered from the higher ups. One of them, CIA Station Chief Andrew Brewster was meeting with him today in his office. Hammond didn't so much give orders, but cooperate with the chief on intelligence matters, but mostly left him to his own device to manage SGC's growing spy network.
 
