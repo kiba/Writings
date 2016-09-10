@@ -58,3 +58,7 @@ Bruke Pigeon is the CIA deputy director of the Special Analytic division as well
 ### CIA Analyst Casey Martin
 
 A new analyst with a degree in physics. He was pulled from his department by Bruke Pigeon and was asked to analyze a body of fiction known as "Stargate SG-1".
+
+### Gerry Parkinson
+
+Diplomat working with the SGC.
