@@ -96,7 +96,7 @@ Our question now to you: what the hell are we involved in? Is this some sort of 
 
 Bruke stood up. "I will now answer that question for you," he said. "There were some disagreement on how to handle disclosure of information. In the end it was decided that one of the analyst team will be kept in the dark as much as possible. This is to keep analysis of the materials unbiased as long as possible. Of course, that wasn't possible in the long term. Nonetheless, you compiled materials that were different from the other analyst team."
 
-Bruke paused, before continuing again, "The Stargate is a real alien artifact, and that Deep Space Telemetry is actually a cover program for Project Deep Blue." Then he picked up a DVD. "But this? It's a complete work of fiction that happens to coincide with ours. Now, I am still not going to tell you which is which, that would bias you, but what I will tell you is those DVDs came from the future from an alternate reality."
+Bruke paused, before continuing again, "The Stargate is a real alien artifact, and that Deep Space Telemetry is actually a cover program for Project Blue Sky." Then he picked up a DVD. "But this? It's a complete work of fiction that happens to coincide with ours. Now, I am still not going to tell you which is which, that would bias you, but what I will tell you is those DVDs came from the future from an alternate reality."
 
 "Shit" Martin echoed the thoughts of his teammate.
 
@@ -109,8 +109,27 @@ So Samantha Carter circumvented that by going to the other side of the gate for 
 
 It didn't take long for her to connect to wifi and load up her email account, all the while sitting in her faux workshop.
 
-Then she started a program on the command line to politely crawl the pre-print server for physics paper.
+Then she started a program on the command line to politely crawl the pre-print server for physics papers.
 
 Then she started on her emails. Thankfully, none of her communication would be considered 'classified', but she still had to confer with the brass beforehand. Hammond determined that it was worth the small risk of information leak.
 
 Now, she found herself in animated conversations with physicists all over the world, none who know her identity.
+
+***
+**Doctor Bill Lee**
+
+The computer technicians implemented a new security policy by the order of General Hammond, with some suggestion by goodie shoe bastard John Swift. Wifi was banned, and once again, there was no direct connection to the internet. All USB ports were sealed with hot glues and CD drives taken out, unless one is interacting with a very specific computer designated for outside access, both to the alternate Earth and this one.
+
+Lee understood that it had to be done, but he didn't have to like it.
+
+Fortunately, the researchers were able to gobble enough information from the internet to last a more than a lifetime.
+
+Unfortunately, it didn't mean that SGC were able to grab everything it needed.
+
+It was his luck Doctor Lee ended up with a blank page.
+
+"I got nothing," he regretfully said. "I am filling out a request for the specific topic."
+
+There was a webcrawling program that was supposed to process all the scientist requests, even downloading from illegal sites and engaging in willful copyright infringement. Even though SGC was supposed to do things by the book, nobody said that the SGC has to lawfully obtain the information in a legal manner on a different planet. Rumors had it that it was all sequestered under the CIA's purview, bypassing the SGC counsel.
+
+Lee didn't feel the slightest guilty about all of that. There were laws that matter, such as the geneva convention, and laws that don't, such as copyright infringement. 
