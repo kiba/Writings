@@ -12,7 +12,7 @@ O'Neill couldn't believe what he was seeing on the screen. There's a dead man on
 
 "Harriman, I need to speak with the Colonel," O'Neill ordered.
 
-"Yes sir," the technician replied, before flipping the switch on the microphone. "You can speak now."
+"Yes sir," the technician said as he flipped the switch on the microphone. "You can speak now."
 
 "This is Colonel Johnathan O'Neill of United States Stargate Command, it's good to see you."
 
@@ -20,7 +20,7 @@ O'Neill couldn't believe what he was seeing on the screen. There's a dead man on
 
 "However, I am not going to take your appearance and identity as granted. I am going to ask you questions that a SGC personnel should know. This should also verify that it's us as well."
 
-O'Neill asked a series of question to which Cromwell answered to his satisfaction, including a secret question of whether Cromwell was under duress or not.
+O'Neill asked a series of questions to which Cromwell answered to his satisfaction, including a secret question of whether Cromwell was under duress or not.
 
 Then he finally got to ask a burning question. "Say, why are you standing in what looked like a brightly lit Stargate Command?"
 
@@ -38,15 +38,15 @@ O'Neill nearly froze in disbelief. "That's something...new. It's hard to believe
 
 Part of O'Neill still wondered if Cromwell is alive, even after he answered all his questions to his satisfaction.
 
-Years of special operation has taught him that ignoring reality was likely to lead to very bad things. People who died, should remain dead. Cromwell broke his rule. So he has to believe what what we seeing in front of his eyes.
+Years of special operation has taught him that ignoring reality was likely to lead to very bad things. Yet, there was a rule that was like a law of physics. People who died remained very dead. Cromwell seem to have broke this rule, but O'Neill never actually saw him die. So he has to believe what what we seeing in front of his eyes.
 
-The man who gave up his life to save Earth from a black hole is not dead.
+Frank Cromwell isn't dead.
 
 ***
 
 It didn't take long for General Hammond to get here, as his office was located nearby in this underground complex.
 
-"Frank Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
+"Colonel Cromwell, am I hearing this right? You ended up seventeen year into the future on an alternate Earth, where we are the subject of a television series?"
 
 "Yes, I believe that's about right," Cromwell affirmed.
 
@@ -90,7 +90,7 @@ There was no way for Cromwell to walk back home without first reconnecting from 
 
 "Excuse me?"
 
-"If your reality is anything like the stargate series, you guys have a tough road ahead. I can at least spare you a latest generation macbook."
+"If your reality is anything like the stargate series, you guys have a tough road ahead. I can at least spare you a latest generation computer."
 
 It wasn't long before Cromwell held a laptop in his hand. Stuff were still being chucked, but that wasn't important. If he was truly stuck in this place, he could organize it later. If not, then somebody will have to haul the items back to base.
 
@@ -150,7 +150,7 @@ Cromwell smiled slightly. It leave no doubt that the SGC is a true community tha
 
 ***
 
-The SGC dealt with galactic affair, away from the ire of the public yet Lieutenant Major General George Hammond's office was as ordinary as it could get. There's no visible alien tech inside this office just yet. However, Cromwell knew that this command was only two years old, not a whole lot of time to develop technologies.
+The SGC dealt with galactic affair, yet Lieutenant Major General George Hammond's office was as ordinary as it could get. There's no visible alien tech inside this office just yet, or what he could see. However, Cromwell knew that this command was only two years old, that's not a whole lot of time to develop technologies.
 
 There's also an extra person in this room beside Hammond and himself, a man named Irvine Fletcher, the SGC's counsel. A mostly bald man in his fifty, this man mostly melted in the background, checking over everything from agreement with aliens to non-disclosure agreement made with civilian contractors and employees.
 
@@ -188,7 +188,7 @@ While most people would sign right away, the colonel read over it. He knew that 
 
 The news coming from Hammond and Fletcher was bad and unexpected, but Frank Cromwell wasn't the kind of man to dwell in misery. As far as he was concerned, the command had taken care of his short term needs and more. They really take care of people. He may not be retiring any time soon, but the airman has it in his mind to keep going as long as possible. He couldn't scarcely imagine what he will do as a retired man. Teach military history?
 
-Still, there was one thing lingering in the back of his mind. His relation with an estranged friend and colleague, O'Neill. The legendary leader of SG-1 has showed every indication of having changed his mind, no longer showing any resentment toward him or throwing barbs his way. Still, in Cromwell's mind, it remained unresolved.
+Still, there was one thing lingering in the back of his mind; his relation with an estranged friend and colleague, O'Neill. The legendary leader of SG-1 has showed every indication of having changed his mind, no longer showing any resentment toward him or throwing barbs his way. Still, in Cromwell's mind, it remained unresolved.
 
 Cromwell approached O'Neill in a hallway.
 
@@ -204,7 +204,7 @@ Cromwell approached O'Neill in a hallway.
 
 "Yeah," O'Neill admitted, nodding. "I don't know if I believe or forgive you. Maybe I couldn't. It didn't change that I ended up in that Iraqi prison. I am sure you know what they did to prisoners there."
 
-"Yeah. The Iraqi don't care about the geneva convention or any laws of war. They torture people. Even with SRE training, I have no idea to the extent of the pain you felt."
+"Yeah. The Iraqi don't care about the geneva convention or any laws of war. They torture people. Even with SRE training, there's no way I could know idea the extent of the pain you felt."
 
 "What it feel like to die? Was there any pain?"
 
@@ -216,9 +216,13 @@ Cromwell approached O'Neill in a hallway.
 
 "Yeah, I would."
 
-"So am I forgiven?"
+"And about Iraq?"
 
-O'Neill paused, before looking straight into Cromwell's eyes. "Yeah," he said. "We're good."
+"I decided I have to move on. I can forgive you even if I still sometime live the nightmare."
+
+"So we're good?"
+
+O'Neill looked into the eyes of his friend. "Yeah. We're good."
 
 ***
 
@@ -234,9 +238,9 @@ Hammond turned his eyes toward Carter. "Can you give a summary on the connection
 
 "Thank you. We will come back on that later," Hammond said, as he leafed through the next item. "We stopped examination of the videos. O'Neill, can you summarize why for the rest of us?"
 
-"Yes sir. The videos are not consistent with our history, experience, and training, yet they continually lined up with the truth," O'Neill explained. "However, they are not reliable enough that they could be taken as gospel. We only watched a few episodes before I ordered everyone to stop watching them, but the damage is already done. Consciously or not, we will make use of the videos to inform our experience. There's no telling whether our actions will save our life or cost us as a result of the knowledge."
+"Yes sir. The videos are not consistent with our history, experience, and training, yet they continually lined up with the truth," O'Neill explained. "However, they are not reliable enough that they could be taken as gospel. We only watched a few episodes before I ordered everyone to stop watching them, but the damage is already done. Consciously or not, we will make use of the videos to inform our actions into the future. There's no telling whether our actions will save our life or cost us as a result of what we learned from the videos."
 
-"Colonel O'Neill made the correct decision," Hammond said. "That's why I repeated his order to the entire base. I also talked to the President to recommend that anyone involved be barred from those videos. However, it cannot be denied that the videos might contain precious intelligence about the future. Somebody will need to analyze the information, but it will not be the usual teams assigned to Stargate Command. It will need to be done by analysts with no knowledge of the gate and the galaxy at large. That is what I ordered and requested. Any questions?"
+"Colonel O'Neill made the correct decision," Hammond said. "That's why I repeated his order to the entire base. I also talked to the President to recommend that anyone involved be barred from those videos. However, it cannot be denied that the videos might contain precious intelligence about the future. Somebody will need to analyze the information, but it will not be the usual teams assigned to Stargate Command or to the program. It will need to be done by analysts with no knowledge of the gate and the galaxy at large, or the existence of this program. That is what I ordered and requested. Any questions?"
 
 "Is this a priority project?" Cromwell wondered.
 
@@ -252,7 +256,7 @@ Hammond turned his eyes toward Carter. "Can you give a summary on the connection
 
 "You're asking me to risk a Colonel with all the skills and experiences that entailed," Hammond said.
 
-"Sir, I would like you point out that SG-1 is composed of at three different department heads, and a defector who's the former commander for a Goa'uld system lord. You're going to risk somebody sooner or later, especially if Carter did not find out any time soon and that the address shows no sign of instability."
+"Sir, I would like you point out that SG-1 is composed of at three different department heads, and a defector who's the former commander for a Goa'uld system lord, yet you send them out into galaxy at large. I also know you're going to risk somebody sooner or later, especially if Carter did not find out any time soon and that the address shows no sign of instability."
 
 "It's too early to consider who we will be sending to the alternate Earth, but understand I will make the final personnel selection. Back to the main topic at hand, I believe that the long term goal is to build an alliance with this Earth, especially our counterpart, though I don't believe that unification is an impossibility...."
 
@@ -261,7 +265,7 @@ The meeting went on, highlighting possibilities and ideas, as well downsides and
 ***
 **Captain Samantha Carter**
 
-Captain Samantha Carter was somewhat computer literate, enough to operate safely on her own without immediately panicking. However, computing and tech support wasn't what she did for a living. That duty belonged to Chief Master Sergeant Harriman. The laptop of the future were in front of them, and he was the one operating the device, but even he has a slightly difficult time getting to where he needs to go.
+Captain Samantha Carter was somewhat computer literate, enough to operate safely on her own without immediately panicking. However, computing and tech support wasn't what she did for a living. That duty belonged to Chief Master Sergeant Harriman. The laptop of the future was in front of them, and he was the one operating the device, but even he has a slightly difficult time getting to where he needs to go.
 
 "Where do I go right now?" Harriman said, speaking to a face on the screen.
 
