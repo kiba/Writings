@@ -256,7 +256,7 @@ Hammond turned his eyes toward Carter. "Can you give a summary on the connection
 
 "You're asking me to risk a Colonel with all the skills and experiences that entailed," Hammond said.
 
-"Sir, I would like you point out that SG-1 is composed of at three different department heads, and a defector who's the former commander for a Goa'uld system lord, yet you send them out into galaxy at large. I also know you're going to risk somebody sooner or later, especially if Carter did not find out any time soon and that the address shows no sign of instability."
+"Sir, I would like to point out that SG-1 is composed of three different department heads, and a defector who's the former commander for a Goa'uld system lord, yet you send them out into the galaxy at large. I also know you're going to risk somebody sooner or later, especially if Carter did not find out any time soon and that the address shows no sign of instability."
 
 "It's too early to consider who we will be sending to the alternate Earth, but understand I will make the final personnel selection. Back to the main topic at hand, I believe that the long term goal is to build an alliance with this Earth, especially our counterpart, though I don't believe that unification is an impossibility...."
 
