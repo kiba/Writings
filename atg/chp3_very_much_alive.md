@@ -281,6 +281,6 @@ She started typing an email to a professor that she knew.
 
 A stray thought occurred to her. She might be a crackpot on the other Earth. No, if that was true, why was the computer in front of her still working, downloading and transmitting information?
 
-If she could understand a physic paper even with her outdated knowledge, then it must be that the physics are most likely the same.
+More importantly, if she could understand a physic paper even with her outdated knowledge, then it must be that the physics are most likely the same.
 
 Relieved, Carter continued writing the email.
