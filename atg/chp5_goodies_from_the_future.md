@@ -108,6 +108,47 @@ Doctor Bill Lee was next to Doctor Carter as they examined a program's innard on
 
 Earth Swift's DHD was also homebrewed as well, and Swift was quick to inform that it may be an improved version of the same software that was used on the SGC's homebrewed DHD. He was right.
 
-"Whoever made it did a very good forgery," Carter commented. "Or copied it from an alternate reality. We still don't know who and how made it. But I can see traces of codes I written."
+"Whoever made it did a very good forgery," Carter commented. "Or copied it from an alternate reality. We still don't know who did this, and how. But I can see traces of codes I written."
 
-They both know that the stargate on Earth Swift was an anomaly. It didn't make sense for the gate to be there, and it didn't really make sense for the source code of the DHD to be used there as well. Rumors had it that Cromwell couldn't find anything definite.
+"Is it really ours?"
+
+"I don't know."
+
+The duo scrolled over to a comment. "ALL PROGRAMMERS: Do not allow any pull requests from Doctor Rodney Mckay without my permission or approval. -- Doctor Samantha Carter."
+
+"Who's Rodney McKay?"
+
+Carter shrugged. "I haven't heard of this person, but it doesn't sound good either."
+
+Finally, they ended up on the really juicy part of the codebase.
+
+"I think this region of code's about gate address generation."
+
+"Huh. The history pretty deep and extensive. There's a lot of changes and improvements made. Think we can use it?"
+
+"I don't understand a whole lot of it, but it seemed to be pulling from several dozen of different astronomical sources, both from telescopes and from gate travel. But I don't see why we can't port some of the useful code over."
+
+***
+**October 9, 1998**
+
+It took a whole week for Carter and the physic team to understand some of the code, and then improve only some of them into the now obsolete DHD supercomputer, which was slated to be replaced by hardwares from Earth Swift some time in the near future.
+
+"We're ready," Harriman announced.
+
+"Good, run the program," Carter ordered.
+
+The program ran through an address generation algorithm, pinging the stargate subspace network. Viable addresses came in, eliciting excitement from the physics team.
+
+There were new viable addresses located across the galaxy. Of especially importance was addresses outside of Goa'uld space, and addresses close to home.
+
+"We did it!" Lee squee in excitement.
+
+"Yes. We can thank Earth Swift for that," Carter concurred. "Of course, the hard part is yet to come. We will need to take risk and explore those addresses."
+
+With the amount of addresses they had before, it was already going to take a lifetime. Now it might take potential generations at the resource given to the stargate program.
+
+"We're going to implement those safety code as soon as possible, right?" Bill Lee asked.
+
+"We'll need to, given that we're ignoring signals because we don't know know. Now we know."
+
+The code for gate safety was being reviewed, but it took longer because it cannot be tested as easily as the address generation algorithm.
