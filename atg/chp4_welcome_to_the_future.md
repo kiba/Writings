@@ -11,7 +11,6 @@ Either he was hallucinating vividly or that he was really witnessing reality. So
 
 Swift made a commitment some time ago to help the formerly fictional SGC with meeting with his government, forgoing any publicity and trusting that secrecy was the best approach. To be able to do that, he announced that he was taking a sudden and long vacation. Helping out the SGC wasn't something to be taken lightly at all, but it wasn't hard either. It was more like a childhood dream come true, a fulfillment of a fantasy, even though it has became a burden and a responsibility.
 
-
 Even as a billionaire, he enlisted himself to teaching them the necessary knowledge needed to navigate a modern mac computer, and how to use the internet safely and use google. There was no one else to do it. John Swift or Vincent Sinclair wasn't much of a choice at all, but they rather not let anyone else on the planet know of their existence.
 
 So when the SGC requested for a place to stay and set up operation, Swift quickly obliged.
@@ -43,6 +42,12 @@ Swift laughed in bemusement. "No, it's nothing like that. With an electric car, 
 "Because of cars like this?"
 
 "No. It's due to the stargate program. Room temperature superconductors? Antigravity? FTL travel? That's going to change automotive technology if we don't already start teleporting everywhere. It's going to be revolutionary."
+
+"I supposed you're right. But it seems it take longer than two years to make that happen."
+
+"Because of the lack of resources or scientific challenges?"
+
+"I don't know. I am just a soldier."
 
 The men got inside the car, with Swift taking the driver seat, while Cromwell took the front passenger seat.
 
