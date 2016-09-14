@@ -112,3 +112,25 @@ The president and his family were immediately transported to a 747 in the middle
 O'Neill never thought he will end up having dinner with the future President of the United States. On second thought, the butterfly effect might make it so that the African American politician would never become president.
 
 On this Earth, O'Neill was practically a household name. Granted, his television self did too many stupid things to count, but that was why he's in the white house, instead of back at the SGC.
+
+***
+**Doctor Samantha Carter**
+**October 5, 1998**
+
+Seven years ago, she was a fighter pilot annihilating her enemies from afar, bombing enemy vehicles and installations alike. Sometime she would watch people flee from the burning wrecks. More often, she moved on to other targets, and launched further attack to deny the Iraqi their equipment and ability to fight.
+
+Anti-air defenses and potential air engagements kept her cautious, and from being too complacent. It was a one-sided war, but it was still a war she experienced. It may not be direct and personal, but she still saw the aftermath of the brutality she dished out. She imagined people dying and burning in flame,
+
+Only after her tour of duty in the gulf war did she imagined those men as husbands, brothers, and fathers, maybe someone like her own father or brother, and hundred of them, if not thousands.
+
+They left behind families, because she pulled the trigger, because the military she was part of decided to mobilize to fight in this war, because her commander-in-chief decided that the invasion cannot stand, because a dictator felt that he has free reign to invade a country.
+
+In the end, she is a killer, an instrument of destruction directed at her country's enemies.
+
+Carter did not quit back then, nor did she apologize, but she did change her career trajectory.
+
+She stopped flying and went into theoretical physics. It took her to the stargate project, and then to SG-1, the flagship exploration team.
+
+SG-1's mission was to peacefully explore the cosmos, looking for ally and technology to defend Earth. Of course, Carter found herself in too many harrowing firefights against horde of Jaffa, slave soldiers of the various Goa'uld system lords, adding her death toll.
+
+Once again, she did not apologize for creating many more weeping sets of parents.

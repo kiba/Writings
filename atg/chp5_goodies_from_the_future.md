@@ -101,35 +101,13 @@ Bruke paused, before continuing again, "The Stargate is a real alien artifact, a
 "Shit" Martin echoed the thoughts of his teammate.
 
 ***
-**Captain Samantha Carter**
+**Doctor Samantha Carter**
+**October 3, 1998**
 
-Constantly reconnecting to the gate for internet access was expensive, so it had to be timed with deliveries and exchange of personnels. That was only thirty-eight minutes long.
+Doctor Bill Lee was next to Doctor Carter as they examined a program's innard on a computer several time more powerful than the supercomputer that runs the DHD.
 
-So Samantha Carter circumvented that by going to the other side of the gate for a day and work in the faux Stargate Command television set instead, with the permission of her commanding officer, of course.
+Earth Swift's DHD was also homebrewed as well, and Swift was quick to inform that it may be an improved version of the same software that was used on the SGC's homebrewed DHD. He was right.
 
-It didn't take long for her to connect to wifi and load up her email account, all the while sitting in her faux workshop.
+"Whoever made it did a very good forgery," Carter commented. "Or copied it from an alternate reality. We still don't know who and how made it. But I can see traces of codes I written."
 
-Then she started a program on the command line to politely crawl the pre-print server for physics papers.
-
-Then she started on her emails. Thankfully, none of her communication would be considered 'classified', but she still had to confer with the brass beforehand. Hammond determined that it was worth the small risk of information leak.
-
-Now, she found herself in animated conversations with physicists all over the world, none who know her identity.
-
-***
-**Doctor Bill Lee**
-
-The computer technicians implemented a new security policy by the order of General Hammond, with some suggestion by goodie shoe bastard John Swift. Wifi was banned, and once again, there was no direct connection to the internet. All USB ports were sealed with hot glues and CD drives taken out, unless one is interacting with a very specific computer designated for outside access, both to the alternate Earth and this one.
-
-Lee understood that it had to be done, but he didn't have to like it.
-
-Fortunately, the researchers were able to gobble enough information from the internet to last a more than a lifetime.
-
-Unfortunately, it didn't mean that SGC were able to grab everything it needed.
-
-It was his luck Doctor Lee ended up with a blank page.
-
-"I got nothing," he regretfully said. "I am filling out a request for the specific topic."
-
-There was a webcrawling program that was supposed to process all the scientist requests, even downloading from illegal sites and engaging in willful copyright infringement. Even though SGC was supposed to do things by the book, nobody said that the SGC has to lawfully obtain the information in a legal manner on a different planet. Rumors had it that it was all sequestered under the CIA's purview, bypassing the SGC counsel.
-
-Lee didn't feel the slightest guilty about all of that. There were laws that matter, such as the geneva convention, and laws that don't, such as copyright infringement. 
+They both know that the stargate on Earth Swift was an anomaly. It didn't make sense for the gate to be there, and it didn't really make sense for the source code of the DHD to be used there as well. Rumors had it that Cromwell couldn't find anything definite.
