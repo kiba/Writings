@@ -1,7 +1,7 @@
+# Chapter Seven: Diplomacy
 ***
 **Diplomat Gerry Parkinson**
 **Season One, Post-Episode Thirteen Season One**
-
 
 The framers of the Constitution would had never guessed for the need to make treaties with powers in the stars, or its total secrecy, or the fact that the senate wasn't going to vote on any of those treaties. That was largely up to the SGC's discretion. Those were swept under the rug under terms like "executive agreements" and other weasel terms.
 
