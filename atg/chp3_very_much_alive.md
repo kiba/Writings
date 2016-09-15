@@ -1,4 +1,4 @@
-**Chapter Three: Very Much Alive**
+# Chapter Three: Very Much Alive
 
 ***
 **Colonel Johnathan O'Neill**
