@@ -3,45 +3,59 @@
 ***
 **Colonel Frank Cromwell**
 **Swift's residence, Infopunk-Earth**
+**September 24, 2015**
 
-With all fifty thousand dollars spent, there was nothing for the colonel to do procurement wise. Still, that didn't prevent researchers from sending him impassioned flee to purchase this or that. Truth be said, laboratory equipment can get really expensive, and fifty thousand dollars can only buy so much.
+How did a fictional device came into the fortunate possession of a billionaire, let alone that device connecting to an alternate dimension? It was a recipe for a good science fiction story, but it does not fit well within his experience of reality.
 
-Swift wasn't that generous, although he acknowledge that stargate program needed everything it can get. It wasn't that urgent, he said. Once the deal on the other side of the gate was held up, he will do everything he can help both Earth.
+After two days of working to procure materials and fill out paperwork, he turned to his next objective: figure out what he can about Swift's benefactor, the person who gave the entrepreneur a working stargate.
 
-Recently, SGC sent just one personnel over, an anthropologist, to stay at Swift's residence. Cromwell no longer have to answer questions from Jackson's department. It was her job now.
+"Do you know what he look like now?" Cromwell asked the billionaire.
 
-Still, Cromwell found other things to occupy his mind with. Like how the hell a presumably fictional device end up being real in Swift's universe? That was one of Cromwell's responsibility when he discussed his new job with Hammond.
+"No, I am still drawing a blank" Swift admitted.
 
-"What does he look like?" Cromwell asked the billionaire.
+Cromwell groaned in frustration once again. He interrogated Swift backward and forward, to make sure that he wasn't concealing anything. He was pretty sure that the younger man wasn't lying, but there was always a blank about the dealer's description.
 
-"Well..ummm..I am drawing a blank," Swift said.
+Even with the receipts, billings, emails, and GPS, the location was just the meeting place the seller met John Swift in. Facebook and social media was useless since the seller use a very common English name and personal information that he cannot easily verify. It was all that he could do as an amateur investigator.
 
-Cromwell groaned in frustration. Every lead or receipt ended up with nothing. There was absolutely no proof. Yet, he felt that Swift wasn't lying. Something or somebody put the stargate there, whether that was in the deep past or just recently.
+"After an hour of trying to remember his face, I don't think you could."
 
-"So not only you don't know what his name is, but you don't know what he look like either."
+"I swear that I could. It's so close, but I just couldn't," Swift protested.
 
-"I swear! I know!" Swift protested.
-
-"Look, I believe you. But right now, there's some sort of black hole regarding any documentation on the stargate device, but there's documentation for everything."
+"I believe you, but it looks like it's the limit of my investigation ability. I kill people for a living, not analyze intelligence."
 
 "So what's next then?"
 
-"I don't know. An MRI? Somebody might messed with your brain."
+"I don't know. An MRI? Somebody might have messed with your brain."
 
 Swift didn't look a bit happy about that. "I dislike the idea of someone noodling around my brain and my life."
 
-"Somebody already did with your life. I am just trying to help you out. Otherwise, if we can't find anything on this device, it might as well an act of god."
+"If you're sick, or someone did something to your mind, you need to see the doctor."
 
-"From the ascended beings? Connecting a gate to another reality?"
-
-"It may be well 'God did it' is the answer, but I would like to see evidence for that."
+"I hate visiting the doctor," Swift muttered under his breath.
 
 ***
+**September 27**
 
-The billionaire was sitting in Fraiser's clinic in a medical grown. He wasn't sick, but Cromwell wanted him assessed. That included psychological testing as well to rule out any anomaly.
+The billionaire visited Fraiser's clinic after much persuasion. He sat through needles and blood tests, physicals, medical scans, then through psychological tests.
 
-"I am afraid that I can't find an anomaly," Fraiser said. "He got a clean bill of health, and the psychologist said that he's sound of mind as far as he can tell."
+Finally, Cromwell met with Doctor Fraiser, while the billionaire lie on a bed in a medical grown.
 
-"So no clues why I am blanking the seller of the stargate?" John Swift asked.
+"Did we find anything?" Cromwell asked.
 
-Fraiser shook her head. "I wish I know."
+"The good news is that John Swift is very healthy. All results and tests come up normal. The bad news is that we can't find anything to suggest tempering."
+
+Cromwell frown.
+
+"No clues as to why I am blanking the seller of the stargate?" John Swift asked.
+
+Fraiser shook her head. "It might be possible that we're missing something."
+
+"Even with new medical knowledge?"
+
+"Seventeen years of advance in medicine is a lot to go through. We also don't have the medical equipment."
+
+Swift was crestfallen. "What's next, Colonel?"
+
+"There's not a lot we can do until we have actual investigators," Cromwell replied. "General Hammond is concerned about leaking data, so we have to wait until the next diplomatic contact."
+
+***
