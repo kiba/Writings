@@ -1,3 +1,5 @@
+# Fire: A Brief History
+
 Fire is a peculiar form of magic that's only available to man. Like all magic, it can bend and break the laws of physics to create miraculous effects. Whereas other races and species use magic freely, man struggled under its weighty requirement; strong will and determination.
 
 Nobody knows who were the first Fire users are, but we could probably guess how they discovered it.
@@ -40,8 +42,32 @@ No one knew why the dragons decided to become a benefactor of humanity, but it w
 
 The monk answered that humanity would live in peace and harmony.
 
-Whatever the case may be, the dragons conquered and annexed the kingdoms to its rule in a matter of two decades.
+Whatever the case may be, the dragons conquered and annexed the kingdoms in only two decades.
 
-Over the next few centuries, it was a golden age for humanity. The dragons introduced many reforms that increasingly made the kingdoms wealthy, and patronize many fields at once, including the study of Fire.
+Over the next two centuries, humanity flourished over their rule. The dragons introduced many reforms that enriched the kingdoms. With the state's support and a large bureaucracy class, many field of study flourished. With greater agricultural productivity, population exploded.
 
-Fire stopped being mired in mythology and superstition, although it could never entirely be ridden of its religious connotations.
+With a cycle of virtue, the study of Fire flourished dramatically in this golden age. Religious connotation and ceremonies were stripped away until humanity discovered the core essential truth of obtaining Fire.
+
+Fire was also no longer limited to the domain of monks or chakra warriors. Fire users tried to find applications for all their power, whether it was something as grand as civil engineering, or as mundane and domestic as cooking.
+
+Far from extinguishing the Fire of humanity, peace instead strengthened the Fire.
+
+It was not inevitable that civilizations would fall, but the dragons are far from omnipotent, nor perfect. Whatever the case may be, all was not well under the dragons' rule during the last few decades of their rule. Whether it was the observance of the dragons's daily feast and the long line of taxation wagons that feed their temples, or the opulence of their treasure, or their patronage of the bureucracy; envy, greed, and suspicion grew. Religious fervor against the dragons festered and flourished.
+
+Contrary to popular beliefs, the antebellum time was a period of great prosperity. People did not suffer for the want of food, or goods they could buy. Steel was fast becoming cheap.
+
+Whatever the case may be, wars broke out. The samurai class, which by then had thrown away their swords in favor of becoming a new set of nobility, rallied their armies and their Fire users, and went to war with the dragons and their servants.
+
+Nobody knew how to fight wars by then, but the powers that was cultivated in peacetime was terrible. Horrific casualties quickly mounted, as the destruction of agricultural lands and civilians.
+
+Of course, the armies learned how to fight, but that was rendered irrelevant by the collapse of supply and the destruction of productivity that the dragons and their bureaucrats cultivated.
+
+Whatever the case may be, the years of war eventually driven out the dragons, but at a great cost. Libraries and monasteries were ransacked and destroyed. Famine and diseases spread across the land. Hordes of beasts and monsters invaded the kingdoms, destroying what's left of the samurai's armies.
+
+With the population crash, Fire users declined in number and efficacy. Most masters who survived the war failed to find anyone to pass down their knowledge. It was also a period of anarchy, which interrupted the production of papers and other materials necessary for preserving knowledge.
+
+The samurai nobility were despised for their greed and wanton destructions. Nobody called themselves a samurai ever again.
+
+However, ninjas survived. They were a type of fire users who did not turn down works that were 'beneath' them, performing all kind of missions, and their members can be anyone.
+
+Eventually, they grew to encompass the majority of Fire users, consuming any and all other classes of users.
