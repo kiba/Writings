@@ -143,4 +143,88 @@ That's why he called in the FBI to deal with it after confirming that the impers
 
 "Do you have anything on this man?" he asked.
 
-"Sorry, nothing yet. This man refused to give out his real name or his motive. He fed us a bunch of science fiction fantasies. But he told us that there were classified document in the suitcase."
+"Not yet," agent Fox answered. "This man refused to give out his real name or his motive. He fed us science fiction stories, but he told us that there were classified document in the suitcase. That's where you come in. Tell us if it has any authenticity."
+
+The agent opened up the suitcase to revealed a cartload of documents, all marked top-secret. Wellford examined it, and it didn't take long for him to come to a conclusion.
+
+"I should put it back," the commander said. "It's real to my eyes, but it's almost two decade old."
+
+"Are we..."
+
+"I don't know if it's authentic without further verification, but I can see that it's not for my eyes only."
+
+"So, we might not be dealing with just any crank, but a crank in possession of national secrets, or a man who happens to be very good at faking documents."
+
+"It's shaping up to be an interesting case."
+
+"Good thing he fell right into our lap, then."
+
+***
+**FBI Special Agent Ben Brown**
+
+A faker shown up in the state of Nevada, impersonating a diplomat. Strangely, he was good at it too, giving out too detailed description of a diplomat's personal life. Well, agent Ben Brown was there at the diplomat's house, to find that out, with a truck nearby with equipment for hunting bugging device.
+
+It was a huge mansion, with well manicured lawns in a middle class neighborhood that was about to become the scene of a crime.
+
+He knocked on the door and rang the doorbell. It only took a moment for the door to answer.
+
+"Hello," the woman who is the diplomat's wife asked.
+
+"I am special agent Ben Brown with the FBI. We have a search warrant for your house. We have reasons to believe that your house might be bugged..."
+
+The woman looked absolutely shocked. "Is it because of....the Chinese?" she wondered.
+
+"Ma'am, we don't know for sure, yet."
+
+"Can you explain what's going on?" Mrs. Parkinson asked the seated agent in the living room.
+
+"Ma'am, somebody's impersonating your husband. He also knew in imitate details about your life in too much details. Details that your husband confirmed as true. We suspected that you were being spied upon."
+
+"Can you show me what he look like?"
+
+The agent showed the picture of the man.
+
+"That's...my husband!"
+
+"I am sorry?"
+
+"Hold on, let me get my photobook."
+
+Sure enough, the man eerily resembled the photo.
+
+"Are you sure that this is what your husband look like?"
+
+"Uh huh."
+
+It took hours for the team to comb every inch of the diplomat's house, but in the end, they found absolutely nothing. There was no bugs in the house.
+
+He even got the wife to ask very personal questions to the impersonator that only her husband would now. If it was anything more than seventeen years ago, this man knew, but past that? He didn't know a thing.
+
+What was that supposed to mean?
+
+***
+**FBI Agent Daniel Fox**
+
+He thought that this man in the interrogation room was a simple crank, an annoying agitator that he would write up. Yet, he wasn't even closing in to the truth.
+
+The DNA profiles didn't find anything, neither did his fingerprints.
+
+The man never quite bulge in the story either, except for one momentarily lapse.
+
+"So why did you lie about bugs?" Fox asked.
+
+The fake diplomat snorted, then he became visibly angry. "What are you going to think what's going to happen? I am saying the truth all alone, then you believed my lie in my moment of weakness."
+
+"Weakness?"
+
+"Yes, weakness. Eventually, I'll just tell you the story that you wanted to hear, because I am tired, hungry, and sick of your incessant questioning." Then the fake diplomat stood up abruptly. "I did not want my wife's privacy violated!"
+
+"If you stopped compulsively lying and tell me the truth, then none of this would had happened."
+
+"I. AM. NOT. LYING!"
+
+"Alright then. Would you have me do to disprove or prove your story?"
+
+The fake diplomat smiled. "Take my DNA and compare it to your diplomat. It'll be the same."
+
+"I'll have to get the diplomat's permission, then."
