@@ -97,28 +97,28 @@ Some delegation were ordered from the higher ups. One of them, CIA Station Chief
 
 "Then as far as we're concerned, we're done with him."
 
-"As long as the deposition of Mr. Swift don't change change, then yes, we should be alright."
+"We still need to keep a watch on him. If Swift's deposition changed, we'll let you know."
 
 "Let's move on to the next topic. I asked you to provide a plan on how to contact his government."
 
-The greying man cleared out his throat, before handling him the folder. "I believe this will be mostly a diplomatic operation, rather than an intelligence one, but it still require our expertise in planning covert operation. The overall plan is as followed, our diplomatic envoy will deliver himself to a military base, which will get him arrested. In a briefcase are all select classified materials that will prove our story. The envoy himself will be a double of the one that existed on their Earth."
+The greying man handed Hammond a folder. "I believe this will be mostly a diplomatic operation, rather than an intelligence one, but it still require our expertise in planning covert operation. The overall plan is as followed: Our diplomatic envoy will deliver himself to a military base, which will get him arrested. In a briefcase are all select classified materials that will prove our story. The envoy himself will be a double of the one that existed on their Earth."
 
-"Proving our story by using classified materials and catching their attention? If they don't believe it, then something might happen that the materials will be released to the public."
+"Catching their attention by using classified materials and proving our story using a doppleganger? If they don't believe it, then something might happen that the materials will be released to the public."
 
-"It's a calculated risk. My analysts will select materials that will be of interest to that government yet not pose a dangerous threat to national security if exposed. The president will be giving his own take. If it's a GO, then we'll execute the plan."
+"It's a calculated risk. My analysts will select materials that will be of interest to that government yet not pose too much of a risk to national security should it be exposed to their public. The president himself will be reviewing the documents before we have a go."
 
 "I understand. When will I expect this to be done?"
 
-"Three weeks is the deadline. "
+"I given my team a deadline of three weeks to prepare for this mission."
 
 ***
 **Colonel Frank Cromwell**
 **Hawthorne, Infopunk-Earth**
 **September 25, 2015**
 
-The future wasn't only defined by what's there, but also what's missing. A common form of reference between nineteen ninety-eight and two thousand fifteen was the television. The device was much flatter, while providing greater clarity and resolution. However, the biggest change was the programming. The owner of the house declined to get any cable at all, instead subscribing to services like 'youtube' and 'netflix'.
+The future wasn't only defined by what's there, but also what's missing. A common form of reference between nineteen ninety-eight and two thousand fifteen was the television screen. The device was much flatter, while providing greater clarity and resolution. However, the biggest change was the programming. The owner of the house declined to get any cable at all, instead subscribing to services like 'youtube' and 'netflix'.
 
-Another change that Cromwell didn't expect was the disappearance of the landline. His host told him, that like cable, it was outdated. Instead, everyone carried 'smartphones', a mobile general purpose computing device cramped into the form of a cellphone. It didn't really look like the cellphone he remembered, but that was the explanation.
+What Cromwell also didn't expect was the disappearance of the landline phone. His host told him, that like cable, it was outdated. Instead, everyone carried 'smartphones', a mobile general purpose computing device cramped into the form of a cellphone. It didn't really look like the cellphone he remembered, but that was the explanation.
 
 Only later, Cromwell understood that not everyone cut out cable or their landline, but it was steadfastly becoming the case.
 
@@ -128,7 +128,7 @@ Yet, there were some aspects that still mystified the airman. "What do people us
 
 The colonel didn't know how to think about this. Here was a man who reveled in 'living in the future' and 'forcefully creating the future', yet he completely failed to adopt certain technologies. Swift was a technophile until he wasn't. Maybe the technologist was stuck in his own past vision of the future?
 
-Whatever the case may be, he didn't come here to do nothing. It wasn't in the Colonel's nature to be completely useless or lazy, even if he has to fly a desk. Luckily, SGC supplied him some homework. Doctor Jackson saw fit to provide a daily questionnaire and language worksheets from his department. O'Neill wanted him to buy and read books about the wars that this country's military had campaigned in since ninety-eight. Carter did tried to give him homework, but it became quickly clear that Cromwell wasn't well versed in that field, so it was dropped. Ditto for the medical department.
+Whatever it happens to be, he didn't come here to do nothing. It wasn't in the Colonel's nature to be completely useless or lazy, even if he has to fly a desk. Luckily, SGC supplied him some homework. Doctor Jackson saw fit to provide a daily questionnaire and language worksheets from his department. O'Neill wanted him to buy and read books about the wars that this country's military had campaigned in since ninety-eight. Carter did tried to give him homework, but it became quickly clear that Cromwell wasn't well versed in that field, so it was dropped. Ditto for the medical department.
 
 That led him to spending countless hours on the laptop in Swift's dining room, reading and writing answers questions in word document, encrypting it, and saving it on a usb drive. Swift made it clear that there were surveillance on online email account, if not necessary by his own government, but certainly by corporations.
 
