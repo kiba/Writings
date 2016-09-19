@@ -76,4 +76,4 @@ Of the Fire users that survived the war, ninjas were the most numerous. Ninjas e
 
 They also understood warfare better than anyone else, having taken on jobs patrolling the wilderness fighting monsters and enemies. Lastly, they understood when their flame of their Fire was too much, allowing them to retreat rather than fight pointless battles to the death.
 
-Other fire users do exist, but none can contest the supremacy of the ninjas.
+Other fire users do exist, but none can contest the supremacy of the ninja.
