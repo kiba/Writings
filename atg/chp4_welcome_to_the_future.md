@@ -142,7 +142,7 @@ A light flickered on. The billionaire was present, dressed in a business suit, l
 
 "It provided useful insight on how to conduct asymmetrical warfare. We cannot hope to stand up to the Goa'uld in a straight fight."
 
-"No starship enterprise?"
+"No USS Enterprise?"
 
 "Oh, we'll still build starships, but we have to be realistic about confronting something much bigger than us. It's David versus Goliath."
 
