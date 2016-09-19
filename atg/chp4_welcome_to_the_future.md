@@ -11,7 +11,7 @@ Either he was hallucinating vividly or that he was really witnessing reality. So
 
 Swift made a commitment some time ago to help the formerly fictional SGC with meeting with his government, forgoing any publicity and trusting that secrecy was the best approach. To be able to do that, he announced that he was taking a sudden and long vacation. Helping out the SGC wasn't something to be taken lightly at all, but it wasn't hard either. It was more like a childhood dream come true, a fulfillment of a fantasy, even though it has became a burden and a responsibility.
 
-Even as a billionaire, he enlisted himself to teaching them the necessary knowledge needed to navigate a modern mac computer, and how to use google and browse the internet safely. There was no one else to do it. John Swift or Vincent Sinclair wasn't much of a choice at all, but they rather not let anyone else on the planet know of their existence.
+He enlisted himself to teaching them the necessary knowledge needed to navigate a modern mac computer, and how to use google and browse the internet safely. There was no one else to do it. John Swift or Vincent Sinclair wasn't much of a choice at all, but they rather not let anyone else on the planet know of their existence.
 
 So when the SGC requested for a place to stay and set up operation, Swift quickly obliged.
 
@@ -23,7 +23,7 @@ Colonel Frank Cromwell emerged from the pool-like portal, the energy field colla
 
 "Good to see you as well, Mr. Swift," Cromwell replied back. "Where Sinclair?"
 
-"Probably working at a cafe writing his novel. I already have a place for you to stay at. I'll be driving you there." It was Swift's house. The Colonel lacked proper identification, let alone currencies. Any nineteen ninety-eight dollars might land Swift and Cromwell in the eyes of the authorities. There was no other places that he could stay at.
+"Probably working at a cafe writing his novel. I already have a place for you to stay at. I'll be driving you there." It was Swift's house. The Colonel lacked proper identification, let alone currencies. Any nineteen ninety-eight dollars might land Swift and Cromwell in the eyes of the authorities.
 
 "No butler?"
 
@@ -64,7 +64,7 @@ So this was where he will be staying for the foreseeable future. For Swift's wea
 
 As he settled in a questroom, he realized how much the future changed. There were new models of cars, of course, but they still pollute and consume fossil fuel all the same. Even Swift's electric car seemed more of a refinement than a revolution.
 
-Technology had clearly advanced, but it hasn't morphed into completely unrecognizable form.
+Technology has clearly advanced, but it hasn't morphed into completely unrecognizable form.
 
 The bedroom still looked and functioned the same as it did in nineteen ninety-eight. There were the closet, dresser, drawers and the mattress, pillows, and so on. He wondered if there were some new type of fabric, or a new type of paint, or some other technological changes that's too subtle to see and understand.
 
@@ -78,7 +78,7 @@ There were also cardboards and packages strewn around, and new laptops.
 
 "You're downright cheap," Cromwell recalled. "At least compared to government contractors."
 
-"My time is expensive," Swift said. "There are thousands of other things that I could be doing right now, but the survival of Earth come first, yeah? Anyway, I do want your money, but it's going to be in the form of a corporation formed on both side that understand that the survival of humanity is at stake."
+"My time is expensive," Swift said. "There are thousands of other things that I could be doing right now, but the survival of Earth come first, yeah? I do want your money, but it's going to be in the form of a corporation formed on both side that understand that the survival of humanity is at stake. Then the price you're paying to my business will be more comparable to those contractors, but it will be cheaper than the eye-gouging businesses."
 
 ***
 **General George Hammond**
@@ -109,7 +109,7 @@ The greying man handed Hammond a folder. "I believe this will be mostly a diplom
 
 "I understand. When will I expect this to be done?"
 
-"I given my team a deadline of three weeks to prepare for this mission."
+"I gave my team a deadline of three weeks to prepare for this mission."
 
 ***
 **Colonel Frank Cromwell**
@@ -124,7 +124,7 @@ Only later, Cromwell understood that not everyone cut out cable or their landlin
 
 With 'limited' entertainment option, Cromwell eventually turned to the the glowing screen of a newly purchased laptop and its connection to the internet. The internet of the future was far more captivating and rich than what was available in nineteen ninety-eight. In his downtime, he browsed the web like a zombie, subsisting on various media.
 
-Yet, there were some aspects that still mystified the airman. "What do people use?" he would say. The billionaire would supply a number of things that young people use that Swift himself cared not to use. To be honest, he didn't care about twitter or facebook either.
+Yet, there were some aspects that still mystified the airman. "What do people use?" he would say. The billionaire would supply a number of things that young people use that Swift himself cared not to use. To be honest, he didn't care or understand twitter or facebook.
 
 The colonel didn't know how to think about this. Here was a man who reveled in 'living in the future' and 'forcefully creating the future', yet he completely failed to adopt certain technologies. Swift was a technophile until he wasn't. Maybe the technologist was stuck in his own past vision of the future?
 
@@ -148,7 +148,7 @@ A light flickered on. The billionaire was present, dressed in a business suit, l
 
 "Isn't that how we won the war against the Goa'uld in the series?"
 
-"I am not inclined to use fiction as evidence, Mr. Swift, even ignoring the cases of deus ex machina being used repeatedly to solve problems."
+"I am not inclined to use fiction as evidence, Mr. Swift."
 
 "I heard your SG-1 is a bit like the series' SG-1."
 
