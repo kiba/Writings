@@ -7,6 +7,7 @@ Magic is the ability to bend and break the laws of physics to create 'miraculous
 
 Mankind sat somewhere in the middle, unique in its difficult requirement. We called our magic 'Fire', given the enormous requirement needed; willpower and determination.
 
+## Early History
 Nobody knows who were the first Fire users are, but we could probably guess how they discovered it.
 
 In the beginning, there was no cities, towns, or settlements. However, monsters and beasts stalked the land.
@@ -17,11 +18,14 @@ However, ingenuity wasn't always enough. Monsters are still more powerful than m
 
 It is in those moments that the display of courage and heroism would be felt. Through the sheer force of will and determination, a hero might achieve victory, or they might die in the attempt.
 
-Those who survived their moments of heroism would obtained Fire.
+Those who survived their moments of heroism would obtain Fire.
 
 It wasn't unsurprising that Fire was strongly associated with heroism for as long as we could remember.
 
-Fire, however, was very difficult to obtain, and with so few Fire practitioners, any knowledge or kernel of insight was easily lost.
+Given the difficulty of obtaining it, there are too few Fire practitioners. Any knowledge or kernel of insight was easily lost. Thus, practitioners are unlikely to obtain skills beyond the most obvious.
+
+
+## The Beginning of True Knowledge
 
 Mankind did not understand how to obtain Fire for a long time. There were all sort of rituals associated with Fire, and many tales on how to obtain Fire, but they all ultimately did nothing.
 
@@ -43,9 +47,12 @@ With reliability came the prospect of study, systemization, and demysterization.
 
 Nonetheless, for as long as the monasteries were not molested by those who bear ill intention, their library would continue to accumulate magical knowledge generations after generations.
 
+
+## The Age of Dragon
+
 It wasn't until the Age of Dragons that the study of Fire took off.
 
-No one knew why the dragons decided to become a benefactor of humanity, but it was rumored that a monk took care of a heavily injured dragon. In recognition of the monk's kindness, the dragon offered a boon. The monk answered that humanity would live in peace and harmony with each other. Rather than rejecting the wish, the Dragon saw that the wish was very worthy in itself.
+No one knew why the dragons decided to become the benefactor of humanity, but it was rumored that a monk took care of a heavily injured dragon. In recognition of the monk's kindness, the dragon offered a boon. The monk answered that humanity would live in peace and harmony with each other. Rather than rejecting the wish, the Dragon saw that the wish was very worthy in itself.
 
 Whatever the truth may be, the dragons conquered and annexed the kingdoms in only two decades.
 
@@ -57,22 +64,29 @@ Fire was also no longer limited to the domain of monks or chakra warriors. Fire 
 
 Far from extinguishing the Fire of humanity, peace instead strengthened the Fire.
 
-It was not inevitable that civilizations would fall, but the dragons are far from omnipotent, nor perfect, but they were imperfect enough that the fall did came. All was not well under the dragons' rule during the last few decades of their rule. Whether it was the observance of the dragons's daily feast and the long line of taxation wagons that feed their temples, or the opulence of their treasure, or their patronage of the bureaucracy; envy, greed, and suspicion grew. Religious fervor against the dragons festered and flourished.
+
+## The Fall
+
+The dragons are far from omnipotent, nor are they perfect. All was not well under the dragons' rule during the last few decades of their rule. Whether it was the observance of the dragons's daily feast and the long line of taxation wagons that feed their temples, or the opulence of their treasure, or their patronage of the bureaucracy; envy, greed, and suspicion grew. Religious fervor against the dragons festered and flourished.
 
 Contrary to popular beliefs, the antebellum time was a period of great prosperity. People did not suffer for the want of food, or goods they could buy. Technology and science steadfastly improve the economy, but those introduced drastic changes to society. It must have alarmed the power structure that was in place since the beginning of the dragon age.
 
 Discontent eventually broke into war. The samurai class, which by then had thrown away their swords in favor of becoming a new set of nobility, rallied their armies and their Fire users. Their armies met the dragons and their servants on the battlefields, in the dragons' temples, and in the cities and settlements.
 
-Nobody knew how to fight wars by then, but the centuries of peace has cultivated Fire into a terrible weapon. Horrific casualties quickly mounted with the destruction of the environment around them. Ironically,t he worst offenders were the fire users. Sheer determination overcame their sense of self-preservation, and they would frequently fight to the death.
+Nobody knew how to fight wars by then, but the two centuries of peace has cultivated Fire into a terrible weapon. Horrific casualties quickly mounted with the destruction of the environment around them. Ironically,t he worst offenders were the fire users. Sheer determination overcame their sense of self-preservation, and they would frequently fight to the death.
 
 Of course, with countless battles, sieges, and skirmishes, the armies relearned their skills, but that
-was rendered irrelevant by the collapsing logistics. When the samurai lords cannot pay their soldiers, armies often devolved into bandits, looting everything around them, further destroying sustainability.
+was rendered irrelevant by the collapsing logistics. When the samurai lords cannot pay their soldiers, armies often devolved into bandits, looting everything around them, further destroying the foundation of civilization.
 
-The years of war eventually driven out the dragons, but the victory was absolutely worthless. Libraries and monasteries were ransacked and destroyed. Famine and diseases spread across the land. Hordes of beasts and monsters invaded the kingdoms, destroying what's left of the aftermath, plunging the kingdoms into a new dark age.
+The years of war eventually driven out the dragons, but the victory was absolutely worthless. Libraries and monasteries were ransacked and destroyed. Famine and diseases spread across the land. Hordes of beasts and monsters invaded the kingdoms, destroying what's left of the aftermath, plunging the kingdoms into a new dark age, until there is only one Kingdom that we know of.
+
+Maybe there are other surviving kingdoms, we do not know, but we prayed and hoped that the other kingdoms did.
 
 With the population crash, Fire users declined in number and efficacy. Fire masters who survived frequently could not find apprentices, and often found themselves too busy trying to survive.
 
-The great majority of the blame went to the samurai nobility, regardless of which side they were on. From then on, the word 'samurai' was a cause for disdain and disgust.
+The great majority of the blame went to the samurai nobility, regardless of which side they were on. From then on, the word 'samurai' was more like an insult. The nobility retreated from that heritage as much as they can.
+
+## The Ninjas
 
 Of the Fire users that survived the war, ninjas were the most numerous. Ninjas emerged in the warring states period, doing jobs that most samurai find distasteful, such as spying and assassinations. They were open to everyone, regardless of their class. After the ennoblement of samurais, which restricted their Fire users further, the ninjas expanded the kind of jobs they will do, even as they were forced to abandon certain jobs as being illegal.
 
