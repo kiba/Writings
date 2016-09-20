@@ -3,7 +3,9 @@
 
 # Fire: A Brief History
 
-Fire is a peculiar form of magic that's only available to man. Like all magic, it can bend and break the laws of physics to create miraculous effects. Whereas other races and species use magic freely, man struggled under its weighty requirement; strong will and determination.
+Magic is the ability to bend and break the laws of physics to create 'miraculous effects', such as fireball and rains without the necessary fuel or humidity. It can sometime be referred to as 'chakra', or 'mana', or any other names. Some species, such as Dragons, are able to use magic freely, having been born with those ability unlocked. While other species are unable to use magics at all.
+
+Mankind sat somewhere in the middle, unique in its difficult requirement. We called our magic 'Fire', given the enormous requirement needed; willpower and determination.
 
 Nobody knows who were the first Fire users are, but we could probably guess how they discovered it.
 
