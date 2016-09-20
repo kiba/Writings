@@ -227,4 +227,4 @@ The fake diplomat snorted, then he became visibly angry. "What are you going to 
 
 The fake diplomat smiled. "Take my DNA and compare it to your diplomat. It'll be the same."
 
-"I'll have to get the diplomat's permission, then."
+Fox sneered at that obvious lie. "I'll have to get the diplomat's permission, then."
