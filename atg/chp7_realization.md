@@ -53,3 +53,48 @@ Not only it was classified documents that this impersonator stolen, but top secr
 They're sending somebody out to talk to the criminal.
 
 Damn it. Every time he got closer and closer to the truth, it played right into the impersonator's hand. Now the fake diplomat was getting what he wanted, an audience with a state official.
+
+***
+**Gerry Parkinson**
+
+If nothing happened, Parkinson would need to wait at least a week before SGC enacts their contingency plan. Meanwhile, Parkinson was forced to wait in a jail cell inside the military base.
+
+It was not a surprise. He went into this mission knowing what could happen, and he did a three day stays in a simulated jail to understand the consequence.
+
+He was more worried about convincing the FBI, which in any other situation, would wisely believe that he wasn't who Parkinson said he was.
+
+The only entertainment he has access to was the twenty-four hours news, which was always showing one more negative event after another.
+
+"You have a visitor," the guard said.
+
+***
+
+To his happy surprise, he sat down to confront a man who wasn't from the FBI. It was the Secretary of State. Gerry Parkinson knew that man and every senior members of the President's administration.
+
+"So, you're quite the mystery man," the secretary of state said. "Explain to me how you obtained information."
+
+"I have been authorized by my government to release those information to prove that I am something worth talking about," Parkinson answered.
+
+"By release, you mean leaking classified information from seventeen years ago and earlier."
+
+"It is a risk," Parkinson admitted. "But a necessary one."
+
+"Like the FBI agent right beside me, I don't believe you," the secretary bluntly said.
+
+"Now that you're here, I can give you information that would prove my story."
+
+"Another one of you rabbit hole?"
+
+"It's the real thing.."
+
+"Just to be clear, if you tricked us, we will throw the book at you, and any one of your associate," Fox warned.
+
+"Let's get this over with, shall we?" the secretary said.
+
+Gerry Parkinson spilled out the address of the gate location, and how to get there.
+
+***
+**The President**
+**White House, Infopunk-Earth**
+
+Someone has stolen still-classified materials seventeen years ago. The president don't know where and how, but he knew that a man in Nevada was responsible for it. This man also told the FBI team and the screctary of state where to find such information.
