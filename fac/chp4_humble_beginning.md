@@ -1,5 +1,6 @@
 # Chapter Four: Humble Beginning
 
+***
 **Entry One**
 
 It's different from playing the game for sure, because I am not staring overhead at a map. To fix that, I build a drone out of spare parts out of the nanofab so that I can have a overhead vision of my environment.
@@ -12,6 +13,7 @@ Next to the drone, I chose to build a turret first before doing anything else, w
 
 Unfortunately, it took an hour to build.
 
+***
 **Entry Two**
 
 Andy: Hey, when we are going to land?
@@ -46,6 +48,7 @@ Andy: !@##$R scammer! I want my fucking money back!
 
 [I]Engineer disconnects.[/I]
 
+***
 **Entry Three**
 
 Andy started a temper tantrum after hearing my assessment on the corporation that he hired. Suffice to say, I shut him off, hope that he doesn't blow up the ship, and get back to work.
@@ -60,18 +63,22 @@ Then I fabbed a drone to scout the rest of the environment.
 
 Another limitation I discovered: my power armor do not have any fabbing capability.
 
+***
 **Entry Four**
 
 Biters found. Help!
 
+***
 **Entry Five**
 
 My first biter kill, ripped apart from conveniently placed turret.
 
+***
 **Entry Six**
 
 I found a blueprint for manufacturing graphene chips. Excellent.
 
+***
 **Entry Seven**
 
 Betty: I am sorry for my husband's outburst and I am sorry that my husband stranded us here forever.
@@ -94,30 +101,36 @@ Betty: What? I can't do that! That's horrible. No, I'll never do it.
 
 Engineer: I can't claim that this is moral, but we all have to make horrible choices when confronted with a hostile reality. Good day.
 
+***
 **Entry Eight**
 
 It was a good thing that I already set up walls, because the biters are already attacking. If this were the moon, the pollutants wouldn't be a problem. Unfortunately, we're on a garden planet, which was not the exactly the kind of location that the mining toolkit was designed for.
 
 Their loud screech and shrill really hurt my ears, so I filtered it out.
 
+***
 **Entry Nine**
 
 I finally set up a research lab. It's actually a supercomputer with a VI designed for research. Eventually, it will grow into a powerful AI.
 
 You don't actually feed arbitrary items into the lab, but you do need to build a research complex to do research.
 
+***
 **Entry Nine**
 
 I built a biology lab to do research. Alien corpses are getting dissected and analyzed. Yay!
 
+***
 **Entry Ten**
 
 Fuck! There's giant flying biters. They're getting over my walls, sometime transporting a land biter. Then they wreck havoc with my infrastructure.
 
+***
 **Entry Eleven**
 
 I started building drones. They're slow as hell and required a lot of electricity. Now my base can auto-repair.
 
+***
 **Entry Twelves**
 
 Andy: TALK TO ME GOD DAMN IT!
@@ -138,7 +151,7 @@ Engineer: No, I told her if she deemed it necessary, she will kill you. I didn't
 
 Andy: We don't keep secrets.
 
-Engineer: That's nice. A question: are you going to kill me if I come up in orbit and try to rescue the colony ship.
+Engineer: That's nice. A question: are you going to kill me if I come up in orbit and try to rescue the colony ship?
 
 Andy: No.
 
