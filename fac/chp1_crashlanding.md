@@ -4,6 +4,14 @@ No idea where I am going to go with this...
 
 ***
 
+Dear Engineer,
+
+Your goal is to survive and start a civilization.
+
+Sincerely, ROB.
+
+***
+
 Shit! Frak! Fuck! Jesus!
 
 No amount of curses will change a thing.
