@@ -105,4 +105,44 @@ Eventually, that led the FBI director to order a secret raid on an abandoned war
 
 "We know that our sole contact has a DNA match with one of our diplomat, Gerry Parkinson," an FBI agent on the case informed. "He also claimed to be Gerry Parkinson himself and knew in details secret personal details of the diplomat wife. He also possessed highly classified materials from seventeen years ago. It's all consistent with his narrative."
 
-"We knew absolutely nothing beyond what he wanted to tell us," another one of his advisor concluded. 
+"We knew absolutely nothing beyond what he wanted to tell us," another one of his advisor concluded.
+
+The president rubbed his head. "We'll continue with the operation. See if we find out."
+
+Everyone, including the president, munched on their pizza, as they watched via satellite communication, conducted the raid.
+
+The FBI squads went through each room methodically, finding absolutely nothing, but it didn't take long to find the center.
+
+There it was, a ring like structure in the middle of the warehouse. In front of it was a robot with an iPad mounted on it.
+
+"What the hell is that?" Agent Fox said.
+
+"This is Gerry Parkinson speaking," the ipad said. "It looked like you have entered the warehouse. The stargate is set to trigger in thirty seconds. Please clear away from the stargate, as it is dangerous...."
+
+"Everyone out!" Agent Fox said in a panic, leaving all but a quadropter drone behind.
+
+Nothing happened. There was no bomb, but the gate triggered, rotating.
+
+"What in the world?" the president said. The most unexpected thing happen. It was just like a scene from a television series.
+
+"It's....a stargate."
+
+Another robot rolled out. This robot didn't like a bit like Curosity and it was ugly as hell. It also held up another iPad.
+
+The iPad turned on, showing a very familiar face.
+
+"Hello? Testing, testing. To whom am I speaking?" O'Neill said. "Why the hell is this place empty?"
+
+Everyone was speechless.
+
+"I think we are in an episode of Stargate SG-1," the most powerful man in the world said.
+
+***
+
+It was distrubing to the president. The other Earth has penetrated his society for a few weeks, suborned a billionaire, and set to cladinestely gathered intelligence on his United States.
+
+They were presumably friendly, but it dawn on him that other more hostile powers might be capable of doing the same.
+
+"General Hammond," the president greeted on a secure encrypted channel. "I am sorry we haven't met under better circumstance."
+
+"No problem, Mr. President. We anticipated this problem in our planning. "
