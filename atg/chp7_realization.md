@@ -52,7 +52,7 @@ Not only it was classified documents that this impersonator stolen, but top secr
 
 They're sending somebody out to talk to the criminal.
 
-Damn it. Every time he got closer and closer to the truth, it played right into the impersonator's hand. Now the fake diplomat was getting what he wanted, an audience with a state official.
+Damn it. Every time he got closer and closer to the truth, it played right into the impersonator's hand. Now the fake diplomat was getting what he wanted, an audience with the department of state.
 
 ***
 **Gerry Parkinson**
@@ -75,26 +75,34 @@ To his happy surprise, he sat down to confront a man who wasn't from the FBI. It
 
 "I have been authorized by my government to release those information to prove that I am something worth talking about," Parkinson answered.
 
-"By release, you mean leaking classified information from seventeen years ago and earlier."
+"By release, you mean leaking classified information from seventeen years ago and earlier? I am sure that one person can't do it alone. WHat's your motive?"
 
-"It is a risk," Parkinson admitted. "But a necessary one."
+"It is a risk," Parkinson admitted, completely ignoring the accusation. "But a necessary one."
 
-"Like the FBI agent right beside me, I don't believe you," the secretary bluntly said.
+"Like the FBI agent right beside me, I don't believe you," the secretary bluntly said. "Your story is completely absurd. It's more likely that you simply stole it."
 
-"Now that you're here, I can give you information that would prove my story."
+"If I were in your position, then I would think the same thing, yes. Since you're here, I am now authorized to prove my story once for all. I am sure you understand the importance of secrecy here."
 
 "Another one of you rabbit hole?"
 
-"It's the real thing.."
+"I assure you, it's the real thing."
 
-"Just to be clear, if you tricked us, we will throw the book at you, and any one of your associate," Fox warned.
+"This is your last chance to come clean and rat out your associate," Fox warned. "Your complete failure to cooperate will be duly noted by the court."
 
-"Let's get this over with, shall we?" the secretary said.
+"There are no lies for you to dig through, Fox," Parkinson said in annoyance.
 
-Gerry Parkinson spilled out the address of the gate location, and how to get there.
+Then Parkinson spilt the GPS coordinate of the warehouse that housed the stargate. It was located in a conveniently deserted industrial zone.
 
 ***
 **The President**
 **White House, Infopunk-Earth**
 
-Someone has stolen still-classified materials seventeen years ago. The president don't know where and how, but he knew that a man in Nevada was responsible for it. This man also told the FBI team and the screctary of state where to find such information.
+Someone has stolen still-classified materials seventeen years ago. The president don't know where and how, but he knew that a man in Nevada was responsible for it. This man also told the FBI team and the secretary of state where to find the next clue.
+
+Eventually, that led the FBI director to order a secret raid on an abandoned warehouse. The criminals were at least courteous enough to choose an out-of-way location.
+
+"Are we walking into a trap?" he wondered out loud to the people in the room. "What do we know?"
+
+"We know that our sole contact has a DNA match with one of our diplomat, Gerry Parkinson," an FBI agent on the case informed. "He also claimed to be Gerry Parkinson himself and knew in details secret personal details of the diplomat wife. He also possessed highly classified materials from seventeen years ago. It's all consistent with his narrative."
+
+"We knew absolutely nothing beyond what he wanted to tell us," another one of his advisor concluded. 
