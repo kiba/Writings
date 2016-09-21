@@ -2,7 +2,7 @@ I groaned in pain as the console beeped so many annoying sounds.
 
 The console shown that there was massive structural damage from the shuttle, especially the bottom and the front of the ship. Thankfully, I was well protected since I was located near the core of the ship.
 
-But the rocket engines that was required to get me off this planet was totaled.
+The rocket engines were thankfully not totaled, but it means zip with the loss of structural integrity and insufficient fuels.
 
 Fuck.
 
@@ -14,13 +14,13 @@ Some people just has this raging boner for living on planets, no matter the disa
 
 In any case, it led to a series of unlikely events that forced me to depart via shuttle. I was planning to land on its moon, look for ice and propellent, and then mine it.
 
-Now the colonyship got no fuels in orbit to move, never mind land.
+Now the colony ship got no fuels in orbit to move, never mind land.
 
 Fucking landlubbers.
 
-I unstrapped myself from my crash couch, then made my way to the cargo bay
+I unstrapped myself from my crash couch, then made my way to the cargo bay.
 
-Thankfully, the bay was full of equipment that I can use to jumpstart an industrial economy, from the extreme basic of simply smelting the metals. I also had a storage of 'vitamins', which I needed to use wisely or otherwise I am going to run out of control units.
+Thankfully, the bay was full of equipment that I can use to jumpstart an industrial economy, from the extreme basic of simply smelting the metals. I also have a storage of 'vitamins', which I needed to use wisely or otherwise I am going to run out of control units.
 
 It's the only way to get off this planet. I'll have to replicate an entire industrial economy, from scratch.
 
