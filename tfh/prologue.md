@@ -1,13 +1,15 @@
 
 **A/N: This is not yet considered complete. There will be substantial revision as editing is applied. As always, I welcome feedback and criticism.**
 
-# Fire: A Brief History
+# **Fire: A Brief History**
 
 Magic is the ability to bend and break the laws of physics to create 'miraculous effects', such as fireball and rains without the necessary fuel or humidity. It can sometime be referred to as 'chakra', or 'mana', or any other names. Some species, such as Dragons, are able to use magic freely, having been born with those ability unlocked. While other species are unable to use magics at all.
 
 Mankind sat somewhere in the middle, unique in its difficult requirement. We called our magic 'Fire', given the enormous requirement needed; willpower and determination.
 
-## Early History
+***
+**Early History**
+
 Nobody knows who were the first Fire users are, but we could probably guess how they discovered it.
 
 In the beginning, there was no cities, towns, or settlements. However, monsters and beasts stalked the land.
@@ -24,8 +26,8 @@ It wasn't unsurprising that Fire was strongly associated with heroism for as lon
 
 Given the difficulty of obtaining it, there are too few Fire practitioners. Any knowledge or kernel of insight was easily lost. Thus, practitioners are unlikely to obtain skills beyond the most obvious.
 
-
-## The Beginning of True Knowledge
+***
+**The Beginning of True Knowledge**
 
 Mankind did not understand how to obtain Fire for a long time. There were all sort of rituals associated with Fire, and many tales on how to obtain Fire, but they all ultimately did nothing.
 
@@ -47,8 +49,8 @@ With reliability came the prospect of study, systemization, and demysterization.
 
 Nonetheless, for as long as the monasteries were not molested by those who bear ill intention, their library would continue to accumulate magical knowledge generations after generations.
 
-
-## The Age of Dragon
+***
+**The Age of Dragon**
 
 It wasn't until the Age of Dragons that the study of Fire took off.
 
@@ -64,8 +66,8 @@ Fire was also no longer limited to the domain of monks or chakra warriors. Fire 
 
 Far from extinguishing the Fire of humanity, peace instead strengthened the Fire.
 
-
-## The Fall
+***
+**The Fall**
 
 The dragons are far from omnipotent, nor are they perfect. All was not well under the dragons' rule during the last few decades of their rule. Whether it was the observance of the dragons's daily feast and the long line of taxation wagons that feed their temples, or the opulence of their treasure, or their patronage of the bureaucracy; envy, greed, and suspicion grew. Religious fervor against the dragons festered and flourished.
 
@@ -86,7 +88,8 @@ With the population crash, Fire users declined in number and efficacy. Fire mast
 
 The great majority of the blame went to the samurai nobility, regardless of which side they were on. From then on, the word 'samurai' was more like an insult. The nobility retreated from that heritage as much as they can.
 
-## The Ninjas
+***
+**The Ninjas**
 
 Of the Fire users that survived the war, ninjas were the most numerous. Ninjas emerged in the warring states period, doing jobs that most samurai find distasteful, such as spying and assassinations. They were open to everyone, regardless of their class. After the ennoblement of samurais, which restricted their Fire users further, the ninjas expanded the kind of jobs they will do, even as they were forced to abandon certain jobs as being illegal.
 
