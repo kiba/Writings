@@ -1,3 +1,6 @@
+
+# Chapter Two: Fucking Landlubbers
+
 I groaned in pain as the console beeped so many annoying sounds.
 
 The console shown that there was massive structural damage from the shuttle, especially the bottom and the front of the ship. Thankfully, I was well protected since I was located near the core of the ship.

@@ -1,3 +1,5 @@
+# Chapter Three: The Goal
+
 ROB had trapped me with a mandate. It wasn't until after the crash and the panicking aftermath that I realized that I had been inserted into a setting. My memory of my past life, even my name was wiped, but I do remember playing with factorio, a game about building endless factorio for no apparent reasons.
 
 But I do have a specific goal. The landlubbers are my responsiblity and that I must rescue them. Thus, this involved building a one off rocket, which required an entire industrial system dedicated to it. If I want to build rockets, plural, that would required a much bigger factory and greater automation.
