@@ -77,6 +77,8 @@ Discontent eventually broke into war. The samurai class, which by then had throw
 
 Nobody knew how to fight wars by then, but the two centuries of peace has cultivated Fire into a terrible weapon. Horrific casualties quickly mounted with the destruction of the environment around them. Ironically,t he worst offenders were the fire users. Sheer determination overcame their sense of self-preservation, and they would frequently fight to the death.
 
+Without the power of Fire, one might naively assumed that the armies are useless. That wasn't the case. Fire magic had advanced so far that Fire users can temporarily ignite an army's Fire, allowing them to be stronger and faster than otherwise possible. Although the individuals are weak, together the mass of soldiers proved difficult for opposing Fire users to oppose without soldiers of their own to empower.
+
 Of course, with countless battles, sieges, and skirmishes, the armies relearned their skills, but that
 was rendered irrelevant by the collapsing logistics. When the samurai lords cannot pay their soldiers, armies often devolved into bandits, looting everything around them, further destroying the foundation of civilization.
 
