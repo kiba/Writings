@@ -113,11 +113,11 @@ Everyone, including the president, munched on their pizza, as they watched via s
 
 The FBI squads went through each room methodically, finding absolutely nothing, but it didn't take long to find the center.
 
-There it was, a ring like structure in the middle of the warehouse. In front of it was a robot with an iPad mounted on it.
+There it was, a ring like structure in the middle of the warehouse. In front of it was a robot with an iPad mounted on it, bearing much resemblance to a particular Martian rover.
 
 "What the hell is that?" Agent Fox said.
 
-"This is Gerry Parkinson speaking," the ipad said. "It looked like you have entered the warehouse. The stargate is set to trigger in thirty seconds. Please clear away from the stargate, as it is dangerous...."
+"This is Gerry Parkinson speaking," a recorded message by a certain impersonator played out. "It looked like you have entered the warehouse. The stargate is set to trigger in thirty seconds. Please clear away from the stargate, as it is dangerous...."
 
 "Everyone out!" Agent Fox said in a panic, leaving all but a quadropter drone behind.
 
@@ -127,7 +127,7 @@ Nothing happened. There was no bomb, but the gate triggered, rotating.
 
 "It's....a stargate."
 
-Another robot rolled out. This robot didn't like a bit like Curosity and it was ugly as hell. It also held up another iPad.
+Another robot rolled out. This robot didn't like a bit like Curiosity and it was ugly as hell. It also held up another iPad.
 
 The iPad turned on, showing a very familiar face.
 
@@ -139,10 +139,42 @@ Everyone was speechless.
 
 ***
 
-It was distrubing to the president. The other Earth has penetrated his society for a few weeks, suborned a billionaire, and set to cladinestely gathered intelligence on his United States.
+It was disturbing to the president. The other Earth has penetrated this society for a few weeks, suborned a billionaire, and clandestinely gathered intelligence on his United States.
 
 They were presumably friendly, but it dawn on him that other more hostile powers might be capable of doing the same.
 
 "General Hammond," the president greeted on a secure encrypted channel. "I am sorry we haven't met under better circumstance."
 
 "No problem, Mr. President. We anticipated this problem in our planning. "
+
+***
+**Madison Smith**
+**Fox's Residence, Infopunk-Earth**
+**November 15, 2015**
+
+Daniel Fox hadn't been himself lately. The whole stargate business and the wild goose chase had upset his worldview of a rational universe. Madison Smith didn't believe that the rational universe was shattered. On the contrary, she found the SGC far more rational and sober than its television counterpart.
+
+Fox was so broken that her superior decided to put him on a paid leave for two months. When he didn't update his facebook or his other social media page, Madison became increasingly worried.
+
+Now, she was ringing the doorbell of her partner's home.
+
+After several seconds, the door finally opened up to a very disheveled looking man still in his bathrobe.
+
+"I have donuts and hot coffee," she said, smiling without skipping a beat.
+
+"Come in," he said.
+
+Once they were in the living room, Fox asked, "Is the stargate still real? Am I not delusional?"
+
+Smith shook her head. "No, it's still very real."
+
+Fox collapsed into his couch. "It can't be."
+
+"We have to face reality for what it is rather than what we think it should be," she quoted someone.
+
+"You're right...I guess.
+
+***
+**Gerry Parkinson**
+
+Parkinson felt that his very bone are tired. He endured a multi-day interrogation session by an increasingly hostile team of FBI agents, who simply can't believe what he was saying, as well imprisonment against his will.
