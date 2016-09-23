@@ -5,38 +5,40 @@
 **October 15, 2015**
 **FBI Crime Lab**
 
-They had gotten nowhere with the interrogation of an impersonator and thief, the man who called himself Gerry Parkinson. Her partner, Daniel Smith decided to humor him at least once to throw the liar off his game for once.
+They gotten nowhere with the interrogation of a criminal who is both an impersonator and a thief. Even from fingerprint and face recognition, they still don't know the criminal's real name. Yes, he claimed to be a diplomat named Gerry Parkinson, but that diplomat was working in China. Her partner, Daniel Fox decided to humor him to throw the person off his game by agreeing to a DNA test.
 
-A whitecoat lab technician came out of the genetic lab that Special Agent Madison Smith was standing outside. "Agent Smith?" the technician called for her.
+A whitecoat lab technician came out of the genetic lab that Special Agent Madison Smith was standing outside. "Special Agent Madison Smith?" the technician called for her.
 
-"I am agent Smith. What do you have for me?" she said, awaiting the result.
+"I am that person. What do you have for me?" she said, awaiting the result.
 
 "We have a problem. Both DNA samples match. I had to redo and check over my steps three times, yet I still got the same results."
 
-"We're talking about the diplomat and our suspect?"
+"We're talking about the diplomat and our suspect?" The lab technician nodded.
 
 "We can't distinguish between them."
 
-Smith raised her eyebrows at the unexpected news. It also played into the narrative of the impersonator, which was what he wanted.
+Smith raised her eyebrows at the unexpected news. It also played into the impersonator's fabricated narrative. She could imagine his glee and laughter for having fooled the lab.
 
 "Alright, let's enumerate the possibility here. We might have mixed up the blood vials, or that the impersonator is the diplomat's secret twin, or that our suspect is telling the truth."
 
-"The blood vials were received at different time from different locations. I checked the video footage."
+"The blood vials were received at different time from different locations. I checked the video footage to make sure that I didn't get them mixed up."
 
-"Then we'll need to check it again," Smith concluded. "Failing that, we may need to launch a bigger investigation. It might be possible that someone intercepted and swapped it out." It was a long short, she had to admit, as it was more likely that the impersonator is in fact the diplomat's long lost twin.
+"Then we'll need to check it again," Smith concluded. "Failing that, we may need to launch a bigger investigation. It might be possible that someone intercepted and swapped it out."If that wasn't the case, then it was likely that the impersonator was a long lost identical twin of the diplomat.
 
 ***
 **Agent Daniel Fox**
 
-Here he was again, interrogating the same prisoner all over again.
+Fox was starting to despise this job. He was interrogating the same prisoner only to get garbage information about some sci-fi fantasy.
 
 "Don't you ever get sick of this?" the criminal said, sounding just as sick of the game himself.
 
-"My partner came in and confirmed that your DNA sample matched our diplomat. I am curious as to why this is."
+"A call just came in. My partner said that the DNA match was not a match," he lied to the criminal.
 
-"Do you believe my story now?"
+"A lie. You can tell me whatever you want in an interrogation. I was trained for that before I come here. It wouldn't work anyway, because I am telling you only the truth."
 
-"No, there are other more plausible theories than what you proposed."
+Fox was rather unnerved by the man's ability to keep to his story. He almost believed it even.
+
+"Even if there is a match, there are far more  plausible theories than what you proposed."
 
 The fake diplomat snorted. "I know this was going to happen."
 
@@ -50,7 +52,7 @@ It didn't take long. Fox's boss told him something very interesting on the phone
 
 Not only it was classified documents that this impersonator stolen, but top secret documents critical to national security. Daniel Fox wouldn't still get access to those documents, but it sounded like the State department is very worried.
 
-They're sending somebody out to talk to the criminal.
+They're sending somebody to talk to the criminal.
 
 Damn it. Every time he got closer and closer to the truth, it played right into the impersonator's hand. Now the fake diplomat was getting what he wanted, an audience with the department of state.
 
@@ -59,17 +61,19 @@ Damn it. Every time he got closer and closer to the truth, it played right into 
 
 If nothing happened, Parkinson would need to wait at least a week before SGC enacts their contingency plan. Meanwhile, Parkinson was forced to wait in a jail cell inside the military base.
 
-It was not a surprise. He went into this mission knowing what could happen, and he did a three day stays in a simulated jail to understand the consequence.
+It was not a surprise. He went into this mission knowing what could happen, and he did a three day stays in a simulated jail with simulated guards to understand the consequence. It was not the most pleasant experience.
 
-He was more worried about convincing the FBI, which in any other situation, would wisely believe that he wasn't who Parkinson said he was.
+He was more worried about convincing the FBI, which in any other situation, would wisely believe that he wasn't who he said he was.
 
-The only entertainment he has access to was the twenty-four hours news, which was always showing one more negative event after another.
+The only entertainment he has access to was the twenty-four hours news, which was always showing coverage of the election, and a clown of a presidential candidate. They're serious contemplating to elect a real estate mogul and give him access to nuclear weapons, and by extension the Stargate? This is lunacy.
 
 "You have a visitor," the guard said.
 
+Parkinson grudgingly put out his hands to be handcuffed, before they open up the door, and then escorted to a interrogation room.
+
 ***
 
-To his happy surprise, he sat down to confront a man who wasn't from the FBI. It was the Secretary of State. Gerry Parkinson knew that man and every senior members of the President's administration.
+To his happy surprise, he sat down to confront a man who wasn't from the FBI. It was the Secretary of State himself. He knew him as a senator from North Carolina back on his Earth.
 
 "So, you're quite the mystery man," the secretary of state said. "Explain to me how you obtained information."
 
@@ -176,5 +180,25 @@ Fox collapsed into his couch. "It can't be."
 
 ***
 **Gerry Parkinson**
+**SGC, Stargate-Earth**
 
-Parkinson felt that his very bone are tired. He endured a multi-day interrogation session by an increasingly hostile team of FBI agents, who simply can't believe what he was saying, as well imprisonment against his will.
+Parkinson didn't want to repeat the experience of being incarcerated against his will and being told repeatedly that he was a liar. He supposed it was his luck that he wasn't captured by the Goa'uld rather than the FBI. The sadistic snakes love to use torture even when it wasn't the best way to extract information.
+
+"Mr. Parkinson, I thank you a job well done," Hammond said. "Your work is a credit to the nation."
+
+"It is a job that you asked me to do, General," Parkinson replied.
+
+"Did you get talk to a counselor yet?"
+
+"I am....working through my issues."
+
+"You looked tired, Parkinson. I supposed I should grant you a reprieve. You're free to do nothing for three days. Even use up some of your vacation time. I would recommend you to talk to your family. We have a lot of work when you're ready to jump back in."
+
+"Yes, sir."
+
+Hopefully, there will be no more 'interesting' mission for him to do.
+
+***
+**Area 51, Infopunk-Earth**
+
+The gate, once verified as a genuine technological artifact, was moved by a non-descript semitruck to its new home. Thankfully, nobody in the media noticed anything leading up to, during, or after the event.
