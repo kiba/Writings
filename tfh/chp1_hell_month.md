@@ -1,4 +1,4 @@
-nSun Ko stood in a crowd of recruits, mostly consisting of boys like him, fifteen years old conscript. They were belted by heavy rain, but they stood still to discipline.
+Sun Ko stood in a crowd of recruits, mostly consisting of boys like him, fifteen years old conscript. They were belted by heavy rain, but they stood still to discipline.
 
 It was a fitting start to Hell Month, the most dreadful chapter in a man's life. Regular old boot camp stripped down a boy and trained him into a soldier, a member of the military.
 
