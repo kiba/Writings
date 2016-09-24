@@ -21,7 +21,9 @@ At least I don't have to worry about cleaning up shit ever again, thanks to my p
 ***
 **Day 3**
 
-I am in Factorio, or in a very close approximation of it, anyway. From accessing my message, I learned that I been ROBbed. A random omnipotent being had kidnapped me, or cloned me and put me in this setting.
+I am in Factorio, or in a very close approximation of it, anyway. From accessing my message, I learned that I been ROBbed. A random omnipotent being had kidnapped me, or cloned me and put me in this setting. He also ripped most of my memories away. I don't even know what my name is.
+
+Somehow, I don't feel violated. Yes, it's must be ROB's fault.
 
 I started out on Day One just following the tutorial. It was a very well made one if rather boring. I diligently followed the instruction so that I don't miss anything.
 
@@ -32,7 +34,7 @@ The interface was unsurprisingly very different from the computer game. I use a 
 
 Where-as the game mechanic very much limit what I can manufacture based on what I research, there's no such things there. I have full access to the factorio catalog, including way more buildings and machines that I never thought I need, as well as the ability to create and modify machinery in a CAD program.
 
-Alas, it also means that research cannot occur without any scientists. The description of the various labs required that I need somebody intelligence to manage them.
+Alas, it also means that research cannot occur without any scientists. The description of the various labs required that I need someone with intelligence to manage them.
 
 Given that I have absolutely no time to actually conduct research, my priority is logistics and production.
 
@@ -70,7 +72,7 @@ I started producing lot of walls and turrets without actually increasing product
 
 This however, lead to resource starvation for my assemblers which is really annoying, but I can't do much about it.
 
-Moreover, I been working on command and control. There's a lot more stuff in my production catalog to produce pretty much anything I need to build something else, but there's serious deficiencies in the catalog options. There are no autonomous ground combat platforms, none. Zip, zero, nada.
+Moreover, I been working on command and control. There's a lot more stuff in my production catalog to produce pretty much anything I need to build something else, but there's serious deficiencies in the catalog options. There are no autonomous ground combat platforms. Zip, zero, nada.
 
 Thus, as part my first R&D task, I been working to develop several variations of the car, which I nicknamed Doom Buggy, and I am also working on the command and control.
 
