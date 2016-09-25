@@ -34,13 +34,13 @@ Once he took it back to his lab and tried to start using it, he realized one imp
 **CIA headquarter, SG-Earth**
 **September 30, 1998**
 
-Analyst Casey Martin wasn't sure what to expect. He spent four years getting a bachelor degree in physics, expecting to work in the industry doing something. Instead he landed a job in the CIA.
+Analyst Casey Martin wasn't sure what to expect. He spent four years getting a bachelor degree in physics, expecting to work in the industry doing something useful, even if he doesn't know what that might be. Instead he landed a job in the CIA.
 
-CIA was like any other job in many respect. There's orientation, the interview process, and offices to work with. That is, until a sharply dressed man in his fifties showed up, yanked Martin from the first day of real work. From there, he was told that he will be working in the "Special Analytic Division" until further notice. That was not what he signed up for.
+CIA was like any other job in many respect. There's orientation, the interview process, and a desk to work at. That is, until a sharply dressed man in his fifties showed up, yanked Martin from the first day of real work. From there, he was told that he will be working in the "Special Analytic Division" until further notice. That was not what he signed up for.
 
 This man picked up three other equally bewildered analysts new to the CIA.
 
-Together, they entered an anonymous looking door with a room number that didn't mean anything. On the table, there were promotional posters, books, and DVDs of a science fiction series, "Stargate". A futuristic looking television screen was set in the middle.
+Together, they entered an anonymous looking door with a room number that didn't mean anything. On the table, there were promotional posters, books, and DVDs of a science fiction series, "Stargate SG-1". A futuristic looking television screen was set in the middle.
 
 The director's gaze swept the analysts.
 
@@ -48,19 +48,19 @@ The director's gaze swept the analysts.
 
 "Yes, sir," the analysts found themselves chorusing.
 
-"Good." The director then pointed to the pile of the material. "There are certain assumption and suspension of disbelief you have to make. Faster than light travel is possible. Time travel is possible. Otherwise, you will analyze the fictional material for any logical inconsistency, plot holes, mistakes in the story. You will build a database of characters, locations, planets, technologies, organizations, plot summary, and so forth. You analyze the fictional elements' connection with our reality, including any coincidence. You have my permission to bring in any non-classified open source materials that you see or find to the tune up to ten thousand dollars. I trust your group to use your money wisely. Then we will discuss why you need more money. Is there any questions?"
+"Good." The director then pointed to the pile of the material. "There are certain assumption and suspension of disbelief you have to make. Faster than light travel is possible. Time travel is possible. Otherwise, you will analyze the fictional material for any logical inconsistency, plot holes, mistakes in the story. You will build a database of characters, locations, planets, technologies, organizations, plot summary, and so forth. You analyze the fictional elements' connection with our reality, including any coincidence. You have my permission to bring in any non-classified open source materials that you see or find to the tune up to ten thousand dollars. I trust your group to use your money wisely. If we reach that limit, then we will discuss why you need more money. Is there any questions?"
 
 "Sir, why are we analyzing fiction?" Martin asked.
 
-"Good question! One that I unfortunately, cannot answer for you. It will almost certainly bias you. Nonetheless, as you go over the materials, I want you to think very hard about the question. When you are ready, I may or may not reveal why we are doing this."
+"Good question! One that I, unfortunately, cannot answer for you. It will almost certainly bias your answer. That would be unacceptable. Nonetheless, as you go over the materials, I want you to think very hard about the question. When you are ready, I may or may not reveal why we are doing this."
 
-"Are we allowed to contact anybody outside.?" another analyst asked.
+"Are we allowed to contact anybody outside?" another analyst asked.
 
-"No, you cannot. I mean it absolutely that you cannot speak of this to anyone, not even to ask questions. Whatever go in this room, stay in this room. Any more questions?"
+"No, you cannot. I mean it absolutely that you cannot speak of this to anyone, not even to ask questions. Whatever you learn in this room, stay in this room. Any more questions?"
 
 None were forthcoming.
 
-The director started handing everyone a folder. "In this folder are a list of questions we expect you to answer, but not the only questions you will answer. Don't expect that answering these questions to mean that your work is over. I expect you to keep working until I say that you are done. If you have any questions, I will try to answer. If I can't, you know the default answer I gave you earlier. I expect to have something at the end of the day."
+The director started handing everyone a folder. "In this folder are a list of questions we expect you to answer, but not the only questions you will answer. Don't expect that answering all those questions to mean that your work is over. I expect you to keep working, answering new questions that come up, until I tell you to stop. If you have any questions, I will try to answer. If I can't, you know the default answer I gave you earlier. I expect to have something at the end of the day."
 
 Then he walked away before closing the door, leaving Casey Martin and the others on their own.
 
@@ -68,7 +68,7 @@ Then he walked away before closing the door, leaving Casey Martin and the others
 
 ***
 
-Marty, James, and Fionia; that's the name of his teammates. It didn't matter what their expertise were, because it didn't take half a brain to uncover anomalies in the material. For instance, it was impossible not to notice the resolution of the television screen. From there, there were no known models on the market resembling the screen.
+Marty, James, and Fionia; that's the name of his teammates. It didn't matter what their expertise were, because it didn't take half a brain to uncover anomalies in the material. For instance, it was impossible not to notice the resolution and crispness of the television screen. From there, there were no known models on the market resembling the screen.
 
 Case in point, by the end of the week, they were already making a presentation for the director, complete with a powerpoint presentation. As Casey Martin stood up to the podium. He sized up the director again.
 
@@ -86,7 +86,7 @@ Martin clicked to the next slide on the projector.
 
 There were no reaction from Bruke. None at all.
 
-"Anomaly Two: The uncovering of black programs. What is Deep Space Telemetry? Why at NORAD? What is the purpose of the program. Why are so much bullets being spent at that one facility,  or so many people dying in 'training accidents?' Yet it was deeply connected with the material."
+"Anomaly Two: The uncovering of black programs. What is Deep Space Telemetry? Why at NORAD? What is the purpose of the program. Why are so much bullets being spent at that one facility, or so many people dying in 'training accidents?' Yet it was deeply connected with the material."
 
 Bruke looked like he was about to talk for several moments, but then motioned for the next slide.
 
@@ -137,7 +137,7 @@ It took a whole week for Carter and the physic team to understand some of the co
 
 "Good, run the program," Carter ordered.
 
-The program ran through an address generation algorithm, pinging the stargate subspace network. Viable addresses came in, eliciting excitement from the physics team.
+The program ran through an address generation algorithm, pinging the stargate subspace network. Viable addresses came in, eliciting excitement from the astrophysics team.
 
 There were new viable addresses located across the galaxy. Of especially importance was addresses outside of Goa'uld space, and addresses close to home.
 
@@ -145,7 +145,7 @@ There were new viable addresses located across the galaxy. Of especially importa
 
 "Yes. We can thank Earth Swift for that," Carter concurred. "Of course, the hard part is yet to come. We will need to take risk and explore those addresses."
 
-With the amount of addresses they had before, it was already going to take a lifetime. Now it might take potential generations at the resource given to the stargate program.
+With the amount of addresses they had before, it was already going to take a lifetime. Now it might take potential generations with the current budget of the stargate program.
 
 "We're going to implement those safety code as soon as possible, right?" Bill Lee asked.
 
