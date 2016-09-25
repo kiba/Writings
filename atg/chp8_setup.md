@@ -24,44 +24,12 @@ There's only one answer. "We'll go."
 "Thank you."
 
 ***
-**Area Fifty-One**
+**Area Fifty-one**
 
 "Come this way," Colonel Mark Whitman said as he lead the senator into a massive hangar. The senators immediately noticed the centerpiece of the entire program, a ring-like object that had light focused on it, clearing a space in the back of the hangar in the sea of people and equipment. Manned machine gun posts were mounted against the ring.
 
-"What the hell is that?" Senator Jack Markaby of Mississpi echoed her thought.
+"So this is the stargate," Baldwin said. "So, I am supposed to believe that this device can open up to alien worlds?" The congresswoman couldn't believe what she was saying or taking seriously.
 
-"Ladies and gentlemen, this is the ring that the president wanted you to fund," Whitman noted.
+"Yes, it is the Stargate."
 
-"Scheduled activation starting in five minutes," the PA speaker said.
-
-"This is the device that can send men to another world? It looked like a stargate," Baldwin said, almost believing.
-
-"That's what we decided that this is."
-
-"Who built it? Where did you discover this? Why now?"
-
-"I would like to demonstrate to you that this is a real device first, before we talk details. Ma'am."
-
-The gate activated, its whirlpool splashing out. Then a robot ascended the ramp and into the wormhole and disappeared.
-
-"We got telemetry." The senators were then shown to a video that showed the surface of an airless planet.
-
-"Is this safe?"
-
-"Of course, ma'am. It's already scouted beforehand."
-
-"What if aliens discover us? What if they are hostile?" There were so many questions coming from her brain that she wanted the military to answer and reassure her on. There was also no doubt in her mind about if she want to fund the study. Of course, she would.
-
-"Scouted by who?" one of her collegue raised the question.
-
-The colonel was silent for a moment before answering, "friendly aliens."
-
-"Great, so we already have first contact," her collegue continued.
-
-"Senator Davidson, you wouldn't believe who the aliens were. So don't shout at me since I am going to sincerely give an answer to you."
-
-"Try me," Davidson said.
-
-"The aliens are not really aliens," he said. "They are from an alternate reality." Davidson was about to reply before the Colonel signaled the senator to stop. "Hear me out. It got crazier than that, even. Have you ever heard of Stargate SG-1."
-
-"I do. My grandson was an avid fan of that show."
+"That somehow can connect to an alternate reality where Stargate SG-1 takes place?"
