@@ -5,9 +5,11 @@
 **October 15, 2015**
 **FBI Crime Lab**
 
-They gotten nowhere with the interrogation of a criminal who is both an impersonator and a thief. Even from fingerprint and face recognition, they still don't know the criminal's real name. Yes, he claimed to be a diplomat named Gerry Parkinson, but that diplomat was working in China. Her partner, Daniel Fox decided to humor him to throw the person off his game by agreeing to a DNA test.
+Smith had dismissed the criminal that she and her partner was interrogating as a nuisance and a crank. It turned out that his crime was far more serious. Not only the criminal had impersonated a high ranking diplomat, but also stole classified information. Fingerprint and face recognition had turned up nothing. This man was never in the FBI crime database. Interrogation had proven absolutely useless. The duo still do not know the criminal's real name. In desperation, her partner, Daniel Fox decided to humor him to throw the person off his game by agreeing to a DNA test.
 
-A whitecoat lab technician came out of the genetic lab that Special Agent Madison Smith was standing outside. "Special Agent Madison Smith?" the technician called for her.
+That in turned led Agent Smith here to this crime lab, waiting outside of the very room that was processing the evidence. With luck, they'll be able to prove that the criminal was not the diplomat as he claimed.
+
+"Special Agent Madison Smith?" a lab technician called for her.
 
 "I am that person. What do you have for me?" she said, awaiting the result.
 
@@ -15,15 +17,17 @@ A whitecoat lab technician came out of the genetic lab that Special Agent Madiso
 
 "We're talking about the diplomat and our suspect?" The lab technician nodded.
 
-"We can't distinguish between them."
+"We can't distinguish between either of them. They are genetically the same person"
 
-Smith raised her eyebrows at the unexpected news. It also played into the impersonator's fabricated narrative. She could imagine his glee and laughter for having fooled the lab.
+Smith raised her eyebrows at the unexpected news. It also played into the impersonator's fabricated narrative. She could imagine his glee and laughter for being able to continue his narrative.
 
 "Alright, let's enumerate the possibility here. We might have mixed up the blood vials, or that the impersonator is the diplomat's secret twin, or that our suspect is telling the truth."
 
 "The blood vials were received at different time from different locations. I checked the video footage to make sure that I didn't get them mixed up."
 
-"Then we'll need to check it again," Smith concluded. "Failing that, we may need to launch a bigger investigation. It might be possible that someone intercepted and swapped it out."If that wasn't the case, then it was likely that the impersonator was a long lost identical twin of the diplomat.
+"Then we'll need to check it again," Smith concluded. "Failing that, we may need to launch a bigger investigation. It might be possible that someone intercepted and swapped it out." She shuddered at the implication. Somebody was working with the criminal to keep up his narrative. This was bigger than she thought.
+
+If that wasn't the case, she would have to guess that the impersonator was a long lost identical twin; which she considered an unlikely prospect.
 
 ***
 **Agent Daniel Fox**
