@@ -60,6 +60,62 @@ The glass pane retracted into the wall.
 
 [DEACTIVATING STASIS FIELD]
 
-"NOOOOOOOOOOOOOOOOO!!!!!!" a woman screamed.
+"NOOOOOOOOOOOOOOOOO!!!!!!" the bluehead screamed as soon as the field dropped.
 
-Startled, I stepped back as quickly as possible, putting my hands up gesturing a unversial sign of surrender.
+Startled, I stepped back as quickly as possible, putting my hands up gesturing a universial sign of surrender.
+
+"Calm down, I am not here to hurt you," I said.
+
+"Where's the hell my father?" she said at the same time.
+
+"I don't know where is your father."
+
+"Who are you? Why do you have your hands up?"
+
+"I don't have a name."
+
+"Why are you not answering?"
+
+"Oh," I said, realizing my mistake. "OK Computer, please activate my voice speaker."
+
+[SPEAKER ACTIVATED]
+
+"Hey, are you mute or something?"
+
+"Can you hear me now?" I spoke.
+
+"Who the hell are you and where is my father?"
+
+"I am an explorer, and I presume your father is either dead or is in one of those stasis pod."
+
+"What? How long time has passed? My father is certainly not dead!"
+
+"Um...five thousand years?" She immediately looked shocked.
+
+Then the woman scramble out of her bed and took a look at the status page.
+
+"NOOOO! It can't be!"
+
+Then the woman started pulling out stasis chambers, most of which were empty. When it was clear that she wasn't going to find anyone, the woman collapsed into the floor.
+
+She sobbed. "It's not...possible! Five thousand years can't have passed!"
+
+What the hell am I supposed to do now? How am I supposed to comfort a woman? In the end, I simply stood still, letting my power armor took up the slack, and waited until the woman stopped crying.
+
+When she was done with the whole crying business, she asked me about the state of the world and what was going on the surface. I simply showed her how I got there, saying that I knew nothing about the world. Then I explained how I got there.
+
+"Remnant? That's not the name of my world!" she said. "How would you know about my world anyway?"
+
+I shrugged. "TV show?"
+
+"And how the hell we can speak with each other? How do you know English?"
+
+"Translator microbes?" I said, not sure of the answer.
+
+"Stop bullshitting me."
+
+More questions came inquiring about my background, but there was no satisfactory answer. She told me that I am hiding something. In the end, however, she agreed to come back with me, leaving the stasis chambers behind. She stated that the remaining chambers were for terminally ill patients, or patients that were too old.
+
+I took note to explore the underground further, not really wanting to poke the surface until I have sufficient DAKKA.
+
+That was how I acquired my first scientist and engineer.
