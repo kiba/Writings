@@ -5,11 +5,11 @@
 **SGC, SG-Earth**
 **September 28, 2015**
 
-Stargate Command never sleep. Likewise, the gate operates twenty-four hours around the clock. There was no way around a galaxy that doesn't necessary synchronize to the SGC's local timezone. However, research and development by and large operate separately of gate operations. Research and development wasn't as sensitive to events. There was still a sense of urgency at the command. To be sure, it was a race against the clock, even if they don't know when the clock will end. Still, there was no attempt by the upper brass to rush their research staff. It would be counter-productive, slowing the researchers down.
+Stargate Command never sleep. Likewise, the gate operates twenty-four hours around the clock, a natural consequence of gate exploration. You never know where you are going to end up, whether it was night or day. However, research and development by and large operate separately of gate operations, because it wasn't as sensitive to events. There was still a sense of urgency at the command, because there was a race against the clock to develop the technology they so much need to defend Earth, even if they don't know when the clock will end. Still, there was no attempt by the upper brass to rush their research staff. It would be counter-productive, slowing the researchers down.
 
-Doctor Bill Lee was just another scientist and engineer at SGC. He wasn't like Samantha Carter who went on dangerous missions. To him, working at the SGC was just like any other job. There were certain hours that he would work, and then he would go home at the end of the day.
+Doctor Bill Lee was just another scientist and engineer at SGC. He wasn't like Samantha Carter who go on dangerous missions. To him, working at the SGC was just like any other job. There were certain hours that he would work, and then he would go home at the end of the day.
 
-To be sure, he loved his job. His boss and his boss' boss were efficient, facilitating the research staff's work rather than impeding it. There was a surprising lack of long unnecessary meeting. However, Monday, like everywhere else, proved to be a drag.
+To be sure, he loved his job. His boss and his boss' boss were efficient, facilitating the research staff's work rather than impeding it. There was no long unnecessary meeting, no busywork to contend with, and nobody breathing down on their neck. However, Monday, like everywhere else, proved to be a drag.
 
 This Monday was an exception, as excitement were up in the air. Doctor Lee and other researchers were crowded out in a meeting room full of boxes, imagining the shiny gears that they will be receiving. Last week, Cromwell ordered parts and goods for the SGC, but delivery, like everything else, operated on 'business days'.
 
@@ -19,7 +19,7 @@ There were men behind those boxes, members from a SG team. Some of them hold cli
 
 The room broke into scattered chuckles and laughs.
 
-"That's right, ladies and gentlemen. The same green truck that I saw delivering items to this bunker, to my house, and my neighbor, was still delivering things in an alternate dimension almost two decade into the future in an alternate reality. But that's not what you guys are here for. Some things did changed, much of which you can't get anywhere on this Earth. Let's start handing out valuable research equipment."
+"That's right, ladies and gentlemen. The same green truck that I saw delivering items to this bunker, to my house, and my neighbors, was still delivering things in an alternate dimension almost two decade into the future in an alternate reality. But that's not what you guys are here for. Some things did changed, much of which you can't get anywhere on this Earth. Let's start handing out valuable research equipment."
 
 There were healthy cheer for that.
 
@@ -104,7 +104,7 @@ Bruke paused, before continuing again, "The Stargate is a real alien artifact, a
 **Doctor Samantha Carter**
 **October 3, 1998**
 
-Doctor Bill Lee was next to Doctor Carter as they examined a program's innard on a computer several time more powerful than the supercomputer that runs the DHD.
+Doctor Bill Lee was next to Doctor Carter as they examined a program's innards on a computer several time more powerful than the supercomputer that runs the DHD.
 
 Earth Swift's DHD was also homebrewed as well, and Swift was quick to inform that it may be an improved version of the same software that was used on the SGC's homebrewed DHD. He was right.
 
@@ -131,7 +131,7 @@ Finally, they ended up on the really juicy part of the codebase.
 ***
 **October 9, 1998**
 
-It took a whole week for Carter and the physic team to understand some of the code, and then improve only some of them into the now obsolete DHD supercomputer, which was slated to be replaced by hardwares from Earth Swift some time in the near future.
+It took a whole week for Carter and the physic team to understand some of the code, and then import only some of them into the now obsolete DHD supercomputer, which was slated to be replaced by hardwares from Earth Swift some time in the near future.
 
 "We're ready," Harriman announced.
 
