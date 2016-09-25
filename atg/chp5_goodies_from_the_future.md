@@ -5,29 +5,29 @@
 **SGC, SG-Earth**
 **September 28, 2015**
 
-Stargate Command never sleep. The gate operated at all hours of the day, traffic constantly coming in and out. However, research and development by and large operate separately of gate operations, and viewed as a long term thing, not going to yield immediate result.
+Stargate Command never sleep. Likewise, the gate operates twenty-four hours around the clock. There was no way around a galaxy that doesn't necessary synchronize to the SGC's local timezone. However, research and development by and large operate separately of gate operations. Research and development wasn't as sensitive to events. There was still a sense of urgency at the command. To be sure, it was a race against the clock, even if they don't know when the clock will end. Still, there was no attempt by the upper brass to rush their research staff. It would be counter-productive, slowing the researchers down.
 
-Doctor Bill Lee, like other scientists and engineers, work regular weekdays at just like any other jobs. Except in emergency, in which case said scientists and engineers were paid hefty sum to work around the clock.
+Doctor Bill Lee was just another scientist and engineer at SGC. He wasn't like Samantha Carter who went on dangerous missions. To him, working at the SGC was just like any other job. There were certain hours that he would work, and then he would go home at the end of the day.
 
-He loved his job, but Monday like everywhere else, was a drag. This Monday proved to be an exception, as excitement were up in the air. Doctor Lee and other researchers were crowded out in a meeting room full of boxes. Last week, Cromwell ordered parts and goods for the SGC, but delivery, like everything else, operated on 'business days'.
+To be sure, he loved his job. His boss and his boss' boss were efficient, facilitating the research staff's work rather than impeding it. There was a surprising lack of long unnecessary meeting. However, Monday, like everywhere else, proved to be a drag.
 
-That's what the boxes are for.
+This Monday was an exception, as excitement were up in the air. Doctor Lee and other researchers were crowded out in a meeting room full of boxes, imagining the shiny gears that they will be receiving. Last week, Cromwell ordered parts and goods for the SGC, but delivery, like everything else, operated on 'business days'.
 
-There were men behind those boxes, members from the SGC, holding clipboards, and unpacking.
+There were men behind those boxes, members from a SG team. Some of them hold clipboards, others were unpacking the boxes.
 
 "Today this morning, I did a milk run," Captain Michael Griff, the leader of SG-2 said. "You know what I saw in two thousand fifteen? The same god damn green truck."
 
 The room broke into scattered chuckles and laughs.
 
-"That's right, ladies and gentlemen. The same green truck that I saw delivering items to this bunker, was still delivering things in an alternate dimension almost two decade into the future. But that's not what you guys are here for. Some things had changed, much of which you can't get right now. Without further ado, let start the procurement handout process."
+"That's right, ladies and gentlemen. The same green truck that I saw delivering items to this bunker, to my house, and my neighbor, was still delivering things in an alternate dimension almost two decade into the future in an alternate reality. But that's not what you guys are here for. Some things did changed, much of which you can't get anywhere on this Earth. Let's start handing out valuable research equipment."
 
 There were healthy cheer for that.
 
-Name and department were called, the SG team handling out new hardwares, mostly computers, but also scientific instruments.
+Name and department was called. Individuals lined up. valuable handed out.
 
-Fifty thousand dollars added up pretty quickly, so the process wasn't overly long. Soon, Doctor Bill Lee received a new mac computer that his department ordered. He was over the moon!
+Unfortunately, fifty thousand dollars added up pretty quickly, and there were competing priorities, so not everyone get one. However, Doctor Bill Lee received a new mac computer that his department ordered. He was over the moon!
 
-However, once he took it back to his lab and tried to start using it, he realized one important thing: all the code and the software he had written were over in the positively ancient window machine. It's going to be a bitch to port over.
+Once he took it back to his lab and tried to start using it, he realized one important thing: all the code and the software he had written were over in the positively ancient window machine. It's going to be a bitch to port over.
 
 ***
 **Analyst Casey Martin**
