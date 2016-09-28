@@ -44,19 +44,74 @@ It wasn't easy for her group to believe what the military was telling them, with
 
 ***
 **Colonel Jack O'Neill**
+**SGC, SG-Earth**
 
-The Groom Lake facility posed no obstacles to hosting a formal dinner with people in power, specifically the senators who will be funding the black budget Project Blue Sky program.
+Every members of the team were all in their mess dress uniform instead of their usual BDU and tactical vests. Teal'c and Jackson were the exception, and both of them opted for the tie and suits.
 
-Of course, with his team's fame already known on the other side of the gate, the senators in charge of a very important subcommittee wanted SG-1 for dinner.
+O'Neill saw it coming, especially when the fictional version of your team is widely celebrated as the lead hero of a television series.
 
-Well, they got it.
+"Although, you all know this. I am going to tell you anyway. This is important," Hammond said solemnly. "Our ally are a quite a fan of SG-1 team, even if that is missing..." The general looked around. "Half of the team."
 
-"I hope it wasn't a bother for you and your team to come here on a moment's notice," senator Baldwin said.
+The team chuckled at that.
 
-"No problem, senator. SG-1 sometime doubled as a diplomatic team," O'Neill smiled. "Meeting over a dozen of people across two years made me very good at shutting my mouth. I let Daniel Jackson handle the contact."
+"There are lawmakers that want to meet the team that they watched on their television set, while their military is gauging our professionalism, honor, and dedication to excellence. I expect you all to be on your best behaviors. That go double for you, Colonel O'Neill, even though they know your reputation."
 
-"I am very well aware of the roles in the team, but it seemed that SG-1 is larger than what I knew."
+"The insubordination is from a character," O'Neill quipped.
 
-"Ah, it's artistic license by those Canadians. I am guessing adding four other actors just make the show more expensive. You shouldn't take television seriously. The writers played very loose with reality."
+"Regardless, it is what they know of you, and it is true."
 
-O'Neill puts a bite of steak in his mouth as casually as he could.
+"Yes sir, I'll do my best to not piss them off."
+
+"I am glad you understand."
+
+***
+
+The eight member of the team crossed over to an alternate reality as easily they crossed over to any other gate. All of this was possible because Carter was able to understand the principles behind dimensional travel, and assure everyone else that they won't get accidentally stranded. All of this was buried in the DHD codebase.
+
+Immediately when the team arrived, O'Neill already sighted the senators that are deciding the budget for Earth's most important ally's stargate program.
+
+From the start, this was also a political mission in addition to a party. O'Neill detested those kind of missions almost as the missions where everything went FUBAR, but alas, it was important.
+
+"That's the senators," Carter whispered. "Be ready."
+
+"I know who they are and what they are looking for," O'Neill replied. "Teal'c, you know what to do. Be quiet and look impressive. Jackson, you're going to do most of the talking."
+
+"Who? Me?" Jackson protested. "I don't do politics!"
+
+"You're the all-round diplomacy guy. You're the closest stand-in to politics."
+
+***
+
+"So you are the SG-1 that I keep hearing about," senator Baldwin said. "I represent Michigan. My grandson is a huge fan of the show that tells your live."
+
+"Mrs. Senator, it's all fictional," O'Neill said with a smile. "But I am authorized by my superior to tell you stories of my team's exploits. It's the real thing."
+
+"Oh. I am looking forward to that."
+
+O'Neill sure hoped that he didn't get baited into a trap.
+
+***
+
+SG-1 and the senators were eventually airlifted to a secret location for a dinner with some of the notables that will be involved in his ally's secret stargate program. The facility at area fifty-one was all business, not equip to host formal occasions like this.
+
+There, scientists, politicians, soldiers, mix together, talking about the future and the first contact incident. Even the diplomat Parkinson was there.
+
+It was a fairly relaxing time, none of that 'politics' as O'Neill feared. Still, he took an opportunity for respite by hanging at the edge of a balcony and staring at the stars in the night sky. There wasn't much to see. The stars were drowned out by light pollution.
+
+"How's your evening, Colonel?" Baldwin interrupted with a cup of wine in her hand.
+
+"I am fine. I thought I was going to be bored to tear, but I am enjoying myself so far. My team normally has a more active role."
+
+"I know. You told me those wonderful stories. Stories that I couldn't yet divulge to my grandchildren."
+
+"May I ask what is your position on the stargate program?"
+
+"There is no doubt that I will fund the study of the stargate and the expense needed to connect to your world. I see values in that."
+
+"But..."
+
+"But, I am unconvinced on the value of exploration."
+
+"Why?"
+
+"You set off a galactic civil war "
