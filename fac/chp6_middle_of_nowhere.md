@@ -74,7 +74,7 @@ Just like that, Oobleck spoke words in a very ancient language. Then the radio s
 
 ***
 
-The veteran huntsman didn't like this one bit, trusting a feminine voice's words, not when there's much firepower just waiting to brust out of that fortress.
+The veteran huntsman didn't like this one bit. It was just too much to trust a feminine voice's words, not when there's much firepower just waiting to burst out of that fortress.
 
 But Oobleck said it was 'safe' to go, and everyone just trusted him on his judgement. No matter what Qrow proposed, it was all addressed by the professor.
 
