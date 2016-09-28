@@ -114,4 +114,20 @@ It was a fairly relaxing time, none of that 'politics' as O'Neill feared. Still,
 
 "Why?"
 
-"You set off a galactic civil war "
+"You set off a galactic civil war by killing Ra."
+
+"I didn't know that there was going to be a Ra. That snake is a total dick. He totally deserved that nuke. What does that have to do with exploration anyway?"
+
+"That gate is a pandora's box," Baldwin said with complete seriousness. "Your world opened up your gate, and now you are forced to a play a galactic game for survival. What if it happens to this Earth as well? What if we explore our reality and found enemies to contend with?"
+
+"You are already playing with us," O'Neill said. "Your gate, just like any other gate can be dialed. The safest thing you could do right now is to order it buried."
+
+Baldwin was jolted, her eyes completely focused on O'Neill's face. "I never thought about cutting off connection just before this moment. I am considering it right now at this very moment."
+
+"You are going to walk away just like that?"
+
+The senator pulled a picture out of her purse before showing it to the Colonel. "This is my family, and this is my grandson. I know he would love to meet with you, but I don't know if he's going to like living in a world where we could be blown away by an alien threat."
+
+O'Neill took a deep breath, pausing to think about the answer to the senator's worry.
+
+"Exploration is risky," O'Neill said. "I don't doubt that. But staying home and twiddling with your thumb is also a risk. They say that ignorance is bliss, but I also say that ignorance is a weakness. If you don't know what is going on in your own stellar neighborhood, how will you even know that something is coming for you? It's cliched, but knowledge is power. "
