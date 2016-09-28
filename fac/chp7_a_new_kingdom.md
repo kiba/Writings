@@ -16,7 +16,7 @@ The first contact party settled in while Rin did a lot of apologizing about the 
 
 I noticed Qrow was very twitchy.
 
-We also named our kingdom, "Mecha".
+We also named our kingdom, "Mechron".
 
 **Day 173**
 
@@ -42,10 +42,32 @@ Language learning is going to be a bitch, on top of all the other things we have
 
 **Day 180**
 
-We have a very nice dinner with Vale delegation before they left.
+We have a very nice dinner with some of the delegations before they left.
 
-Before they left, they made it clear
+Before they left, they made it clear that they're very nervous about the growing military might of Mechron and they would like to talk to us about it in the near future.
+
+Screw them! I am not going to apologize for having war machines on a death world.
 
 **Day 182**
 
-I haven't been idle on the logistic and production front.
+I haven't been idle at all on the economy front, but not a whole lot of things are happening, with most of the work being done on boring old stuff.
+
+Factories can run for a long time, but they're really stupid like a regular computer. Once you scale up your factory up to a certain degree, the amount of work skyrockets. The system isn't as perfect in factorio, where everything pretty much run forever with no maintenance. Stuff breaks, parts starts doing wrong things. It can be really dangerous. That's why I usually use drones to inspect my factory.
+
+You can't really fix them one at a time, that would be too inefficient. You have to automatically fix them multiple times, but problems can be very insurmountable. I got no research staff. I need people.
+
+Aside from my complaint, I am working on preparing to build a cross-continental train system. We're going to build rail tracks, and bastions every twenty kilometers, until we connect to Mistral and Vale. It's an ambitious project, and it required a lot of resources, and people.
+
+We need people.
+
+**Day 184**
+
+A family of wolf faunus arrived. They wanted to settle in Bastion Alpha(Which we renamed to Allothmy in honor of the city). I say, let them!
+
+Of course, it isn't as easy as it really seems.
+
+We have no law, peace officers, or court beyond the gentleman agreement. Just two of us, and embassy staffs who choose to locate here.
+
+Anyway, we took out half of the workday working out an onboarding process.
+
+* Each person shall receives fifty square meter of living space.
