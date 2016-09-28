@@ -40,6 +40,12 @@ We were also gifted children's book on their languages. Joy!
 
 Language learning is going to be a bitch, on top of all the other things we have to learn.
 
+**Day 179**
+
+Rin and I came into Dawson for trading. Professor Oobleck helped us with the trading, and we brought out several stores worth of inventory. The residents were speechless at our pocket dimension storage capability.
+
+Anyway, Rin, ever mindful of domestic needs, brought out the entire clothes departments, furnitures, everything you need to make a human comfortable.
+
 **Day 180**
 
 We have a very nice dinner with some of the delegations before they left.
@@ -70,4 +76,22 @@ We have no law, peace officers, or court beyond the gentleman agreement. Just tw
 
 Anyway, we took out half of the workday working out an onboarding process.
 
-* Each person shall receives fifty square meter of living space.
+* Each person shall receive fifty square meters of living space. In case of family units, they are combined space.
+* Each person shall receive a standard power armor suit, for their size.
+* Each person shall receive rationing for their nutrition need.
+
+We could add more, once we get factories going.
+
+Once again, poor Rin is sidetracked with the onboarding process. We're figuring out as we go.
+
+**Day 187**
+
+Oh dear. Three families just shown up on our doorstep.
+
+**Day 193**
+
+I got the name of the wolf family. I know the male head of the family as Viole Lupus, and his wife as Skyler Lupus. Easy names to remember.
+
+I found out that the settlers has a lot of general useful skills, so they're easy to adapt. What is hard to do is learn a very foreign language so that we can communicate with each other.
+
+Anyway, I took Viole Lupus and taught him how to remote control drones and the new surrogate robotic platform.
