@@ -114,13 +114,13 @@ It was a fairly relaxing time, none of that 'politics' as O'Neill feared. Still,
 
 "Why?"
 
-"You set off a galactic civil war by killing Ra."
+"I recalled that you set off a galactic civil war by killing Ra. Should did anything go wrong, he could have come to your Earth and crush your home under his foot."
 
-"I didn't know that there was going to be a Ra. That snake is a total dick. He totally deserved that nuke. What does that have to do with exploration anyway?"
+"I didn't know that there was going to be a Ra, and we took a risk in opening gate, but in doing so,  learn who our enemies are. What does that have to do with exploration anyway?"
 
 "That gate is a pandora's box," Baldwin said with complete seriousness. "Your world opened up your gate, and now you are forced to a play a galactic game for survival. What if it happens to this Earth as well? What if we explore our reality and found enemies to contend with?"
 
-"You are already playing with us," O'Neill said. "Your gate, just like any other gate can be dialed. The safest thing you could do right now is to order it buried."
+"You are already playing with us," O'Neill said. "Your gate, just like any other gate can be dialed. If you want to prevent anyone coming in, the president should order the stargate to be buried."
 
 Baldwin was jolted, her eyes completely focused on O'Neill's face. "I never thought about cutting off connection just before this moment. I am considering it right now at this very moment."
 
@@ -130,4 +130,18 @@ The senator pulled a picture out of her purse before showing it to the Colonel. 
 
 O'Neill took a deep breath, pausing to think about the answer to the senator's worry.
 
-"Exploration is risky," O'Neill said. "I don't doubt that. But staying home and twiddling with your thumb is also a risk. They say that ignorance is bliss, but I also say that ignorance is a weakness. If you don't know what is going on in your own stellar neighborhood, how will you even know that something is coming for you? It's cliched, but knowledge is power. "
+"Exploration is risky," O'Neill said. "I know what it's like since I am on the front line. But staying home and twiddling with your thumb is also a risk. They say that ignorance is bliss, but I also say that ignorance is a weakness. If you don't know what is going on in your own stellar neighborhood, how will you even know that something is coming for you? It's cliched, but knowledge is power. If you shut off the gate, senator, you will also shut off the flow of knowledge and resources needed to defend your world should a hostile alien power makes their presence known in your solar system."
+
+"I don't want a Ra situation."
+
+"I don't think your world can afford to not explore, but Stargate Command has a lot of experience on how to explore safely. Our standard operating procedures are paved in blood. We can help you with that."
+
+"I'll think on it. Thank you for your ernest argument, but I know you are also angling for an alliance with us to protect your world."
+
+"An alliance? With my very own people? We may live in dimension, but we are the United States of America. We are the people of Earth."
+
+O'Neill could see the guilt on the senator's body language. She was looking down, her eyes averted from the Colonel.
+
+The airman knew that he done a good job on emotional manipulation.
+
+But he also knew that it was also the truth. 
