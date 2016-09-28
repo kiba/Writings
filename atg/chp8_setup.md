@@ -28,7 +28,7 @@ There's only one answer. "We'll go."
 
 It wasn't easy for her group to believe what the military was telling them, with dozen of individuals from the commander-in-chief to the lowest grunts testifying to the senators that they were in fact not lying at all.
 
-"Come this way," Colonel Mark Whitman said as he lead the senators into a massive hangar. The senators immediately noticed the centerpiece of the entire program, a ring-like object that had light focused on it, clearing a space in the back of the hangar in the sea of people and equipment. Manned machine gun posts were mounted against the ring.
+"Come this way," General Mark Whitman said as he lead the senators into a massive hangar. The senators immediately noticed the centerpiece of the entire program, a ring-like object that had light focused on it, clearing a space in the back of the hangar in the sea of people and equipment. Manned machine gun posts were mounted against the ring.
 
 "So this is the stargate," Baldwin said. "So, I am supposed to believe that this device can open up to alien worlds?" The congresswoman couldn't believe what she was saying or taking seriously.
 
@@ -142,6 +142,19 @@ O'Neill took a deep breath, pausing to think about the answer to the senator's w
 
 O'Neill could see the guilt on the senator's body language. She was looking down, her eyes averted from the Colonel.
 
-The airman knew that he done a good job on emotional manipulation.
+The airman felt that he had dodged a bullet there.
 
-But he also knew that it was also the truth. 
+***
+**November 4, 2015**
+**Area Fifty-one**
+**Colonel Frank Cromwell**
+
+With the Tok'ra tunneling crystal, it was very easy to set up a clandestine underground base, with a parallel SGC modeled on its counterpart.
+
+It didn't take very long for the tunnels to remodeled to look like a fortress, with the stargate being the centerpiece of it all. The ugliness of grey concrete became the facade of the tok'ra tunnels.
+
+Colonel Frank Cromwell wasn't an expert in setting up a military base, so he stayed out of it until it was near complete. His time was spent back home learning from O'Neill on fieldcraft.
+
+He came back to the future just today and was now attending a meeting with the leaderships for this SGC.
+
+The commanding officer of this SGC is General Mark Whitman from the airforce.
