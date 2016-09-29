@@ -46,6 +46,8 @@ Rin and I came into Dawson for trading. Professor Oobleck helped us with the tra
 
 Anyway, Rin, ever mindful of domestic needs, brought out the entire clothes departments, furnitures, everything you need to make a human comfortable.
 
+We are also now connected to the cross continental transmit system as a side effect of embassies being set up.
+
 **Day 180**
 
 We have a very nice dinner with some of the delegations before they left.
@@ -58,7 +60,7 @@ Screw them! I am not going to apologize for having war machines on a death world
 
 I haven't been idle at all on the economy front, but not a whole lot of things are happening, with most of the work being done on boring old stuff.
 
-Factories can run for a long time, but they're really stupid like a regular computer. Once you scale up your factory up to a certain degree, the amount of work skyrockets. The system isn't as perfect in factorio, where everything pretty much run forever with no maintenance. Stuff breaks, parts starts doing wrong things. It can be really dangerous. That's why I usually use drones to inspect my factory.
+Factories can run for a long time, but they're really stupid like a regular computer. Once you scale up your factory up to a certain degree, the amount of work skyrockets because automation is not perfect. The system isn't as perfect in factorio, where everything pretty much run forever with no maintenance. Stuff breaks, parts starts doing wrong things. It can be really dangerous. That's why I usually use drones to inspect my factory.
 
 You can't really fix them one at a time, that would be too inefficient. You have to automatically fix them multiple times, but problems can be very insurmountable. I got no research staff. I need people.
 
@@ -94,4 +96,24 @@ I got the name of the wolf family. I know the male head of the family as Viole L
 
 I found out that the settlers has a lot of general useful skills, so they're easy to adapt. What is hard to do is learn a very foreign language so that we can communicate with each other.
 
-Anyway, I took Viole Lupus and taught him how to remote control drones and the new surrogate robotic platform.
+Anyway, I took Viole Lupus and taught him how to remote control drones and the new surrogate robotic platform. My eventual end goal is to have a factory manager.
+
+His wife was already working with Rin on how to run a town.
+
+**Day 196**
+
+The delegation came back to discuss my war machines and my expansionist desire.
+
+I stormed out of the meeting since they are whining and bitching about my growing military power.
+
+SCREW THEM!
+
+**Day 204**
+
+Rin finally negotiated a deal with the four kingdoms. The continent we're on is divided into zone of influences. We have ours in the middle, and Mistral and Vale have the other two.
+
+They also really wanted a military arms limitation.
+
+I called them traitors to humanity and all sort of names. Then I proceeded to rant about making more babies, robots, and factories if we're going to reclaim Rin's world from the Grimm.
+
+The negotiation stopped there. Rin and I walked out.
