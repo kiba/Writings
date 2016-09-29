@@ -2,11 +2,11 @@
 
 **Day 91**
 
-Good news: I found a human! Her name is Rin Furukawa. I swore that's Japanese. She insisted that it's an English name, and she never heard of the Japanese before.
+Good news: I found a human! Her name is Rin Furukawa. I swore that's Japanese, but she insisted that it's an English name, and she never heard of the Japanese before.
 
-Whatever. It's complete utter bullshit.
+Whatever. It's bullshit.
 
-I also made sure to give her power armor. I don't want her to die the moment she set into my world.
+I also made sure to give her power armor, because I don't want her to die or become really sick from the pollution in my world.
 
 Bad news: Due to ethics and morals, I cannot savage the stasis chambers. There are people who are literally frozen in time who cannot be revived for various reasons.
 
@@ -14,7 +14,7 @@ Bad news: Due to ethics and morals, I cannot savage the stasis chambers. There a
 
 She continued to sprout theories about who the hell I am, which was amusing. What wasn't amusing is that she thought I might be an escaped criminal.
 
-Anyway, Rin complained about the lack of housing, despite the fact that power armor IS housing, damn it. I can even sleep up-right, supported by my exoskeleton.
+Anyway, Rin complained about the lack of housing, despite the fact that power armor IS housing. I can even sleep up-right, supported by my exoskeleton.
 
 I gave in, built a warehouse, then I gave her a workstation, so she can learn and not get bored. I told her that I don't have any domestic blueprints. There's no chairs, bedding, or anything like that.
 
@@ -22,9 +22,9 @@ It's all strictly business, no creature comfort, unless you count the power armo
 
 **Day 93**
 
-Archaeology aside, Rin and I agreed to bury the skeletons in a cemetery, but before I did that, I made sure to take lot of picture, and all sort of sensor reading, just in case.
+Archaeology aside, Rin and I agreed to bury the remains of her people in a cemetery, but before I did that, I made sure to take lot of pictures and all sort of sensor reading for archaeological review later on.
 
-But as we begun our makeshift ceremony to dedicate to the dead, Rin broke down in tears again.
+But as we began our makeshift ceremony to dedicate to the dead, Rin broke down in tears again.
 
 It wasn't until hours later that she was able to stand for the ceremony.
 
@@ -36,23 +36,23 @@ Rin invited me to her house, then she made me manufacture a few things that she 
 
 It turned out that it was just a talk.
 
-There, I learned the name of her world, Chikyuu, she called it, then I learned the name of her country, Anthem.
+There, I learned the name of her world, Chikyuu, and the name of her country, Anthem.
 
 I swore that Chikyuu sounded Japanese, but she insisted very strongly that it was English.
 
-Anyway, even though she doesn't believe my story(still big on the whole stasis escapee theory), she decided to humor me.
+In exchange, she decided to humor me on my story, despite her belief I was a criminal escapee.
 
 I told her the name of my planet and my nation's name. Funny enough, she thought America sound like [untranslatable], but I insisted that it was an English word. It went deeper from there, though I didn't tell much. It was mostly Rin's.
 
-A terrorist group on Chikyuu's moon, Tsuki, exploded a powerful exotic bomb, throwing up a lot of materials, much of which fell into the planet. Some of those materials then react in the atmosphere, causing chain reactions, much of which was very bad for the biosphere.
+A terrorist group on Chikyuu's moon, Tsuki, exploded a powerful exotic bomb, throwing up a lot of materials, much of which fell into the planet. Some of those materials then react in the atmosphere, causing chain reactions, much of which was very bad for the biosphere and the civilization on the planet.
 
-The end result wasn't pretty.
+The results were plain; lot of very dead people and ruined infrastructure. Rin speculated that it might have ended her civilization, since she was never rescued after five thousand years.
 
 There was no mention of the Grimm or Salem or the word Remnant. I assumed everything else come after the disaster.
 
 **Day 99**
 
-We got into a nasty argument and shouting match about breaching the surface. She strongly disagree and she doesn't believe in this whole nonsense about the Grimm.
+We got into a nasty argument and shouting match about breaching the surface. She didn't believe that the Grimm could possibly exists.
 
 Regardless of what she said, I will not breach the surface until I have overwhelming DAKKA.
 
@@ -80,7 +80,7 @@ She got a boatload of furnitures and things that she designed but I hadn't yet m
 
 **Day 104**
 
-She spitted out water when I explained to her that none of the machinery as far as I know use dusts.
+She spitted out water when I explained to her that none of the machinery I built doesn't use dust..
 
 After confirming from her workstation that I was telling the truth, she then told me that it was outright IMPOSSIBLE.
 
@@ -116,6 +116,6 @@ I agreed.
 
 **Day 120**
 
-I felt prepared. I put explosive on the breaching shaft, including two levels. I made sure to produce more than enough war machines to storm the surface in large numbers, as well construction units to start building defenses. I have enough heavy infantry(Rin engineered a model) to cover the floor as well.
+I felt prepared. I put explosive on the breaching shaft, including two levels. I made sure to produce more than enough war machines to storm the surface in large numbers, as well construction units to start building defenses. I have everything I need to defend the lower level all the way to evacuation route.
 
 Let's do this.
