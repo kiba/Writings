@@ -6,7 +6,7 @@ A minority of humans decided to live out in the Grimm wilderness. Depending on a
 
 Despite the danger from the Grimm and the environment, the wilderness offered opportunities to make a living. Some of which included mining for Dusts. Independent mining towns tend to pop up like zits only to be slapped down by the Grimm, or the mines are simply exhausted.
 
-Dawn was one of those mining town, but they also struck it rich, while also being on the map, as they are on the path of a well known trade route between Vale and Mistral. That would sustain the town when the richness of the mine ran out.
+Dawn was one of those mining town, but they also struck it rich, while also being on the map, as they are on the path of a well known trade route between Vale and Vacuo. That would sustain the town when the richness of the mine ran out.
 
 When the inhabitants of Dawn noticed smoke trails and a bulging greyness from afar, as well reports of destroyed grimm birds, they sent a message to their mother city-state for assistance.
 

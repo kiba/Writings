@@ -64,7 +64,7 @@ Factories can run for a long time, but they're really stupid like a regular comp
 
 You can't really fix them one at a time, that would be too inefficient. You have to automatically fix them multiple times, but problems can be very insurmountable. I got no research staff. I need people.
 
-Aside from my complaint, I am working on preparing to build a cross-continental train system. We're going to build rail tracks, and bastions every twenty kilometers, until we connect to Mistral and Vale. It's an ambitious project, and it required a lot of resources, and people.
+Aside from my complaint, I am working on preparing to build a cross-continental train system. We're going to build rail tracks, and bastions every twenty kilometers, until we connect to Vacuo and Vale. It's an ambitious project, and it required a lot of resources, and people.
 
 We need people.
 
@@ -110,7 +110,7 @@ SCREW THEM!
 
 **Day 204**
 
-Rin finally negotiated a deal with the four kingdoms. The continent we're on is divided into zone of influences. We have ours in the middle, and Mistral and Vale have the other two.
+Rin finally negotiated a deal with the four kingdoms. The continent we're on is divided into zone of influences. We have ours in the middle, and Vacuo and Vale have the other two.
 
 They also really wanted a military arms limitation.
 
