@@ -145,16 +145,38 @@ O'Neill could see the guilt on the senator's body language. She was looking down
 The airman felt that he had dodged a bullet there.
 
 ***
-**November 4, 2015**
+**December 14, 2015**
 **Area Fifty-one**
 **Colonel Frank Cromwell**
 
 With the Tok'ra tunneling crystal, it was very easy to set up a clandestine underground base, with a parallel SGC modeled on its counterpart.
 
-It didn't take very long for the tunnels to remodeled to look like a fortress, with the stargate being the centerpiece of it all. The ugliness of grey concrete became the facade of the tok'ra tunnels.
+It didn't take very long for the tunnels to remodeled to look like a fortress, with the stargate being the centerpiece of it all. The ugliness of grey concrete became the facade of the tok'ra tunnels as the US Air Force focused on completing the project. Whereas other projects took years to complete, this was assembled in just two month.
 
-Colonel Frank Cromwell wasn't an expert in setting up a military base, so he stayed out of it until it was near complete. His time was spent back home learning from O'Neill on fieldcraft.
+Colonel Frank Cromwell wasn't an expert in setting up a military base, so he stayed out of it until it was near complete. He spent time with O'Neill, learning the fieldcraft needed, and training with an uptimer team at the same time.
 
-He came back to the future just today and was now attending a meeting with the leaderships for this SGC.
+Now he was back, with a team at hand.
 
-The commanding officer of this SGC is General Mark Whitman from the airforce.
+Everyone gathered to watch the gate connect to another world in this dimensions, some of them in the gate room, while others are watching from conference rooms. Security with M-16 rifles were heavily posted in the gateroom in case of incursion, even though the connection is outgoing. It might be the case that whoever will be on the other side will attempt to dial back.
+
+Of course, with an iris shield gifted from his Earth, the adversaries will find themselves squashed. The iris shield can be overcome, but that's why they have security posted.
+
+Lessons learned from the other SGC were already incorporated as much as possible, the past few weeks was spent on constant drilling. That made Cromwell confident in this SGC, though there's still the unknown.
+
+Nobody knows what's going to be on the other side.
+
+An address was dialed, and the gate connected with no incident.
+
+"All status nominal," a gate technician said. "Activating the rover." Tension rose as the rover continue up to the ramp and into the unknown.
+
+Then, a signal came in from the rover. Not long afterward, the base received telemetry. Everyone now has something to look at.
+
+It was an airless moon, the landscape remscient of Earth's moon, but it was also clear that the rover was staring down a blue and brown planet, with a geography that can't be mistaken for Earth.
+
+Everyone clapped.
+
+"We're receiving radio signals from the surface," the technician said.
+
+Everyone clapped again, this time louder.
+
+Frank Cromwell knew that his team won't be going there anytime soon. They have no spacesuits for it.
