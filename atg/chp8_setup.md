@@ -2,7 +2,7 @@
 
 ***
 **Senator Elizabeth Baldwin**
-**October 14, 2015**
+**October 21, 2015**
 **Whitehouse, Infopunk-Earth**
 
 It was not often that the president asked a group of senators to be summoned to the Whitehouse, to the president's office. Senator Elizabeth Baldwin of Michigan, head of the Appropriation Subcommittee on Defense Spending, wondered what was this all about.
@@ -145,7 +145,7 @@ O'Neill could see the guilt on the senator's body language. She was looking down
 The airman felt that he had dodged a bullet there.
 
 ***
-**December 14, 2015**
+**December 22, 2015**
 **Area Fifty-one**
 **Colonel Frank Cromwell**
 
@@ -173,7 +173,7 @@ An address was dialed, and the gate connected with no incident.
 
 Then, a signal came in from the rover. Not long afterward, the base received telemetry. Everyone now has something to look at.
 
-It was an airless moon, the landscape remscient of Earth's moon, but it was also clear that the rover was staring down a blue and brown planet, with a geography that can't be mistaken for Earth.
+It was an airless moon, the landscape reminiscent of Earth's moon, but it was also clear that the rover was staring down a blue and brown planet, with a geography that can't be mistaken for Earth.
 
 Everyone clapped.
 
