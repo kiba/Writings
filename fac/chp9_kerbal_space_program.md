@@ -22,4 +22,46 @@ They're going to be so disappointed with my military robots. It's not really adv
 
 **Day 320**
 
-I haven't taken a look at my factory in the biter world in a long time, other than to fix things. I should really send over some factory managers.
+The factory in the biter world wasn't well optimized. The only thing I did was to make sure they're running smoothly. I should really send over some workers, but it's hidden from the public for a reason, and I am not ready to trust workers with state secrets just yet.
+
+However, given that the workers are managing the other half, my workload became considerably easier as I shifted some of the production over to Remnant, reducing my footprint in this world.
+
+I am ready to start a rocket factory.
+
+**Day 327**
+
+The rocket spec is pretty damn pitiful. It can only carry one eight hundred kilogram to LEO(Low Earth Orbit), and is certainly not reusable. Hell, the launchpad is basically a nuclear missile silo.
+
+However, the industrial requirement is actually not that large, unlike in the game Factorio.
+
+The difficulty comes with coping with extremely tight tolerance and extreme conditions. It's certainly not making lot of stuff that's the problem, like it was in the game, but the engineering and quality assurance.
+
+I knew that most of my machines aren't really that high tech to begin with.
+
+**Day 331**
+
+Been deploying EHC(Environmental Hazard Cleaner) tech around the base as developed by omni-engineer Rin Furukawa!
+
+Somewhat expensive to make, but everything becomes more environmental friendly.
+
+**Day 333**
+
+I am considering whether to port the linux based Factorio Operating System to Remnant computer devices, given that my own graphene computers are much faster than their.
+
+**Day 338**
+
+Built a satellite and loaded the satellite into the rocket.
+
+Watched the launch with my girlfriend. It didn't experience a RUD(Rapid unplanned assembly) event.
+
+**Day 340**
+
+Satellite looking good so far. I can see the ground now!
+
+Except, there's biters everywhere! Some with different morphology than I had encountered so far. Oh god.
+
+At least there's rich ores to mine on the ground.
+
+**Day 344**
+
+Launched another. Working on a satellite constellation for GPS.
