@@ -70,7 +70,7 @@ Jaune Arc stared at the sign of a military information kiosk.
 
 "JOIN THE NEW ARMY! FAST TRACK TO CITIZENSHIP! NO EXPERIENCE REQUIRED!" it said.
 
-He had no idea that they need an army in the first place. Didn't robots don't need anybody to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family got a job as a manager. Everyday, there were more people working for the government to manage the kingdom's affairs.
+He had no idea that they need an army in the first place. He thought that they don't need someone to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family got a job as a manager. Everyday, there were more people working for the government to manage the kingdom's affairs.
 
 Still, he couldn't figure out why they need an army of people when they can just throw robots at it.
 
@@ -84,6 +84,6 @@ Still, he couldn't figure out why they need an army of people when they can just
 
 "Maybe. The emperor hadn't say anything. We are just starting to form a military organization. He didn't want to stay committed so soon. However, he did say that it will involve a lot of bootcamp, marching, and camping, just like any other military in the world. Are you ready for that?"
 
-Arc didn't feel the need to answer the question. He jumped other questions instead. "What's the pay? What's the benefit?"
+Arc didn't feel the need to answer the question. He asked his own questions instead. "What's the pay? What's the benefit?"
 
 Why was he doing this? Jaune Arc still wanted to be a hero and slay monsters. He figured that he can learn how to be a soldier in this place, and maybe get into Beacon Academy based on his experience in the Mechatron army?
