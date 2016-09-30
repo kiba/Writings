@@ -49,6 +49,23 @@ The team made sure to stay on the side of gate as they dial home.
 
 ***
 
-"I am glad that you all made it back home without dying," Hammond said. "How was your trip in the small room?"
+The entire team was back in the meeting room for a small debriefing section.
+
+"I am glad that you all made it back home without dying," Hammond said. "How was your trip to this small room?"
 
 "Alien headsucker appeared. Decided not to put my head into it," O'Neill said.
+
+"So you followed my order regarding not dying," Hammond said. "The episode summary said it is a pivotal moment in our relation with the Asgard. Let's hope we do not regret that."
+
+***
+**October 30, 1998**
+
+It was almost unthinkable for a general to host a foreigner in his braincase, letting someone else know the deepest secret of the United States.
+
+Yet, after a long and protracted negotiation, unlike what was shown in the fictional series, the SGC, on behalf of the United States and the President, allowed General Jacob Carter to carrying a symbiote, against the recommendation and reservations of the majority of generals that advised the president.
+
+It was a decision that paid off very handsomely for the SGC. The Tok'ra supplied the SGC with a steady flow of intelligence on the Goa'uld, helping the command largely avoid contact with the Goa'uld, and allowing the CIA to develop their own fledging intelligence network.
+
+Yet, the Tok'ra and Earth spies aren't certainly everywhere.
+
+"We got a really wacky source of intelligence," Hammond said. 
