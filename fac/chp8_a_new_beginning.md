@@ -1,14 +1,14 @@
 # Chapter Eight: A New Beginning
 
-Jaune Arc failed to get into the Beacon Academy. The admission officer found out that he faked his transcript. Ashamed at his behavior, he didn't return home to face his parents or his sisters.
+Jaune Arc failed to get into the Beacon Academy. The admission officer found out that he faked his transcript. Ashamed at his behavior and failure to get in, the former huntsman-to-be didn't even return home to face his parents or his sisters.
 
 He didn't even have the heart to lie to caravans for a job when he headed out for the new "frontier".
 
-That was how he ended up, alone, in Dawnson on the street, looking for a place to stay and a job. His pocket were empty. The town seemed to be bursting at the seam, as it experienced population growth.
+That was how he ended up, alone, in Dawnson on the street, looking for a place to stay and a job. His pocket was very empty. The town seemed to be bursting at the seam, because of the recent population boom.
 
 A lot of construction seemed to be brand new, some seemed to be specializing in selling Mechatron's goods, which was the name of the local 'kingdom' nearby.
 
-He noticed political demonstration signs. Something about annexation, and something about staying free. People were shouting over each other over arguments that the teenager don't feel fully.
+He noticed political demonstration signs. Something about annexation, and something about staying free. People were shouting over each other over arguments that the teenager didn't fullyunderstand.
 
 Finally, he found a "help wanted." That was what he was looking for!
 
@@ -65,3 +65,25 @@ But Jaune Arc didn't have a job yet. That was what he wanted, not free stuff. He
 He'll have to get out there...and get a job.
 
 ***
+
+Jaune Arc stared at the sign of a military information kiosk.
+
+"JOIN THE ARMY! FAST TRACK TO CITIZENSHIP!" it said.
+
+He had no idea that they need an army in the first place. Didn't robots don't need anybody to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family got a job as a manager. Everyday, there were more people working for the government to manage the various part of the economy.
+
+Still, he couldn't figure out why they need an army of people when they can just throw robots at it.
+
+"Well blondie, are you going to ask?" the man managing the information kiosk said.
+
+"Umm...why do they need soldiers for if they got robots to do everything?"
+
+"Robots are like your scrolls or your computers," the man replied. "They don't have an ounce of intelligence in them for all the algorithms that is built into them. Those robots can fight the grimm because there was somebody behind the curtain orchestrating their strings. There are jobs that only humans can fulfill."
+
+"Oh. Will I be controlling them?"
+
+"Maybe. The emperor hadn't say anything. We are just starting to form a military organization. He didn't want to stay committed so soon. However, he did say that it will involve a lot of pain and hardship just like in any military. Are you ready for that?"
+
+"What's the pay? What's the benefit?"
+
+Jaune Arc still wanted to be a hero and slay monsters. He figured that he can learn how to a soldier in this place, and maybe get into Beacon Academy?
