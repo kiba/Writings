@@ -120,7 +120,7 @@ Rin and I celebrated what passed for Christmas here. It actually isn't Christmas
 
 **Year 2, Day 1**
 
-A new year on Remnant, coincidentally. I also celebrate one year of being stranded in the multiverse.
+A new year on Remnant, coincidentally. I also celebrated one year of being stranded in the multiverse.
 
 **Year 2, Day 3**
 
