@@ -8,11 +8,11 @@ That was how he ended up, alone, in Dawnson on the street, looking for a place t
 
 A lot of construction seemed to be brand new, some seemed to be specializing in selling Mechatron's goods, which was the name of the local 'kingdom' nearby.
 
-He noticed political demonstration signs. Something about annexation, and something about staying free. People were shouting over each other over arguments that the teenager didn't fullyunderstand.
+He noticed that there are people who are demonstrating with signage. Something about annexation, and something about staying free. There were even heckling and arguing between two groups. The wandering teenager didn't pretend to understand the political subtlety.
 
 Finally, he found a "help wanted." That was what he was looking for!
 
-Jaune Arc's stomach tighten as he thought back to the forged transcript. That wasn't relevant, he thought to himself. He was just looking for a job, not trying to get into a huntsman academy.
+Jaune Arc's stomach tighten as he thought back to the forged transcript. That wasn't relevant, he thought to himself. He was just looking for a job, not trying to get into a huntsman academy by cheating.
 
 He walked up to the shopkeeper, a man with thick muscular frame with a fairly full beard.
 
@@ -48,7 +48,7 @@ Eventually, the next day, Arc went to Allothmy, first by walking to one of their
 
 When he arrived at the Allothmy train station, there was a sign stating the city name and population numbers. There were only six hundred people in the Kingdom? It was only two months since the kingdom had shown up, but Jaune Arc was desperate.
 
-Outside of the train station, there were shops and kiosk. Amazing that a town can pop up two months.
+Outside of the train station, there were shops and kiosk. Amazing that a town can pop up in just two months.
 
 "Everyone who needs an apartment, come this way!" a wolf faunus boy said. "Come this away."
 
@@ -56,9 +56,9 @@ Well, what was Jaune Arc waiting for? He came to the frontier because that there
 
 ***
 
-Arc got an apartment. As proof of this, he got fifty square meters of space to himself. Roomy. There were rumors on the CCTS network that there are free apartments, daily rationing, and a power armor suit, but he never thought those rumors to be actual facts.
+Arc got an apartment,fifty square meters of space to just himself. Roomy. There were rumors on the CCTS network that there are free apartments, daily rationing, and a power armor suit, but he never thought those rumors to be actual facts.
 
-Though, the rationing was very plain. Not a whole lot of taste, but it was what he needed to live for now.
+Though, the rationing was very plain. Not a whole lot of taste, but at least he wasn't starving.
 
 But Jaune Arc didn't have a job yet. That was what he wanted, not free stuff. He felt that he earned nothing for it. He didn't even understand why Allothmy decided to give away free stuff for nothing.
 
@@ -68,9 +68,9 @@ He'll have to get out there...and get a job.
 
 Jaune Arc stared at the sign of a military information kiosk.
 
-"JOIN THE ARMY! FAST TRACK TO CITIZENSHIP!" it said.
+"JOIN THE NEW ARMY! FAST TRACK TO CITIZENSHIP! NO EXPERIENCE REQUIRED!" it said.
 
-He had no idea that they need an army in the first place. Didn't robots don't need anybody to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family got a job as a manager. Everyday, there were more people working for the government to manage the various part of the economy.
+He had no idea that they need an army in the first place. Didn't robots don't need anybody to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family got a job as a manager. Everyday, there were more people working for the government to manage the kingdom's affairs.
 
 Still, he couldn't figure out why they need an army of people when they can just throw robots at it.
 
@@ -82,8 +82,8 @@ Still, he couldn't figure out why they need an army of people when they can just
 
 "Oh. Will I be controlling them?"
 
-"Maybe. The emperor hadn't say anything. We are just starting to form a military organization. He didn't want to stay committed so soon. However, he did say that it will involve a lot of pain and hardship just like in any military. Are you ready for that?"
+"Maybe. The emperor hadn't say anything. We are just starting to form a military organization. He didn't want to stay committed so soon. However, he did say that it will involve a lot of bootcamp, marching, and camping, just like any other military in the world. Are you ready for that?"
 
-"What's the pay? What's the benefit?"
+Arc didn't feel the need to answer the question. He jumped other questions instead. "What's the pay? What's the benefit?"
 
-Jaune Arc still wanted to be a hero and slay monsters. He figured that he can learn how to a soldier in this place, and maybe get into Beacon Academy?
+Why was he doing this? Jaune Arc still wanted to be a hero and slay monsters. He figured that he can learn how to be a soldier in this place, and maybe get into Beacon Academy based on his experience in the Mechatron army?
