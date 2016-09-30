@@ -13,8 +13,13 @@ timeline:
 
 ALL timeline events will be noted in infopunk dates.
 
-September 16, 2015 - Frank Cromwell came out of a wormhole connection made by the stargate.
-September 17, 2015 - Cromwell meet with SG-1 and General Hammond.
-September 22, 2015 - Cromwell visit infopunk-Earth and elected to stay at Swift's residence.
-September 28, 2015 - Goods from Infopunk-Earth were delivered to Stargate-Earth and distributed.
-September 30, 2015 - A team of CIA analyst was handed a new project to analyze the fictional version of Stargate Command.
+September 16, 2015 - Chapter One - Frank Cromwell came out of a wormhole connection made by the stargate.
+September 17, 2015 - Chapter Three - Cromwell meet with SG-1 and General Hammond.
+September 22, 2015 - Chapter Four - Cromwell visit infopunk-Earth, staying at Swift's residence.
+September 28, 2015 - Chapter Five - Goods from Infopunk-Earth were delivered to Stargate-Earth and distributed.
+September 30, 2015 - Chapter Five - A team of CIA analyst was handed a new project to analyze the fictional version of Stargate Command.
+October 9, 2015 - Chapter Five - Carter and her coworker in the physics department implemented improvement imported from Infopunk-Earth's DHD codebase.
+October 12, 2015 - Chapter Six - Gerry Parkinson attempted first contact with his counterpart.
+October 21, 2015 - Chapter Eight - The infopunk senators learned of the Stargate program.
+November
+December 22, 2015 - Chapter Eight - Infopunk-Earth began its exploration program.
