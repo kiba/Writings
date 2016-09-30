@@ -151,15 +151,17 @@ The airman felt that he had dodged a bullet there.
 
 With the Tok'ra tunneling crystal, it was very easy to set up a clandestine underground base, with a parallel SGC modeled on its counterpart.
 
-It didn't take very long for the tunnels to remodeled to look like a fortress, with the stargate being the centerpiece of it all. The ugliness of grey concrete became the facade of the tok'ra tunnels as the US Air Force focused on completing the project. Whereas other projects took years to complete, this was assembled in just two month.
+It didn't take very long for the tunnels to remodeled to look like a fortress, with the stargate being the centerpiece of it all. The project was top priority for the Air Force, while quality still being a major focus. In the span of two months, the crystalline tok'ra tunnel was utterly unrecognizable, filled in by an ugly concrete facade, transformed into a military base. This base wasn't going to win any architectural award.
 
-Colonel Frank Cromwell wasn't an expert in setting up a military base, so he stayed out of it until it was near complete. He spent time with O'Neill, learning the fieldcraft needed, and training with an uptimer team at the same time.
+Colonel Frank Cromwell by no means a construction specialist, so he didn't stay very long in the base when he transited through the stargate. Instead, he spent time with O'Neill, learning the fieldcraft needed, and training with an uptimer team at the same time.
 
-Now he was back, with a team at hand.
+With the base basically done, he came back to this installation, with a team ready to explore a new world.
 
-Everyone gathered to watch the gate connect to another world in this dimensions, some of them in the gate room, while others are watching from conference rooms. Security with M-16 rifles were heavily posted in the gateroom in case of incursion, even though the connection is outgoing. It might be the case that whoever will be on the other side will attempt to dial back.
+Everyone gathered to watch the gate connect to another world in this dimensions, some of them in the gate room, while others are watching from conference rooms. Security personnels with assault rifles were heavily posted in the gateroom in case of incursion, even though the connection will be outgoing. It might be the case that whoever will be on the other side will attempt to dial back.
 
-Of course, with an iris shield gifted from his Earth, the adversaries will find themselves squashed. The iris shield can be overcome, but that's why they have security posted.
+The SGC from his Earth gifted this SGC with an iris shield. Testing was already done, so there was a good chance that any hostiles with an incoming connecting attempting to cross to the other side will almost certainly will be dead.
+
+The iris shield certainly wasn't perfect, and it can be overcome with right sort of countermeasure. There was a reason why security personnels were posted inside the gateroom as a second line of defense.
 
 Lessons learned from the other SGC were already incorporated as much as possible, the past few weeks was spent on constant drilling. That made Cromwell confident in this SGC, though there's still the unknown.
 
