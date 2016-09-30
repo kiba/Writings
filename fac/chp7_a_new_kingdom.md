@@ -16,7 +16,7 @@ The first contact party settled in while Rin did a lot of apologizing about the 
 
 I noticed Qrow was very twitchy.
 
-We also named our kingdom, "Mechron".
+We also named our kingdom, "Mechatron".
 
 **Day 173**
 
@@ -52,7 +52,7 @@ We are also now connected to the cross continental transmit system as a side eff
 
 We have a very nice dinner with some of the delegations before they left.
 
-Before they left, they made it clear that they're very nervous about the growing military might of Mechron and they would like to talk to us about it in the near future.
+Before they left, they made it clear that they're very nervous about the growing military might of Mechatron and they would like to talk to us about it in the near future.
 
 Screw them! I am not going to apologize for having war machines on a death world.
 
@@ -102,11 +102,7 @@ His wife was already working with Rin on how to run a town.
 
 **Day 196**
 
-The delegation came back to discuss my war machines and my expansionist desire.
-
-I stormed out of the meeting since they are whining and bitching about my growing military power.
-
-SCREW THEM!
+A delegation came to discuss a boatload of treaties that the four kingdoms had signed and that they wanted me to sign.
 
 **Day 204**
 
