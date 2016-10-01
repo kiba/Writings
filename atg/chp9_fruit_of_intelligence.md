@@ -113,6 +113,14 @@ Hammond nodded in agreement. "I'll get SG-1 in there. We'll need to plan how to 
 **Colonel Jack O'Neill**
 **November 3, 1998**
 
-On occasion, SG-1 would meet with the Tok'ra to plan future operations and missions, and update codebooks in case they ran into a helpful Tok'ra agent. To be clear SG-1 weren't spies, and certainly wouldn't need to do this if General Carter already convened with Hammond, but the Tok'ra were convinced of the importance of tracing Sokar, so they set the meeting anyway, as close as they could, in the hope of catching Apophis. Beside, it was also a chance to practice intergalatic cooperation.
+On occasion, SG-1 would meet with the Tok'ra to plan future operations and missions, and update codebooks and challenge questions. To be clear SG-1 weren't spies, and certainly wouldn't need to do this if General Carter already convened with Hammond, but the Tok'ra were convinced of the importance of tracing Sokar, so they set up the meeting anyway according to the already planned addresses, in the hope of catching Apophis. Beside, it was also a chance to practice intergalatic diplomacy.
 
-O'Neill wasn't sure that the opportunities hadn't already slipped away.
+O'Neill wasn't sure that reality would play out the same way. It might be that the butterfly effect had already changed things, or that the intelligence was simply wrong.
+
+Nonetheless, he was here instead of somewhere safer. Part of SG-1 and SG-2 were lying low in a concealed position and well camouflaged. They lied behind the gate, while the Tok'ra snatch team waited closer to the probable crash site. This way, if anybody comes out of the gate, they will be shot behind. Doctor Jackson and Carter sat out this mission, because this was more of a direct action mission than the missions that SG-1 typically do.
+
+Luckily, he heard a loud whine. This is it.
+
+The Tok'ra and the Earthlings watched a dogfight in the sky, cumulating with a crash.
+
+Missiles were launched from MANPADs issued to both team at the survivor.
