@@ -26,4 +26,26 @@ Finally, the door to the imperial office disgorged power armor that was very com
 
 "And a letter among other things." The tension in the room went up at that mention. "You should soundproof your office. I heard voices through the wall."
 
-"I heard that every kingdom has a huntsman academy," the female empress said.
+"I heard that every kingdom has a huntsman academy," the empress said. "But what is in it for us?"
+
+"A good question. While huntsmen have global citizenship, they typically have a city that they usually return to constantly over time, and that city tended to be where the huntsman academy that they attend."
+
+"A kingdom is synonymous with a city, yes?" the emperor asked.
+
+"It is true that you only have two towns, but they are quickly becoming small cities; a micro kingdom. Assuming that your cities survived the growing Grimm threat, they should be able to host a small combat school until you can host a post-secondary huntsman academy. It is crucial that your academy is staffed by qualified professors. I can assist you in that, along with other headmasters."
+
+"Well, what do you think, hon?"
+
+"I think we could make the huntsmen academy part of the Allothmy university?" she wondered.
+
+"That would be most unusual. While a huntsman academy teaches do post-secondary subjects, much of our focus is teaching students on combat and survival."
+
+"Including learning how to make their own weapons?" Gearworth asked.
+
+"Yes."
+
+"I doubt it's prac-" Gearworth said before being muffled by the empress's hand.
+
+"We are planning on one big university anyway," the empress said. "I believe you said something about a letter?"
+
+The relaxed face of the two sovereigns became very serious in one moment.
