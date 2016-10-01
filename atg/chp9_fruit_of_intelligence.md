@@ -58,6 +58,7 @@ The entire team was back in the meeting room for a small debriefing section.
 "So you followed my order regarding not dying," Hammond said. "The episode summary said it is a pivotal moment in our relation with the Asgard. Let's hope we do not regret that."
 
 ***
+**General Jacob O'Neill**
 **October 30, 1998**
 
 It was almost unthinkable for a general to host a foreigner in his braincase, letting someone else know the deepest secret of the United States military.
@@ -86,6 +87,18 @@ The general recounted how Frank Cromwell was recovered, details about the future
 
 "Another strange tale," Selmak said once Hammond finished his account. "You have the best and worse luck." Hammond handed Carter a thick folder.
 
-"We have reasons to believe that the fictional tale might prove useful, however dangerous it might be. Particularly, an upcoming mission where we could capture Apophis."
+"We have reasons to believe that the fictional account of our missions might prove useful, even with the inaccuracy. Particularly, an upcoming mission where we could capture Apophis."
 
-Carter rapidly read through the mission details. "We don't know where Apophis is, but if by lucky coincidence, we could potentially capture him, at the risk of angering Sokar."
+Carter rapidly read through the mission details. "We don't know where Apophis is, but if by lucky coincidence, we could potentially capture him at the potential risk of angering Sokar."
+
+"Do you know where Sokar is?"
+
+The spymaster shook his head. "If we did, we would be able to survey his homeworld and determine his industrial capacity." Hammond frown. "If the account is true, then we would be looking at an imminent invasion not far into the future by an unusually well equipped military force. I am not necessarily worried about Sokar's forces, but it would change how Goa'uld fight wars, and that would be bad for us."
+
+"We have to find Sokar as soon as possible, but I don't know if those documents are reliable or not. Just recently, I might had just avoided a fetal situation for Colonel O'Neill, but I don't know that to be the case since I cannot test counterfactual."
+
+"I don't think it would strain our resource to see what if I can."
+
+"About capturing Apophis? It seemed that it doesn't do us any good if we caught him."
+
+"Actually, we might be able to do something there. If you got your hand on him, we could implant a subspace tracker to find Sokar's homeworld. No, let us handle it. I wouldn't want to get any heat on Earth."
