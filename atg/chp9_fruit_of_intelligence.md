@@ -60,7 +60,7 @@ The entire team was back in the meeting room for a small debriefing section.
 ***
 **October 30, 1998**
 
-It was almost unthinkable for a general to host a foreigner in his braincase, letting someone else know the deepest secret of the United States.
+It was almost unthinkable for a general to host a foreigner in his braincase, letting someone else know the deepest secret of the United States military.
 
 Yet, after a long and protracted negotiation, unlike what was shown in the fictional series, the SGC, on behalf of the United States and the President, allowed General Jacob Carter to carrying a symbiote, against the recommendation and reservations of the majority of generals that advised the president.
 
@@ -68,4 +68,24 @@ It was a decision that paid off very handsomely for the SGC. The Tok'ra supplied
 
 Yet, the Tok'ra and Earth spies aren't certainly everywhere.
 
-"We got a really wacky source of intelligence," Hammond said. 
+"Welcome back, General Carter," Hammond said. "And Selmak. Are you informed about what's happening back here?"
+
+"To some details," Carter said. "I heard you got your hand on a very valuable intelligence source? A new ally."
+
+"It's a difficult story to believe. I can hardly believe it myself."
+
+"I am constantly worried about what my daughter was getting up to. To be honest, I wish she stayed an astronaut. It isn't about another strange incident that SG-1 encountered?"
+
+"Do you remembered the black hole incident?"
+
+"Yes. It was a very unfortunate luck you have," Selmak remarked. "Some of our Tok'ra operatives wondered if your SGC was fabricating stories out of thin air."
+
+"One of our was thought to be dead or beyond rescue," Hammond said. "Until..."
+
+The general recounted how Frank Cromwell was recovered, details about the future, and a television series about about the fictional lives of his command, particularly half of SG-1.
+
+"Another strange tale," Selmak said once Hammond finished his account. "You have the best and worse luck." Hammond handed Carter a thick folder.
+
+"We have reasons to believe that the fictional tale might prove useful, however dangerous it might be. Particularly, an upcoming mission where we could capture Apophis."
+
+Carter rapidly read through the mission details. "We don't know where Apophis is, but if by lucky coincidence, we could potentially capture him, at the risk of angering Sokar."
