@@ -101,4 +101,18 @@ The spymaster shook his head. "If we did, we would be able to survey his homewor
 
 "About capturing Apophis? It seemed that it doesn't do us any good if we caught him."
 
-"Actually, we might be able to do something there. If you got your hand on him, we could implant a subspace tracker to find Sokar's homeworld. No, let us handle it. I wouldn't want to get any heat on Earth."
+"Actually, we might be able to do something there. If you got your hand on him, we could implant a subspace tracker to find Sokar's homeworld. No, the Tok'ra will handle it. I don't want any more heats on Earth than you already gotten from Apophis and others."
+
+Carter's eyes glow. "If there are two of you, then it's more important than ever for your worlds to lie low," Selmak said.
+
+Hammond nodded in agreement. "I'll get SG-1 in there. We'll need to plan how to do this."
+
+"Of course."
+
+***
+**Colonel Jack O'Neill**
+**November 3, 1998**
+
+On occasion, SG-1 would meet with the Tok'ra to plan future operations and missions, and update codebooks in case they ran into a helpful Tok'ra agent. To be clear SG-1 weren't spies, and certainly wouldn't need to do this if General Carter already convened with Hammond, but the Tok'ra were convinced of the importance of tracing Sokar, so they set the meeting anyway, as close as they could, in the hope of catching Apophis. Beside, it was also a chance to practice intergalatic cooperation.
+
+O'Neill wasn't sure that the opportunities hadn't already slipped away.
