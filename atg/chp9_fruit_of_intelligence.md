@@ -113,11 +113,11 @@ Hammond nodded in agreement. "I'll get SG-1 in there. We'll need to plan how to 
 **Colonel Jack O'Neill**
 **November 3, 1998**
 
-On occasion, SG-1 would meet with the Tok'ra to plan future operations and missions, and update codebooks and challenge questions. To be clear SG-1 weren't spies, and certainly wouldn't need to do this if General Carter already convened with Hammond, but the Tok'ra were convinced of the importance of tracing Sokar, so they set up the meeting anyway according to the already planned addresses, in the hope of catching Apophis. Beside, it was also a chance to practice intergalatic diplomacy.
+On occasion, SG-1 would meet with the Tok'ra to plan future operations and missions, and update codebooks and challenge questions. To be clear SG-1 weren't spies, and certainly wouldn't need to do this if General Carter already convened with Hammond, but the Tok'ra were convinced of the importance of tracing Sokar, so they set up the meeting anyway according to the already planned addresses, in the hope of catching Apophis. Beside, it was also a chance to practice intergalactic diplomacy.
 
 O'Neill wasn't sure that reality would play out the same way. It might be that the butterfly effect had already changed things, or that the intelligence was simply wrong.
 
-Nonetheless, he was here instead of somewhere safer. Part of SG-1 and SG-2 were lying low in a concealed position and well camouflaged. They lied behind the gate, while the Tok'ra snatch team waited closer to the probable crash site. This way, if anybody comes out of the gate, they will be shot behind. Doctor Jackson and Carter sat out this mission, because this was more of a direct action mission than the missions that SG-1 typically do.
+Nonetheless, he was here instead of somewhere safer. Part of SG-1 and SG-2 were lying low in a concealed position. They lied behind the gate, while the Tok'ra snatch team waited closer to the probable crash site. This way, if any hostle comes out of the gate, they will be shot from behind. Doctor Jackson and Carter sat out this mission, because this was more of a direct action mission than the missions that SG-1 typically do.
 
 Luckily, he heard a loud whine. This is it.
 
@@ -137,7 +137,7 @@ The Tok'ra ran toward the gate. The GDO were dialed in, and both team rushed hom
 
 A nearby Al'kesh, set up for secondary and tertiary extraction point, lift off before turning invisible.
 
-With no passengers, the Al'Kesh started tracking the target, while also keeping an eye on the Goa'uld mothership. As long as the enemy were obessed with capturing Apophis and torturing him, they should be able to track the system lord toward Sokar's homeworld.
+With no passengers, the Al'Kesh started tracking the target, while also keeping an eye on the Goa'uld mothership. As long as the enemy were obsessed with capturing Apophis and torturing him, they should be able to track the system lord toward Sokar's homeworld.
 
 ***
 
@@ -168,10 +168,24 @@ The Tok'ra wasted no time in conversing with the system lord. Instead, the agent
 **SGC, SG-Earth**
 **November 13, 1998**
 
-Hammond has very mixed feeling about this. The operation and the covert reconnaissance went just as planned and that everyone made it back alive.
+Hammond has very mixed feeling about this. The operation and the covert reconnaissance went just as planned with everyone making it back alive, thanks to the intensive seven days of training, betting on a dubious source of intelligence, and blind luck.
 
-The pictures taken by the Tok'ra painted a very dire picture.
+The general examined the pictures taken by the Tok'ra. It was almost volcanic in appearances, with vast pollution cloud. Yet, there were also more Ha'tak motherships in orbit as well. It painted a picture much more dire than anticipated.
 
-"They are not like the fictional account," Hammond said. "It's even worse."
+"They are not like the series' depiction," Hammond said with displeasure. "It's even worse."
 
-"It is in the neck of time that we uncovered this information," Selmak said.
+"It is in the neck of time that we uncovered this information," Selmak said, choosing to focus on the positive angle. "However, I am at a loss as to how we would uncover Sokar. I would never risk himself and Jacob getting captured like this, nor would I agree with the idea of SG-1 infiltrating this place to get me out."
+
+Another general, Mark Whitman chimed in with his own opinion, "we knew that the source material has limitation. It does not always follow the events in this universe, and did in fact deviate in several large sections."
+
+Unspoken was the butterfly effect, reducing the accuracy and value of the source material over time.
+
+"Then, we'll have to figure out this one on our own," Hammond concluded.
+
+"If Ra wasn't killed by a primitive nuke," Selmak said. "Then he would be able to rally the rest of his empire into one fleet to counter this threat. Alas, the system lords are fractured and they are unlikely to cooperate together even when faced with imminent death. We only have so many highly placed agents in the Goa'uld empire to steer and influence them."
+
+"Then we'll have to prepare for the very real possibility of an intergalactic war, and we need to keep them away from us," Hammond thought.
+
+"That is doable for my agents," Selmak said. "Though I cannot guarantee success."
+
+"Excuse me," Hammond said. "I think we'll have to inform our respective government." General Mark Whitman nodded in agreement.
