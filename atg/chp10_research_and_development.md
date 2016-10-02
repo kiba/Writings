@@ -84,15 +84,27 @@ Stargate Command chosen to considerably expand the facility built there since th
 
 It was also a test facility for a very important project.
 
-"Are there magnets involved?" O'Neill said.
+Doctor Samantha Carter and her commanding officer walked away from the stargate, the pool disappearing.
 
-Doctor Samantha Carter gave the colonel a bemused look. "Yeah, electromagnetic forces are involved," she gave the Colonel a straight answer.
+"Are there magnets involved?" O'Neill joked.
 
-"So, this test will give us honking space guns we can shoot our enemies with."
+"Yes, sir. We're using magnets," Carter answered it straight.
 
-"That's not actually correct, sir. It will give our weapon platforms an ability to touch our enemies. At least the first step of it anyway."
+"You know, I expect either a very complicated answer, or a joke answer."
 
-The Al'kesh, the workhorse of the galaxy, can be found pretty much anywhere there's Goa'uld. It served a wide variety of roles, everything from bombing, to scouting, and cargo delivery. It was also much more plentiful and often less secured than a typical Ha'tak mothership.
+"Electromagnetism is a force we work with everyday. It would be very strange if it didn't involve magnets."
+
+"So, about the hyperspace drive; that will give us the ability to touch our enemies, right?"
+
+"It's only a very small component. The test will generate a hyperspace window to enter. We will need to use some sort of thrusters to move inside of it."
+
+"I thought the hyperspace drive is responsible for moving inside hyperspace?"
+
+"Not at all. All the drive can do is dive into a certain layer of subspace. The deeper you go, the faster you can go using the same thrusters, but the harder it is to maintain a hyperspace window."
+
+The duo met up with the engineers for the project, and they walked to a hangar where an Alkesh was located.
+
+The Al'kesh was the workhorse of the Goa'uld empire, and it can be found pretty much anywhere there's Goa'uld. It served a wide variety of roles, everything from bombing, to scouting, and cargo delivery. It was also much more plentiful and often less secured than a typical Ha'tak mothership, and just as reliable and long lasting.
 
 Thus, it was an ideal vehicle to steal. Thankfully, the SGC did not have to raid a Goa'uld base to get one. The Tok'ra gifted the SGC not just one, but three for the SGC to study and reverse engineer.
 
