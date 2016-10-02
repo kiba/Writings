@@ -7,7 +7,7 @@
 
 One of the perk of being a researcher at the most top secret military program in the world is that one is afforded leeway and privileges in order to do a job, like being able to piggyback on a military plane to fly to other top secret locations. Services on such plane was predictably bad, but in some ways it beats waiting in line and getting stuffed like sardine into a plane.
 
-That was how Bill Lee arrived in the legendary Area 52, where supposedly Roswell aliens has landed. It was probably the Asgard, maybe even Loki. Lee heard that SGC had gotten their hands on the destroyed craft, though he didn't know the status of that particular research project, given that secret projects were usually on only a need-to-know basis.
+That was how Bill Lee arrived in the legendary Area 52, where supposedly Roswell aliens has landed. It was probably rouge Asgards. Lee heard that SGC had gotten their hands on the destroyed craft, though he didn't know the status of that particular research project, since it didn't really pertain to the projects that he was working on.
 
 He stumbled out of the aircraft along with top secret cargo onto the desert landing strip. Predictably, it was scorchingly hot. He hurried to the air conditioned reception center.
 
@@ -76,6 +76,13 @@ It worked! The doctor smiled at his success, doing a victory dance. Later, he fo
 **November 3, 1998**
 **Alpha Site**
 
+Earth itself was was smack in the middle of Goa'uld, which was a very precarious position to be in. However, Sol has long since ran out of naquadah, so there was little reason for the Goa'uld to come to Earth, but it was understood that may not be the case forever, especially if Earth started building hyperdrive capable starships.
+
+The Alpha Site was chosen for its distance, and the lack of naquadah on planet or in space, reducing any interests from aliens. It was very similar to Earth in many way, and geologic survey suggested that it was terraformed hundred of thousand years ago, seeded with Earth lifeforms.
+
+Stargate Command chosen to considerably expand the facility built there since the beginning of the year, and future Earth started helping out as well.
+
+It was also a test facility for a very important project.
 
 "Are there magnets involved?" O'Neill said.
 
