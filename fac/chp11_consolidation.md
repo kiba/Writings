@@ -18,31 +18,35 @@ My empress and I also decided to release the Factorio OS to the world. They neve
 
 Hosted a meeting with the Wizard of Oz. Explained to him everything I knew about RWBY, and took him to the archaeological site underneath, letting him appreciate what the ancestors of Remnan accomplished.
 
-With the secrets told, the whole Cinder plot is now his responsibility.
+With the secrets told, the whole Cinder plot is now his responsibility, though I offered assistance.
 
 **Year, Day 35**
 
-Did a bunch of things with Dawn.  I built a railway to Dawn and started to rebuild Dawn from the ground up. I also have much better access to Dust as well. I ordered my TBM and mining equipment to go there and start digging in the mines.
+Did a bunch of things with Dawn. I built a railway to Dawn and started to rebuild Dawn's infrastructure from the ground up. With Dawn giving me better access to Dust veins, I ordered my TBM and mining equipment to go there and start digging a new mine.
 
 Did I mentioned I have ministers for quite a while now? A lie detection program allowed me to select honest ministers with the right experience so I don't have to work so hard doing background check and clever interview, not that I think it would do us any good. Neither Rin and I knew anything about governing a country, so we delegated as much as we can get away with. Politics unfortunately was still something that I cannot delegate so easily, though I have advisers for that.
 
-I expanded my welfare program to include universal healthcare, funded on the back of only one tax: the recommended by economists but almost universally ignored land-value tax. It's a good thing that with guaranteed housing and power armor, some of our doctors are actually willing to work for peanuts.
+I expanded my welfare program to include universal healthcare, funded on the back of only one tax: the recommended by economists but almost universally ignored land-value tax. It's a good thing that with guaranteed housing and power armor, some of our doctors are actually willing to work for peanuts. The salary saved are then spent somewhere else.
 
 Our population finally stopped exploding as well, which was a relief, because I need to keep ahead by burning dusts in generators(more wind dusts, please!) and building more solar panels. Factorio solar panels are really good, and so are their batteries. The solar panels are sixty percent efficient in converting sunlight to electricity. That's a crazy number back home.
 
 **Year 2, Day 44**
 
-A Schnee Dust Company representative approached us to sell their mine in Dawn, I brought their mine.
+A Schnee Dust Company representative approached us to sell their mine in Dawn, citing unprofitability due to intense competition.
+
+After haggling, I brought their mine. Their employees are now mine.
 
 **Year 2, Day 46**
 
 The data are in. My economist told me that real estate prices in Allothmy are actually stable, taking into account my planned expansion of space, which was intended to be predictable.
 
+Dawn is taking a beating much to the very loud complaint of property owners there, but they knew what was going to happen when they annexed themsleves to my kingdom.
+
 I am so glad that I can just implement an economist's proposal without having to deal with the fucking political class.
 
 **Year 2, Day 56**
 
-Whittle is fucking amazing. He resolved all fourteen launch failures and slipped it through peer review while the kingdoms didn't find anything suspicious, and now it's in the blueprints.
+Whittle is fucking amazing. He resolved all fourteen launch failures and slipped it through peer review while the kingdoms didn't find anything suspicious, and it's now in the blueprints.
 
 **Year 2, Day 61**
 
@@ -60,7 +64,7 @@ It turned into a big fight before we stopped talking to each other the whole day
 
 We chaired the first SETO conference on rocket designs. We noticed that seventy-five percent of them didn't like Whittle, while only a quarter were positive.
 
-I knew Whittle pissed off his fellow collaborators something fierce.
+I knew Whittle pissed off his fellow collaborators something fierce, but what can I do about his personality?
 
 Anyway, the conference spiraled into a three hours argument about the best way to approach rocket development.
 
