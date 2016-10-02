@@ -58,4 +58,42 @@ My girlfriend?wife?co-ruler and I decided on a rotation schedule. We would each 
 
 Rin reminded me that the Vytal Festival is coming up and she wanted to see it in person.
 
-I told her: "No fucking way."
+I told her in no uncertain term: "No fucking way."
+
+It turned into a big fight before we stopped talking to each other the whole day, even through dinner.
+
+**Year 2, Day 73**
+
+We chaired the first SETO conference on rocket designs. We noticed that seventy-five percent of them didn't like Whittle, while only a quarter were positive.
+
+I knew Whittle pissed off his fellow collaborators something fierce.
+
+Anyway, the conference spiraled into a three hours argument about the best way to approach rocket development.
+
+Rin came up with a compromise. The engineers will vote for the top three rocket designs through preferential voting via a blind ballot. Then they would be divided up into three teams and have nine months to come up with a winning design.
+
+At the end of the day, three designs were finally chosen. Whittle's design didn't win, so he grudgingly joined the design team with the proposal most similar to his. I believed his team will beat everybody else.
+
+On our existing rocket: it's reliable enough that we're launching them everyday until failure. Whenever it failed, engineers get together to perform a root cause analysis so that it will be more reliable.
+
+**Year 2, Day 79**
+
+The city of Vale extended an invitation to us for the Vytal festival. Rin accepted. I grumbled.
+
+**Year 2, Day 84**
+
+The Schnee Dust Company closed down its mine in Dawn and sold it to us, citing fierce competition from the kingdom of Mechatron.
+
+They also filed a lawsuit through all the kingdoms against us.
+
+Screw them.
+
+Despite the lawsuit, we decided not to disbar Schnee products from moving through our kingdom.
+
+**Year 2, Day 90**
+
+Phew, it's already been three months.
+
+Anyway, we built up a substantial constellation of satellites, and we started selling graphene based general purpose computers to the kingdoms, which is superior to their silicon based tech.
+
+Before that, we were already selling power armor suits
