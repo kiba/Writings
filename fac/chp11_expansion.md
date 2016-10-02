@@ -1,20 +1,20 @@
-# Chapter Eleven: Expansion
+# Chapter Eleven: Consolidation
 
 **Year 2, Day 27**
 
 Lot of things happened all at once.
 
-Dawn finally gave up remaining independent, choosing to become part of Mechatron. At this time, Allothmy grew to forty thousand, while Dawn is twice than that of my capital. We seemed to have hit a plateau yet. That's OK, because I need time for my cities to catch up on social services anyway.
+Dawn finally gave up remaining independent, choosing to become part of Mechatron. At this time, population wasn't growing at a terrible rate every month. We seemed to have hit a plateau. That's a huge relief, because I need time to get my shit together.
 
 The four kingdoms signed a treaty with me to form the SETO Or Space Exploration Treaty Organization.
 
-We share rocket designs and manufacturing techniques. I realized that much of my logistics and production advantage will dissipate, but I am betting on having a more functional city than them, and I know that Remnant needs the technologies that it can get.
+We will share rocket designs and manufacturing techniques. I realized that much of my logistics and production advantage will dissipate, but I am betting on having a more functional city than them, and I know that I need to share more technologies with Remnant, but it can't be against the interest of my kingdom.
 
-In that treaty was also an agreement to not use space for warfare. It's an unfortunate clause, but I also snuck in a subclause that authorized SETO to build a space military to defend against threats external to Remnant.
+In that treaty was also an agreement to not militarize warfare or build ICBMs. It's an unfortunate clause, because I want to wipe out Salem from Remnant with a kinetic strike, but I also snuck in a subclause that authorized SETO to build an international space military to defend against threats external to Remnant. That should hopefully nullify the other subclause.
 
 The treaty mollified the Kingdoms, and I can get back to doing what I like instead of what I hate.
 
-We decided to release the Factorio OS to the world. They never heard of 'open source software' before. It's a very foreign thought to them.
+My empress and I also decided to release the Factorio OS to the world. They never heard of 'open source software' before. It's a very foreign thought to them.
 
 Hosted a meeting with the Wizard of Oz. Explained to him everything I knew about RWBY, and took him to the grave of his ancestors.
 
@@ -90,10 +90,18 @@ Screw them.
 
 Despite the lawsuit, we decided not to disbar Schnee products from moving through our kingdom.
 
-**Year 2, Day 90**
+**Year 2, Day 105**
 
-Phew, it's already been three months.
+With our launch effort we built up a substantial constellation of satellites, even tested experimental technologies, though we did lose some satellites.
 
-Anyway, we built up a substantial constellation of satellites, and we started selling graphene based general purpose computers to the kingdoms, which is superior to their silicon based tech.
+People across Remnant are already using the satellite network to communicate and navigate.
 
-Before that, we were already selling power armor suits
+Speaking of markets and money, Mechatron is doing very well on the market selling and our power armors. It's very cheap for us to make, and I made sure to open source every last component, down to the graphene based chips, even if they can't manufacture it. Even made sure that I am of a very firm belief that everyone should have power armor and should own it completely.
+
+Businesses are getting ballistic at us, filing record number of trade complaints, saying that we are anticompetitive. I hired more lawyers again.
+
+Pfft. I made a very healthy margin on those power armor. They are just not good enough.
+
+Some shops opened up that specialized in modding Mechatronic components, making bespoke goods. That's fine with me, as long as they aren't killing someone with the products.
+
+Phew, it's already been three months and I been very busy for the last two weeks prepping for the Vytal festival, making sure that my soldiers are stationed where they need to be to help secure the event from Cinder and her minions. They'll be working with the Atlastian military as well. In the event of a worst case scenario, My entourage will be extracted via a bullhead by elite huntsmen.
