@@ -1,16 +1,16 @@
 # Chapter Six: Middle of Nowhere
 
-The vast majority of humanity live inside the four city-states; Vale, Atlas, Vacuo, and Mistral, where it's mostly safe and comfortable. There used to be more kingdoms, but they either been absorbed, or broke apart.
+The vast majority of humanity live inside the four city-states; Vale, Atlas, Vacuo, and Mistral, where it's mostly safe and comfortable. There used to be more kingdoms, but they either been absorbed, or broken apart.
 
 A minority of humans decided to live out in the Grimm wilderness. Depending on a person's view, they might be viewed as either hardy settlers or foolish dreamers.
 
 Despite the danger from the Grimm and the environment, the wilderness offered opportunities to make a living. Some of which included mining for Dusts. Independent mining towns tend to pop up like zits only to be slapped down by the Grimm, or the mines are simply exhausted.
 
-Dawn was one of those mining town, but they also struck it rich, while also being on the map, as they are on the path of a well known trade route between Vale and Vacuo. That would sustain the town when the richness of the mine ran out.
+Dawn was one of those mining town, but they struck a particularly rich vein, while also being on the map, as they are on the path of a well known trade route between Vale and Vacuo. That would sustain the town when the richness of the mine ran out.
 
 When the inhabitants of Dawn noticed smoke trails and a bulging greyness from afar, as well reports of destroyed grimm birds, they sent a message to their mother city-state for assistance.
 
-for Qrow, a veteran huntsman, treated this mission like any other. Sure, there was a mystery, and on occasion, it did turn out something interesting. He didn't have any particular expectation.
+for Qrow, a veteran huntsman, treated this mission like any other. Sure, there was a mystery, and sometime that would turn out to be an interesting experience, but most often not.
 
 "We're approaching the probable location," the Vale military pilot said. The dropship tilted to the right until they were in sight of a grey circular layout.
 
@@ -20,11 +20,11 @@ But the images were clear enough, enough to piqued the huntsman's interest, alon
 
 ***
 
-The group of dropships disgorged at a location not far from one of their fortress, built on a plain. A voice barked orders to set up perimeter defense and camp. Qrow and the other huntsmen assisted.
+The group of dropships disgorged at a location not far from one of the mystery fortress, built on a plain. A voice barked orders to set up perimeter defense and camp. Qrow and the other huntsmen assisted.
 
 Most of the civilians were more hinderance than help, so they were ordered to sit pretty.
 
-It took no time at all. Defensive positions and heavy weapons were positioned and deployed first, followed by latrines, tents, and the rest.
+It took very little time for the Vale soldiers to set it all up. Defensive positions and heavy weapons were positioned and deployed first, followed by latrines, tents, and the rest.
 
 The initial setup was done in thirty minutes. For sure, there were more to do, but the basic were already there. Deciding that it was enough for now, the leadership converged.
 
@@ -36,7 +36,7 @@ The Colonel set up a holographic display for everyone to see, and played a video
 
 "It seemed that someone with the resource of kingdom had set up a fortress and an army," Oliver said. "There's military vehicles scattered throughout, as well construction equipment, industrial facilities....and..."
 
-"It appeared that our mysterious fortress builder have technologies that aren't available to us," Whittle interjected.
+"It appeared that our mysterious fortress builder have technologies that aren't available to us," Whittle interjected. "Objects seemed to disappear or appears from thin air, carried by those drones."
 
 "Right. And they hadn't shot us down, despite being completely capable of doing so. They even pinged us with communication we couldn't understand. Even now, they aren't attacking us."
 
@@ -66,7 +66,7 @@ Qrow relaxed as he drink from his flask, watching over a very frustrated team of
 
 It was sort of amusing in a way.
 
-"Can I try?" Oobleck said.
+"Can I try?" Oobleck asked.
 
 The head translator nodded.
 
