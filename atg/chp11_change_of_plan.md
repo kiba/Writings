@@ -11,3 +11,13 @@ Yet, the SGC was paranoid to a fault, not wanting to risk a leak.
 It wasn't worth the hassle, so he brought clothes and accessories blind, with the help of an airman. He tried whatever fit.
 
 John Swift didn't care much about the clothes, as long it looked presentable enough. He's an investor. The billionaire wasn't the person that need to impress someone anyway. Not that it matters much. Swift knew what investment to make ahead of time.
+
+***
+
+Swift learned a long time ago that there was no Eli Berkovitz or any of his relatives in this reality. Instead he found an equvalient, two South African entrepeneurs running this company.
+
+The billionaire walked confidentally into the business place.
+
+"How may I help you?" the receptionist asked.
+
+"I would like to invest in this company," Swift said.
