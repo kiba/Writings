@@ -6,11 +6,11 @@
 
 The framers of the Constitution never guessed for the need to make treaties with powers from the stars, or its total secrecy, or that the senate wasn't going to vote on any of those treaties. That was largely up to the SGC's discretion. Those were swept under the rug under terms like "executive agreements" and other weasel terms.
 
-Somehow that didn't feel all that egregious to diplomat Gerry Parkinson. He was also a participant in this himself, especially as he walked across a moon to meet with the leader of an amphibious species, the Ohnes.
+Somehow it didn't feel all that egregious to diplomat Gerry Parkinson. He was also a participant in this himself, especially as he walked across a moon to meet with the leader of an amphibious species, the Ohnes.
 
-Accompanying him was Doctor Daniel Jackson himself, who found himself a victim of a torturous misunderstanding. More importantly, Jackson was the leading expert on alien cultures. To many in the galaxy, he is the face of Earth, not the diplomatic corp. Thankfully, the doctor was a pretty good dioplomat despite the lack of training.
+Accompanying him was Doctor Daniel Jackson himself, who found himself a victim of a torturous misunderstanding. More importantly, Jackson was the leading expert on alien cultures. To many in the galaxy, he is the face of Earth, not the diplomatic corp. Thankfully, the doctor was a pretty good diplomat despite the lack of training.
 
-"So, the Nem guy is the," Parkinson tried to refresh his memory. "The guy who kidnapped you and almost killed you."
+"So, the Nem guy is the...," Parkinson tried to refresh his memory. "The guy who kidnapped you and almost killed you."
 
 "That's right. He's going to be present to make his offer of reparation to me," Jackson answered.
 
@@ -38,11 +38,11 @@ Parkinson thought Doctor Jackson seemed all too readily to forgive Nem, but at l
 
 Ambassador Joesph Faxon would be going under any other circumstances, but there other concerns that made the ambassador a poor choice.
 
-The ambassador was a character on Stargate SG-1, which may make persuasion more difficult than it would be otherwise. However, Gerry Parkinson was a complete non-entity in the series and he was experienced in off-world affairs. One of his achievement was having brokered a treaty with the Omoroca, the only advanced civilization to provide Earth with technical help until the alliance with the Tok'ra was formalized. One last consideration was that Gerry Parkinson was that his double was working in the state department doing the same exact job.
+The ambassador was a character on Stargate SG-1, which may make persuasion more difficult than it would be otherwise, because Faxon was fictional to them. However, Gerry Parkinson was a complete non-entity in the series and he was experienced in off-world affairs. One of his achievement was having brokered a treaty with the Omoroca, the only advanced civilization to provide Earth with technical help until the alliance with the Tok'ra was formalized. One last consideration was that Gerry Parkinson was that his double was working in the state department doing the same exact job.
 
-"The iris is open," Harriman said after the gate connected. "Confirming with rover."
+"The iris is open," Harriman said after the gate connected. "Confirming with rover." The rover made it through intact on the other side.
 
-Parkinson fearlessly walked through the whirlpool, ending up in a hot warehouse with no air condition. He could see SGC personnels sweating profusely. There was no movie set for the show, as the gate was moved days earlier.
+Parkinson fearlessly walked through the gate's horizon, ending up in a hot warehouse with no air conditioning. He could see SGC personnels sweating profusely. There was no movie set for the show, as the gate was moved days earlier.
 
 It was a precaution to separate the billionaire from a possible investigation and public exposure of the stargate to the public.
 
@@ -50,7 +50,7 @@ It was a precaution to separate the billionaire from a possible investigation an
 
 Parkinson got in a car with the CIA. Then he was dropped in town. From there, Parkinson made the first of many calls for taxi. He trained for this back on his Earth, zip-zagging across a state to ensure that he couldn't be traced back so easily.
 
-Some hours later, he was already in his fourth ride. Parkinson saw the future, and the future didn't seem to be a foreign country. Looking out the window doesn't seem to suggest much change at all. He knew that gay marriage was approved by the court, and there was a black president in charge, but those changes can be seen miles away in nineteen ninety-eight. Some conservatives might be aghast, but one might argue that's inevitable progress.
+Some hours later, he was already in his fourth ride. Parkinson saw the future, and the future didn't seem to be a foreign country. Looking out the window doesn't seem to suggest much change at all. He knew that gay marriage was judged constitutional by the court, and there was a black president in charge, but those changes can be seen miles away in nineteen ninety-eight. Some conservatives might be aghast, but one might argue that's inevitable progress.
 
 Nonetheless, it will still be a strange experience.
 
@@ -61,7 +61,7 @@ After many rides and a motel stay, Parkinson finally arrived at his intended des
 
 Despite being a diplomat from an alternate reality, Parkinson started to feel like a crackpot as he approached a military installation.
 
-A bored soldier jolted into alertness as the sight of Parkinson carrying a suitcase. The diplomat walked up to, rather than use a car.
+A bored soldier jolted into alertness at the sight of Parkinson carrying a suitcase; the diplomat having walked up to the checkpoint, rather than use a car.
 
 "I am Gerry Parkinson with the state department. I need to speak with the base commander as soon as possible."
 
@@ -79,7 +79,7 @@ Then the soldier turned his attention to the diplomat. "You don't have an appoin
 
 "Yes, um, this is an emergency. I am with the state department."
 
-Twenty minutes on in an infuriating bureaucracy and a couple of google search, and with the soldier talking to his superior. He finally announced, "sir, you are under arrest for imitation of a government official. You have the right to remain silent. Anything that you say could be used against you in the court of law."
+The diplomat waited for twenty minutes as the soldier did his research with google as well talked to his superior. He finally announced, "sir, you are under arrest for imitation of a government official. You have the right to remain silent. Anything that you say could be used against you in the court of law."
 
 Finally.
 
@@ -87,7 +87,7 @@ Parkinson turned around for easy access to the handcuffs. "I can explain all of 
 
 "Sure," the soldier said incredulously. "But Gerry Parkinson is stationed in China, having just talked to a Chinese official. Unless our diplomat can teleport."
 
-Of course, this was how it was going to end. He hoped to get to the base commander and then to the POTUS of two thousand fifteen, but the security guard proved too vigilant and competent. Parkinson was actually fine with that, proud even, but he was annoyed that he cannot do his job.
+Of course, this was how it was going to end. He hoped to get to the base commander and then to the POTUS of two thousand fifteen, but the security guard proved too vigilant and competent. Parkinson was actually fine with that, proud even, but he was annoyed that he cannot do his job so easily.
 
 ***
 **Hours later**
@@ -96,7 +96,7 @@ Parkinson had just deliberately put himself in a situations that he wouldn't wan
 
 The door opened up to a man and a woman. The smell of food waffled over the diplomat's nose.
 
-"I am special agent Daniel Fox and this is special agent Madison Smith," the male FBI agent introduced myself before the both of them sat down opposite of the diplomat. "Would you like a hot dog and a coke as you answer our questions?"
+"I am special agent Daniel Fox and this is special agent Madison Smith," the male FBI agent introduced himself before the both of them sat down opposite of the diplomat. "Would you like a hot dog and a coke as you answer our questions?"
 
 "No," the diplomat said.
 
@@ -104,15 +104,15 @@ The door opened up to a man and a woman. The smell of food waffled over the dipl
 
 "The only name I ever have in my life is Gerry Parkinson."
 
-"That's the name of the diplomat you tried to impersonate earlier. This is a federal crime. Come clean now, and your cooperation will be noted."
+"That's the name of the diplomat you tried to impersonate earlier. This is a federal crime. Come clean now, and your cooperation will be noted in your sentencing."
 
 "Who says that I cannot have the same name as him, or have the same job as him?"
 
-"There are no other Gerry Parkinson."
+"There are no other Gerry Parkinson in the state department."
 
 "Did you take a look at my suitcase? The classified documents?"
 
-"They are probably fake," special agent Smith said flatly. Parkinson could already feel the anger and frustration rising in him. The FBI agents had already concocted a story before even meeting him.
+"They are obvious fake," special agent Smith said flatly. Parkinson could already feel the anger and frustration rising in him. The FBI agents had already concocted a story before even meeting him.
 
 "You didn't even check the materials for authenticity?"
 
@@ -155,18 +155,18 @@ The agent opened up the suitcase to revealed a cartload of documents, all marked
 
 "It's shaping up to be an interesting case."
 
-"Good thing he fell right into our lap, then."
+"At least he was dumb enough to fall right into ourlap."
 
 ***
 **FBI Special Agent Ben Brown**
 
-A faker shown up in the state of Nevada, impersonating a diplomat. Strangely, he was good at it too, giving out too detailed description of a diplomat's personal life. Well, agent Ben Brown was there at the diplomat's house, to find that out, with a truck nearby with equipment for hunting bugging device.
+Somebody shown up in the state of Nevada and started impersonating a diplomat. Strangely, he was good at it too, giving out too detailed description of a diplomat's personal life. Well, agent Ben Brown was there at the diplomat's house, to find how the criminal pilfered personal information. He came prepared with a truck full of equipment for hunting bugging devices and horde of agents.
 
 It was a huge mansion, with well manicured lawns in a middle class neighborhood that was about to become the scene of a crime.
 
 He knocked on the door and rang the doorbell. It only took a moment for the door to answer.
 
-"Hello," the woman who is the diplomat's wife asked.
+"Hello," the diplomat's wife greeted.
 
 "I am special agent Ben Brown with the FBI. We have a search warrant for your house. We have reasons to believe that your house might be bugged..."
 
@@ -174,7 +174,7 @@ The woman looked absolutely shocked. "Is it because of....the Chinese?" she wond
 
 "Ma'am, we don't know for sure, yet."
 
-"Can you explain what's going on?" Mrs. Parkinson questioned.
+"Can you explain what's going on?" Mrs. Parkinson queried.
 
 "Ma'am, somebody's impersonating your husband. He also knew in imitate details about your life in too much details. Details that your husband confirmed as true. We suspected that you were being spied upon."
 
@@ -192,24 +192,24 @@ Sure enough, the man eerily resembled the photo.
 
 "Are you sure that this is what your husband look like?"
 
-"Uh huh."
+"Uh huh. We took that photo seventeen years ago."
 
-It took hours for the team to comb every inch of the diplomat's house, but in the end, they found absolutely nothing. There was no bugs in the house.
+It took hours for the team to comb every inch of the diplomat's house, but in the end, they found absolutely nothing. There were no bugs in the house.
 
-He even got the wife to ask very personal questions to the impersonator that only her husband would now. If it was anything more than seventeen years ago, this man knew, but past that? He didn't know a thing.
+He even got the wife to ask very personal questions to the impersonator that only her husband and her would know. If it was anything more than seventeen years ago, this man knew, but past that? He didn't know a thing.
 
 What was that supposed to mean?
 
 ***
 **FBI Agent Daniel Fox**
 
-He thought that this man in the interrogation room was a simple crank, an annoying agitator that he would write up. Yet, he wasn't even closing in to the truth.
+He thought that this man in the interrogation room was a simple crank, another easy case. Yet, he found nothing useful.
 
-The DNA profiles didn't find anything, neither did his fingerprints.
+The DNA profiles didn't find anything, neither did his fingerprints. The FBI database was very comprehensive, but people who had never committed a crime yet was very unlikely to be in the database. It might be that this criminal was a first-time offender.
 
 The man never quite bulge in the story either, except for one momentarily lapse.
 
-"So why did you lie about bugs?" Fox asked.
+"So why did you lie about bugging the diplomat's wife?" Fox asked.
 
 The fake diplomat snorted, then he became visibly angry. "What are you going to think what's going to happen? I am saying the truth all alone, then you believed my lie in my moment of weakness."
 
@@ -221,7 +221,7 @@ The fake diplomat snorted, then he became visibly angry. "What are you going to 
 
 "I. AM. NOT. LYING!"
 
-"Alright then. Would you have me do to disprove or prove your story?"
+"Alright then. What would you have me do to disprove or prove your story?"
 
 The fake diplomat smiled. "Take my DNA and compare it to your diplomat. It'll be the same."
 
