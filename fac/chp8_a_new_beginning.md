@@ -4,7 +4,7 @@ Jaune Arc failed to get into the Beacon Academy. The admission officer found out
 
 He didn't even have the heart to lie to caravans for a job when he headed out for the new "frontier".
 
-That was how he ended up, alone, in Dawnson on the street, looking for a place to stay and a job. His pocket was very empty. The town seemed to be bursting at the seam, because of the recent population boom.
+That was how he ended up, alone, in Dawn on the street, looking for a place to stay and a job. His pocket was very empty. The town seemed to be bursting at the seam, because of the recent population boom.
 
 A lot of construction seemed to be brand new, some seemed to be specializing in selling Mechatron's goods, which was the name of the local 'kingdom' nearby.
 
@@ -52,7 +52,7 @@ Outside of the train station, there were shops and kiosk. Amazing that a town ca
 
 "Everyone who needs an apartment, come this way!" a wolf faunus boy said. "Come this away."
 
-Well, what was Jaune Arc waiting for? He came to the frontier because that there were things happening. He thought he might be able to make a living, rather than staying in Vale and getting a job there. It was apparently not in Dawnson, but here, hopefully?
+Well, what was Jaune Arc waiting for? He came to the frontier because that there were things happening. He thought he might be able to make a living, rather than staying in Vale and getting a job there. It was apparently not in Dawn, but here, hopefully?
 
 ***
 

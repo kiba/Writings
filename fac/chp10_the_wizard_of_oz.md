@@ -1,6 +1,6 @@
 # Chapter Ten: The Wizard of Oz
 
-"Dawnson Peacefully Annexed!"
+"Dawn Peacefully Annexed!"
 
 "The Space Exploration Treaty Organization is Formed."
 

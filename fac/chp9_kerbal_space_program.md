@@ -10,7 +10,7 @@ Look where it got us.
 
 We got three thousand people in Allothmy. That's a drop in the bucket when you consider that five hundred million humans live on Remnant. A far cry from seven billion on my home planet, but still mega-huge.
 
-Dawnson still hadn't decided whether to become part of my kingdom, but they're a protectorate by the virtue of being very close. It's even bigger now, with over ten thousand people living there. They're doing brisk trade trading with us and the rest of the world.
+Dawn still hadn't decided whether to become part of my kingdom, but they're a protectorate by the virtue of being very close. It's even bigger now, with over ten thousand people living there. They're doing brisk trade trading with us and the rest of the world.
 
 Free apartment and power armor suit, and rationing are apparently not enough.
 
