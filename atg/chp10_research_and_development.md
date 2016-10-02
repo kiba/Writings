@@ -7,7 +7,7 @@
 
 One of the perk of being a researcher at the most top secret military program in the world is that one is afforded leeway and privileges in order to do a job, like being able to piggyback on a military plane to fly to other top secret locations. Services on such plane was predictably bad, but in some ways it beats waiting in line and getting stuffed like sardine into a plane.
 
-That was how Bill Lee arrived in the legendary Area 52, where supposedly Roswell aliens has landed. It was probably the Asgard, maybe even Loki. Lee heard that SGC had gotten their hands on the destroyed craft, thought he didn't know the status of that particular research project, given that secret projects were usually on only a need-to-know basis.
+That was how Bill Lee arrived in the legendary Area 52, where supposedly Roswell aliens has landed. It was probably the Asgard, maybe even Loki. Lee heard that SGC had gotten their hands on the destroyed craft, though he didn't know the status of that particular research project, given that secret projects were usually on only a need-to-know basis.
 
 He stumbled out of the aircraft along with top secret cargo onto the desert landing strip. Predictably, it was scorchingly hot. He hurried to the air conditioned reception center.
 
