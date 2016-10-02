@@ -72,3 +72,35 @@ Lee crossed his finger as the officer pulled the trigger. Stream of plasma rushe
 It worked! The doctor smiled at his success, doing a victory dance. Later, he found out that the plasma engine was much worse than the ion drive in specific impulse, but greater amount of thrust. Essentially, he created an engine that was in-between the rocket engines and ion engines.
 
 ***
+**Doctor Samantha Carter**
+**November 3, 1998**
+**Alpha Site**
+
+
+"Are there magnets involved?" O'Neill said.
+
+Doctor Samantha Carter gave the colonel a bemused look. "Yeah, electromagnetic forces are involved," she gave the Colonel a straight answer.
+
+"So, this test will give us honking space guns we can shoot our enemies with."
+
+"That's not actually correct, sir. It will give our weapon platforms an ability to touch our enemies. At least the first step of it anyway."
+
+The Al'kesh, the workhorse of the galaxy, can be found pretty much anywhere there's Goa'uld. It served a wide variety of roles, everything from bombing, to scouting, and cargo delivery. It was also much more plentiful and often less secured than a typical Ha'tak mothership.
+
+Thus, it was an ideal vehicle to steal. Thankfully, the SGC did not have to raid a Goa'uld base to get one. The Tok'ra gifted the SGC not just one, but three for the SGC to study and reverse engineer.
+
+The SGC since then used one Al'kesh for transport such as this one, the other two dissected.
+
+When she wasn't doing missions with SG-1, her primary project was focused on the hyperdrive engine, the critical component enabling intergalactic travel. Even if Earth reverse engineered everything else and began production, they would be unable to strike against their enemies, the ships stranded in the solar system. A good defense is a good offense.
+
+Building on the understanding of Goa'uld hyperdrive, she and her team built a much simpler hyperdrive window generator. It was even housed in a shipping container, strapped to an Al'kesh naquadah generator, which Earth did not know how to make, even though they understood the theories.
+
+The Al'kesh life off, the shipping container that housed the drive, going with them. She saw the spacecraft disappearing from the planet altogether.
+
+If the Tok'ra was uncooperative like they were in the television series, it would take the SGC years to get anywhere. Thankfully, the alliance in this reality was much more expansive.
+
+The only information she's receiving right now was relayed by satellites orbiting the planet, having been launched by the same Al'kesh.
+
+Then there was momentarily no information. The Al'kesh made a planned hyperspace jump one AU(astronomical unit) from here, judged sufficiently safe. From there, it should detached the shipping container, and jumped half of an AU here. From there, the Al'kesh witnessed the prototype generated a hyperspace window for only a brief second.
+
+It was anticlimactic.
