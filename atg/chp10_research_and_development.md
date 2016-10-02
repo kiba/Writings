@@ -2,7 +2,8 @@
 
 ***
 **Doctor Bill Lee**
-**Area Fifty-one**
+**Area Fifty-Two, SG-Earth**
+**October 27, 1998**
 
 One of the perk of being a researcher at the most top secret military program in the world is that one is afforded leeway and privileges in order to do a job, like being able to piggyback on a military plane to fly to other top secret locations. Services on such plane was predictably bad, but in some ways it beats waiting in line and getting stuffed like sardine into a plane.
 
@@ -14,7 +15,7 @@ After checking in, and walking to another building, he finally arrived at the te
 
 One of the first alien objects that the SGC captured was from Apophis's Jaffa. Since then, the SGC captured as many of the Goa'uld weapon systems as they could get on hand. It was very easy to do so since the Jaffa frequently died in dove at a tactically superior and better led enemy.
 
-A staff weapon was a terrible design in more way than one, more of a tool used to terrorize slaves than to fight actual ground battles. The trigger assembly was easy to press, given thelack of a guard, making unintended fire easy to do.. There's no way you can held the staff weapon against your shoulder plate, unless you have long enough arm, which affect the staff's accuracy by letting the recoil shook the weapon.
+A staff weapon was a terrible design in more way than one, more of a tool used to terrorize slaves than to fight actual ground battles. The trigger assembly was easy to press, given the lack of a guard, making unintended fire easy to do.. There's no way you can held the staff weapon against your shoulder plate, unless you have long enough arm, which affect the staff's accuracy by letting the recoil shook the weapon.
 
 Nonetheless, it was studied and taken apart by researchers to see how it work, as it was an example of actual energy weapon. Tok'ra technical experts occasionally gave lecture on how the device works.
 
@@ -58,7 +59,7 @@ After an hour of rigging the heavy weapon platform. The range office and Doctor 
 
 "Three...two..one, fire in the hole!" the officer announced, pulling the trigger.
 
-There was a rapid fire of plasma ball spitted by the prototype, its scorchmarks hitting widely off targets.
+There was a rapid fire of plasma ball spitted by the prototype, its scorch marks hitting widely off targets.
 
 Then it stopped.
 
