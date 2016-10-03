@@ -1,6 +1,9 @@
 # Chapter Thirteen: The Aftermath
 
-**General George Hammond**
+***
+**Major General George Hammond**
+**SGC, SG-Earth**
+**December 4, 2015**
 
 The general slumped into the chair. A very piece of grim news came in. Sokar had just slaughtered his enemies in a lop-sided battle. There was nothing holding back the system lord and his forces. He was free to trample his adversaries across the galaxy.
 
@@ -14,6 +17,6 @@ The general slumped into the chair. A very piece of grim news came in. Sokar had
 
 "We don't know," Selmak said. "It depends on his campaign and how stubborn and adaptive the Goa'uld are."
 
-"The lack of innovation shown by the Goa'uld is what we count on in order to survive. Now we want them to innovate. Ironic."
+"The lack of innovation shown by the Goa'uld is what we count on in order to buy time. Now we want them to do the opposite. Ironic."
 
- 
+"We cannot give up, no matter what we do."
