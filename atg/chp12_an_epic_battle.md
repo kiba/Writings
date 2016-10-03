@@ -1,9 +1,11 @@
 # Chapter Twelves: An Epic Battle
 
-The bomb failed to make it through. Sokar lived.
+A lone cloaked Al'kesh watched over Sokar's star system. An event he expected and hoped to happen failed to pass.
 
-Martouf watched as a fleet dropped out of hyperspace and began approaching the Sokar.
+The primitive naquadah bomb failed to make it through the gate. Sokar lived. His ally's plan was good, but that was dependent on Sokar acting like any other interchangable Goa'uld. Martouf/Lantash could guess that the gate was protected properly with a shield.
 
-It didn't look good. The Goa'uld alliance was already outnumbered two to one. Many of the system lords decided to drop out before this battle.
+It was the last ditch attempt to stop or weakened Sokar before the battle.
 
-Should Sokar wins this battle, he will be free to rampage across systems, with no one to stop them.
+Martouf watched as a fleet dropped out of hyperspace and began approaching the Sokar homeworld. His heart dropped into his stomach. It didn't look good at all. The Goa'uld alliance was already outnumbered two to one. Either some of the system lords dropped out of the battle, or that other Goa'uld motherships were too far away.
+
+***
