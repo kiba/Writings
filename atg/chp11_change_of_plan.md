@@ -14,7 +14,7 @@ John Swift didn't care much about the clothes, as long it looked presentable eno
 
 ***
 
-Swift learned a long time ago that there was no Eli Berkovitz or any of his relatives in this reality. Instead he found an equvalient, two South African entrepeneurs running this company.
+Swift learned a long time ago that there was no Eli Berkovitz or any of his relatives in this reality. Instead he found an equvalient, two South African entrepreneurs running this company.
 
 The billionaire walked confidently into the business place.
 
@@ -23,5 +23,13 @@ The billionaire walked confidently into the business place.
 "I would like to invest in this company," Swift said.
 
 He would repeat this process several times. If his investment were very successful, he would attract attention, but there was already a cover story in place; a shell company owned by a mysterious group of investors. It was also a way to smuggle stargate tech into the public before the public disclosure of the stargate program.
+
+***
+
+Weeks had passed as he vacationed in the middle of the dot-com boom. Eventually, he returned to Colorado Spring and to the company he started up there.
+
+It was unusual, catering to the Department of Defense, but Swift reminded himself that he was really on the cutting edge. He wasn't dealing with an old ossified bureaucracy here, but an agile and well run organization, emblem of the United States military at its best.
+
+The SGC's software quality wasn't the greatest. Their engineers and scientists were not by any great programmers. The software code does what it do, and no more.
 
 ***

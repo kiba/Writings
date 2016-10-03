@@ -20,3 +20,9 @@ The general slumped into the chair. A very piece of grim news came in. Sokar had
 "The lack of innovation shown by the Goa'uld is what we count on in order to buy time. Now we want them to do the opposite. Ironic."
 
 "We cannot give up, no matter what we do."
+
+***
+
+It was a somewhat depressing day. SG-1 was recruited into moving equipment and helping out Alpha Site. It wasn't in the job description, but that was not what upset them. This was necessary; urgent.
+
+By now, the grim news had spread. Vast swath of Goa'uld territories are being conquered light years away. The enemy cannot be simply defeated with a well placed nuclear bomb.
