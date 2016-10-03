@@ -94,10 +94,10 @@ People across Remnant are already using the satellite network to communicate and
 
 Speaking of markets and money, the kingdom is doing very well on the market selling our power armors. Statistics said it's the largest export beside our dust. It's very cheap for us to make, and I made sure to open source every last component, down to the graphene based chips, even if they can't manufacture it. I am of a very firm belief that everyone should have power armor and should own it completely.
 
-Businesses are getting ballistic at us, filing record number of trade complaints, saying that we are anticompetitive. I hired more lawyers to prepare for the upcoming battles in courts.
+Some megacorporations are getting ballistic at us, filing record number of trade complaints, using whatever connections they have to convince the kingdoms to operate against us. It didn't help that I expressed no interest in much if any of the goods they want to try to sell to me. The capital goods offered by Remnant are not as robust as mine nor would they sell CAD files and other information to me. I hired more lawyers to prepare for the upcoming battles in courts.
 
-Pfft. I made a very healthy margin on those power armor. They are just not good enough.
+By the way, I got very healthy profit margin on each power armor I sold to the kingdoms.
 
 Some shops opened up that specialized in modding Mechatronic components, making bespoke goods. That's fine with me, as long as they aren't killing someone with the products. Already, somebody are already starting to make copies of the components we're selling.
 
-Phew, it's already been three months and I been very busy for the last two weeks prepping for the Vytal festival, making sure that my soldiers are stationed where they need to be to help secure the event from Cinder and her minions. They'll be working with the Atlastian military as well. In the event of a worst case scenario, my entourage will be extracted via a bullhead by elite huntsmen.
+Phew, it's already been three months and I been very busy for the last two weeks prepping for the Vytal festival, making sure that my soldiers are stationed where they need to be to help secure the event from Cinder and her minions. Behind the scene, I talked to Ozpin about how I can assist. My soldiers will be working with the Atlastian military as well. In the event of a worst case scenario, my entourage and us will be extracted via a bullhead by elite huntsmen and some of my soldiers.
