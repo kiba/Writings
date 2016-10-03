@@ -104,17 +104,31 @@ Doctor Samantha Carter and her commanding officer walked away from the stargate,
 
 The duo met up with the engineers for the project, and they walked to a hangar where an Alkesh was located.
 
-The Al'kesh was the workhorse of the Goa'uld empire, and it can be found pretty much anywhere there's Goa'uld. It served a wide variety of roles, everything from bombing, to scouting, and cargo delivery. It was also much more plentiful and often less secured than a typical Ha'tak mothership, and just as reliable and long lasting.
+The Al'kesh was the workhorse of the Goa'uld empire, and it can be found pretty much anywhere there's Goa'uld. It served a wide variety of roles, everything from bombing, to scouting, and cargo delivery. It was also much more plentiful and often less secured than a typical Ha'tak mothership, and just as reliable and long lasting. That made it an ideal vehicle to steal.
 
-Thus, it was an ideal vehicle to steal. Thankfully, the SGC did not have to raid a Goa'uld base to get one. The Tok'ra gifted the SGC not just one, but three for the SGC to study and reverse engineer.
+Thankfully, the SGC did not have to raid a Goa'uld outpost to steal one. The Tok'ra gifted the SGC not just one, but three for the SGC to study and reverse engineer.
 
-The SGC since then used one Al'kesh for transport such as this one, the other two dissected.
+The SGC since then used one Al'kesh for transport such as this one, though they had to take it apart before putting it back together. That was an educational experience.
 
-When she wasn't doing missions with SG-1, her primary project was focused on the hyperdrive engine, the critical component enabling intergalactic travel. Even if Earth reverse engineered everything else and began production, they would be unable to strike against their enemies, the ships stranded in the solar system. A good defense is a good offense.
+"How many projects you were working on again?" O'Neill asked.
 
-Building on the understanding of Goa'uld hyperdrive, she and her team built a much simpler hyperdrive window generator. It was even housed in a shipping container, strapped to an Al'kesh naquadah generator, which Earth did not know how to make, even though they understood the theories.
+"When we aren't on a mission, half to all of my day is spent on this," Carter replied. "Though recently, I focused exclusively on the hyperdrive."
 
-The Al'kesh life off, the shipping container that housed the drive, going with them. She saw the spacecraft disappearing from the planet altogether.
+"Nobody gets as much as done as you, and you still go on missions with us. Nobody."
+
+"I am flattered sir, but the hyperspace project was a collaborative project, driven mostly by fellow physicists rather than me. You also forgot Daniel Jackson."
+
+"How so?"
+
+"He wore just as many hats as me."
+
+O'Neill nodded.
+
+Normally, O'Neill did not bother to listen to scientific or engineering explanation, but the Colonel has a keen interest in building and flying warships, since he was a former pilot. He was no stranger to technical details. The special force operator listened and asked questions while Carter explained what she was trying to do with the hyperdrive.
+
+Building on their understanding of Goa'uld hyperdrive, she and her team built the simplest hyperdrive window generator object, housed in a shipping container, with the energy supplied by a Al'kesh naquadah generator, and a heatsink. Everything that was unnecessary to the operation of the hyperdrive was jettisoned.
+
+The Al'kesh lift off, the shipping container that housed the drive, going with them. She saw the spacecraft disappearing from the planet altogether.
 
 If the Tok'ra was uncooperative like they were in the television series, it would take the SGC years to get anywhere. Thankfully, the alliance in this reality was much more expansive.
 
