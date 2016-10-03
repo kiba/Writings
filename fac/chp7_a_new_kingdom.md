@@ -2,7 +2,7 @@
 
 **Day 168**
 
-It turned out that the present day Remnans don't speak English at all to our horror, and Rin resorted to a practically dead language to communicate with Bartholomew Oobleck of all people.
+It turned out that the present day Remnans don't speak English at all to our horror, and Rin had to resort to a dead language even when her civilization was alive, to communicate with Bartholomew Oobleck, who just happened to be there.
 
 Oh, and she didn't know the word for boyfriend, so she described me as her husband in that tongue.
 
@@ -22,19 +22,19 @@ We also named our kingdom, "Mechatron".
 
 I don't like it, but Rin can't do any research while she endlessly converse with Professor Oobleck. It's a very necessary job.
 
-It turned out that Oobleck didn't know very much about the language either. Remnant as a whole really don't. So, it's a learning journey for both.
+It turned out that Oobleck didn't know very much about the language either, because the state of Remnant's knowledge about the dead language is so poor. So, it's a learning journey for both.
 
-We got a whole knowledge base on this language, with children book. So that's what they're going through.
+We got a whole knowledge base on this language, with children book. Each day, their conversations would improve bit by bit.
 
 **Day 176**
 
-The ruse is up. They discovered that we only are a kingdom of two. Uh oh. The military guys are still very nervous of our military capability, though.
+The ruse is up. They discovered that we only are a kingdom of two. Uh oh. The military guys are still very nervous of our military capability, so it isn't so bad.
 
 Other delegation from other kingdoms arrive. More politics.
 
 **Day 178**
 
-The delegation from the four kingdom agreed to set up an embassies anyway. Oobleck, among others, will be staying on as a translator.
+The delegation from the four kingdom agreed to set up an embassies in this new kingdom. Oobleck, among others, will be staying on as a translator.
 
 We were also gifted children's book on their languages. Joy!
 
@@ -42,7 +42,7 @@ Language learning is going to be a bitch, on top of all the other things we have
 
 **Day 179**
 
-Rin and I came into Dawson for trading. Professor Oobleck helped us with the trading, and we brought out several stores worth of inventory. The residents were speechless at our pocket dimension storage capability.
+Rin and I came into Dawn for trading. Professor Oobleck helped us with the trading, and we brought out several stores worth of inventory. The residents were speechless at our pocket dimension storage capability.
 
 Anyway, Rin, ever mindful of domestic needs, brought out the entire clothes departments, furnitures, everything you need to make a human comfortable.
 
@@ -62,9 +62,9 @@ I haven't been idle at all on the economy front, but not a whole lot of things a
 
 Factories can run for a long time, but they're really stupid like a regular computer. Once you scale up your factory up to a certain degree, the amount of work skyrockets because automation is not perfect. The system isn't as perfect in factorio, where everything pretty much run forever with no maintenance. Stuff breaks, parts starts doing wrong things. It can be really dangerous. That's why I usually use drones to inspect my factory.
 
-You can't really fix them one at a time, that would be too inefficient. You have to automatically fix them multiple times, but problems can be very insurmountable. I got no research staff. I need people.
+You can't really fix them one at a time, that would be too inefficient. You have to automatically fix them multiple times, but problems can be very insurmountable. I really need people in general, not just research staffs.
 
-Aside from my complaint, I am working on preparing to build a cross-continental train system. We're going to build rail tracks, and bastions every twenty kilometers, until we connect to Vacuo and Vale. It's an ambitious project, and it required a lot of resources, and people.
+Aside from my complaint, I am working on preparing to build a continental wide train system. We're going to build rail tracks, and bastions every twenty kilometers, until we connect to Vacuo and Vale. It's an ambitious project, and it required a lot of resources, and people.
 
 We need people.
 
@@ -77,6 +77,8 @@ Of course, it isn't as easy as it really seems.
 We have no law, peace officers, or court beyond the gentleman agreement. Just two of us, and embassy staffs who choose to locate here.
 
 Anyway, we took out half of the workday working out an onboarding process.
+
+Here are the preliminary stuff:
 
 * Each person shall receive fifty square meters of living space. In case of family units, they are combined space.
 * Each person shall receive a standard power armor suit, for their size.
@@ -94,7 +96,7 @@ Oh dear. Three families just shown up on our doorstep.
 
 I got the name of the wolf family. I know the male head of the family as Viole Lupus, and his wife as Skyler Lupus. Easy names to remember.
 
-I found out that the settlers has a lot of general useful skills, so they're easy to adapt. What is hard to do is learn a very foreign language so that we can communicate with each other.
+I found out that the settlers have a lot of general useful skills, so they're easy to adapt. What is hard to do is learn a very foreign language so that we can communicate with each other.
 
 Anyway, I took Viole Lupus and taught him how to remote control drones and the new surrogate robotic platform. My eventual end goal is to have a factory manager.
 
