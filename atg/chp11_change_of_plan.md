@@ -4,11 +4,11 @@
 **Silicon Valley, SG-Earth**
 **November 3, 1998**
 
-The billionaire was forbidden to drive his electric vehicle to the other side. Nor did they let him take his smartphone and other gadgets. Not even his usual clothes was permitted. Clothes that wouldn't stand out on an Earth seventeen years ago unless it was closely scrutinized.
+The billionaire was forbidden to drive his electric vehicle to the other side. Nor did they let him take his smartphone and other gadgets. Not even his usual clothes was permitted. Although the clothes wouldn't stand out on an Earth seventeen years ago, it could still be scrutinized closely for difference.
 
-Yet, the SGC was paranoid to a fault, not wanting to risk a leak.
+Swift thought that the organization was paranoid to a fault, but he couldn't blame them. There are snake bastards swimming around on this world after all. According to the news, Seth was killed in a raid a little while ago.
 
-It wasn't worth the hassle, so he brought clothes and accessories blind, with the help of an airman. He tried whatever fit.
+It wasn't worth the hassle, so he brought clothes and accessories from shops Colorado Spring blind, with the help of an airman. He tried whatever fit.
 
 John Swift didn't care much about the clothes, as long it looked presentable enough. He's an investor. The billionaire wasn't the person that need to impress someone anyway. Not that it matters much. Swift knew what investment to make ahead of time.
 
@@ -16,8 +16,12 @@ John Swift didn't care much about the clothes, as long it looked presentable eno
 
 Swift learned a long time ago that there was no Eli Berkovitz or any of his relatives in this reality. Instead he found an equvalient, two South African entrepeneurs running this company.
 
-The billionaire walked confidentally into the business place.
+The billionaire walked confidently into the business place.
 
 "How may I help you?" the receptionist asked.
 
 "I would like to invest in this company," Swift said.
+
+He would repeat this process several times. If his investment were very successful, he would attract attention, but there was already a cover story in place; a shell company owned by a mysterious group of investors. It was also a way to smuggle stargate tech into the public before the public disclosure of the stargate program.
+
+***
