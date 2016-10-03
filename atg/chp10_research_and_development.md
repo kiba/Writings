@@ -106,7 +106,7 @@ The duo met up with the engineers for the project, and they walked to a hangar w
 
 The Al'kesh was the workhorse of the Goa'uld empire, and it can be found pretty much anywhere there's Goa'uld. It served a wide variety of roles, everything from bombing, to scouting, and cargo delivery. It was also much more plentiful and often less secured than a typical Ha'tak mothership, and just as reliable and long lasting. That made it an ideal vehicle to steal.
 
-Thankfully, the SGC did not have to raid a Goa'uld outpost to steal one. The Tok'ra gifted the SGC not just one, but three for the SGC to study and reverse engineer.
+Thankfully, the SGC did not have to raid a Goa'uld outpost to steal one. The Tok'ra gifted the SGC not just one, but three for the SGC to study and reverse engineer. If the Tok'ra was uncooperative like they were in the television series, it would take the SGC years to get anywhere. Thankfully, the alliance in this reality was much more expansive.
 
 The SGC since then used one Al'kesh for transport such as this one, though they had to take it apart before putting it back together. That was an educational experience.
 
@@ -126,14 +126,76 @@ O'Neill nodded.
 
 Normally, O'Neill did not bother to listen to scientific or engineering explanation, but the Colonel has a keen interest in building and flying warships, since he was a former pilot. He was no stranger to technical details. The special force operator listened and asked questions while Carter explained what she was trying to do with the hyperdrive.
 
-Building on their understanding of Goa'uld hyperdrive, she and her team built the simplest hyperdrive window generator object, housed in a shipping container, with the energy supplied by a Al'kesh naquadah generator, and a heatsink. Everything that was unnecessary to the operation of the hyperdrive was jettisoned.
+Building on their understanding of Goa'uld hyperdrive, she and her team built the simplest hyperdrive window generator they knew but still could work. It was housed in a shipping container, with the energy supplied by a Al'kesh naquadah generator, and a heatsink. Everything that was unnecessary to the operation of the hyperdrive was jettisoned, leaving only the necessary details for the team to focus on.
 
-The Al'kesh lift off, the shipping container that housed the drive, going with them. She saw the spacecraft disappearing from the planet altogether.
+"They're moving it out now," Carter said as the hangar door opened.
 
-If the Tok'ra was uncooperative like they were in the television series, it would take the SGC years to get anywhere. Thankfully, the alliance in this reality was much more expansive.
+Once in the open field of the airbase, the Al'kesh lift off, with the hyperdrive slung beneath it. Everyone on the ground watched as it accelerated through the atmosphere, effortlessly reaching escaping velocity before disappearing from the naked eyes.
 
-The only information she's receiving right now was relayed by satellites orbiting the planet, having been launched by the same Al'kesh.
+"Let's go inside," she said, leading the colonel into the command center. From that place, everyone could see the telemetry relayed by a network of satellites, having been inserted around the extrasolar system by the same Al'kesh carrying the hyperdrive.
 
-Then there was momentarily no information. The Al'kesh made a planned hyperspace jump one AU(astronomical unit) from here, judged sufficiently safe. From there, it should detached the shipping container, and jumped half of an AU here. From there, the Al'kesh witnessed the prototype generated a hyperspace window for only a brief second.
+"Executing hyperspace jump," the pilot announced with measured tone.
 
-It was anticlimactic.
+Momentarily, there was no information coming from the telemetry once the Al'kesh disappeared into hyperspace, jumping only a light-minute.
+
+"I have safely arrived. Running through one last diagnostic test before releasing the clamp." A minute later, the Al'kesh released the shipping container, before jumping forward a good distance away.
+
+A satellite was nearby, ready to record the hyperdrive activating from an external viewpoint, as well relay back information from the hyperdrive.
+
+"Testing, in 3...2...1...activating," the mission director announced.
+
+The device generated a telltale hyperspace window for a split second, before disappearing.
+
+It was anticlimactic, but the mission control room erupted in cheer regardless.
+
+"That's it?" O'Neill said with disbelief. "Just one second of a tiny hyperspace window that even the shipping container can't even fit through."
+
+"It gave physicists something solid to work with," Carter said. "The hyperdrive is not something we'll be able to master in one prototype. Like every overwhelming problem I ever struggled with, we divide them into its constituent parts to make it tractable to us. We want to understand the basic so that we can proceed confidently to the next level."
+
+"We can't just copy it?"
+
+"The Tok'ra are spies, and they do not have the infrastructures to build a ship from scratch. All their Al'kesh are either stolen or brought on the market, before modified to their needs."
+
+Before long, the Al'kesh retrieved the hyperdrive before returning back to the Alpha Site.
+
+***
+**Doctor Bill Lee**
+**November 8, 1998**
+**SGC, SG-Earth**
+
+After the somewhat embarrassing test in area fifty-two. Lee went back to the drawing board and fixed the design. He went to the Alpha Site back and forth several time once they expanded their facility to include a test range. Since then He only went back to area fifty-two to talk with the researchers there. Several iterations later, Bill Lee felt satisfied that it was ready for firing by sentient beings, rather than blowing up their users.
+
+The Sapphire Four Thousand Mark One was heavy to haul around, so Doctor Lee put his baby on a rolling cart, pushing it until he reached Teal'c's residence, the Jaffa never bothering with the complication of finding an apartment in Colorado Spring.
+
+Lee knocked the door.
+
+"Who is it?"
+
+"This is Doctor Lee. Remembered the weapon that I am working on? It's ready to test."
+
+The door opened, revealing Teal'c's neutral face. Lee thought he would be more excited, but he guessed wrong.
+
+"I am ready," Teal'c stated laconically.
+
+"Ah, I already set up an appointment to visit the Alpha Site. We should absolutely have no problem!" Nobody can go in and out of the stargate to anywhere without the express mission of General Hammond, and only when it didn't conflict with anyone's schedule. If someone's using the gate, another can't.
+
+***
+**Alpha Site**
+
+Once at the test range, Lee attempted to launch into an exposition, "The Sapphire Four Thousand is a-"
+
+"How do I fire?" Teal'c asked, not touching the weapon. Lee felt slightly disappointed at not being able to regal the Jaffa with specs. "I want to do it safely."
+
+Lee showed the Jaffa how to handle the weapon.
+
+There were already test targets of varying difficulty set up by the range.
+
+Teal'c fired when ready, destroying first a dummy, then a jeep, and finally a very old tank.
+
+The Sapphire Four Thousand destroyed them with contemptible ease, with munitions that was essentially unlimited.
+
+Teal'c put down the gun. Then he gave out a laughter that sent a chill down Lee's spine. If there was any great villain laughter, it would be Teal'c's voice.
+
+"When can I use this weapon?" Teal'c asked, with a very eager face.
+
+"Ummm.....it's a very long process, but I am sure that I can get it expedited," Lee said.
