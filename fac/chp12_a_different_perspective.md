@@ -87,7 +87,7 @@ I am terrified, like a deer in headlight. I couldn't even utter a word.
 
 "I am not sure why you are so terrified about Earth. It's not a crime. In fact, I know at least two people from Earth."
 
-"Who? Where? How?" My mind turned to Mechatron and their rulers. They were a complete anomaly. I couldn't find any indication that they were from Earth. It might be because I forgot the English language entirely when I reincarcerated.
+"Who? Where? How?" My mind turned to Mechatron and their rulers. They were a complete anomaly. I couldn't find any indication that they were from Earth. It might be because I forgot the English language entirely when I reincarnated.
 
 "You will answer truthfully, before I answer that question."
 
@@ -101,7 +101,7 @@ I nodded.
 
 I nodded.
 
-"For lying on your transcript, you are hereby expelled for one semester from Beacon Academy. There is no crime for withhelding crucial information that may save lives, but the next you do have such information, I absolutely implore you to do so."
+"For lying on your transcript, you are hereby expelled for one semester from Beacon Academy. There is no crime for withholding crucial information that may save lives, but the next time you do have such information, I absolutely implore you to do so."
 
 "What?"
 
