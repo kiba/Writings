@@ -1,12 +1,12 @@
 # Chapter Eight: A New Beginning
 
-Jaune Arc failed to get into the Beacon Academy. The admission officer found out that he faked his transcript. Ashamed at his behavior and failure to get in, the former huntsman-to-be didn't even return home to face his parents or his sisters.
+Jaune Arc failed to get into Beacon Academy because the admission officer found out that he faked his transcript. Ashamed at his behavior and failure to get in, the former huntsman-to-be didn't even return home to face his parents or his sisters.
 
 He didn't even have the heart to lie to caravans for a job when he headed out for the new "frontier".
 
-That was how he ended up, alone, in Dawn on the street, looking for a place to stay and a job. His pocket was very empty. The town seemed to be bursting at the seam, because of the recent population boom.
+That was how he ended up on the street of Dawn, alone, looking for a place to stay and a job. His pocket was very empty. However, the town seemed to be bursting at the seam, with very crowded streets. A lot of the buildings seemed to be totally brand new, while new buildings are being erected.
 
-A lot of construction seemed to be brand new, some seemed to be specializing in selling Mechatron's goods, which was the name of the local 'kingdom' nearby.
+There even a few shops that specialized in selling Mechatron's goods, which was the name of the local 'kingdom' nearby.
 
 He noticed that there are people who are demonstrating with signage. Something about annexation, and something about staying free. There were even heckling and arguing between two groups. The wandering teenager didn't pretend to understand the political subtlety.
 
@@ -56,7 +56,7 @@ Well, what was Jaune Arc waiting for? He came to the frontier because that there
 
 ***
 
-Arc got an apartment,fifty square meters of space to just himself. Roomy. There were rumors on the CCTS network that there are free apartments, daily rationing, and a power armor suit, but he never thought those rumors to be actual facts.
+Arc got an apartment,  fifty square meters of space to just himself. Roomy. There were rumors on the CCTS network that there are free apartments, daily rationing, and a power armor suit, but he never thought those rumors to be actual facts.
 
 Though, the rationing was very plain. Not a whole lot of taste, but at least he wasn't starving.
 
@@ -68,17 +68,17 @@ He'll have to get out there...and get a job.
 
 Jaune Arc stared at the sign of a military information kiosk.
 
-"JOIN THE NEW ARMY! FAST TRACK TO CITIZENSHIP! NO EXPERIENCE REQUIRED!" it said.
+"JOIN THE NEW ARMY! FAST TRACK TO CITIZENSHIP! NO EXPERIENCE REQUIRED!" it promised.
 
-He had no idea that they need an army in the first place. He thought that they don't need someone to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family got a job as a manager. Everyday, there were more people working for the government to manage the kingdom's affairs.
+He had no idea that they need an army in the first place. He thought that they don't need someone to manage the war machines in this place? Then again, when he found a reliable source of information, he learned that the kingdom is so rich that they can afford to give away space. They were also desperate for manpower, especially for engineers and scientists, but they'll take anybody they can get. Already, the first settling family's eldest male got a job as a manager. Everyday, there were more people working for the government to manage the kingdom's affairs.
 
 Still, he couldn't figure out why they need an army of people when they can just throw robots at it.
 
-"Well blondie, are you going to ask?" the man managing the information kiosk said.
+"Well blondie, are you going to ask?" the man behind the information kiosk asked.
 
 "Umm...why do they need soldiers for if they got robots to do everything?"
 
-"Robots are like your scrolls or your computers," the man replied. "They don't have an ounce of intelligence in them for all the algorithms that is built into them. Those robots can fight the grimm because there was somebody behind the curtain orchestrating their strings. There are jobs that only humans can fulfill."
+"Robots are like your scrolls or your computers," the man replied. "They don't have an ounce of intelligence in them for all the algorithms and programming that is built into them. Those robots can fight the grimm because there was somebody behind the curtain orchestrating their strings. There are jobs that only humans can fulfill."
 
 "Oh. Will I be controlling them?"
 
