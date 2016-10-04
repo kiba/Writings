@@ -28,7 +28,7 @@ He would repeat this process several times. If his investment were very successf
 
 Weeks had passed as he vacationed in the middle of the dot-com boom. Eventually, he returned to Colorado Spring and to the company he started up there.
 
-It was unusual, catering to the Department of Defense, but Swift reminded himself that he was really on the cutting edge. He wasn't dealing with an old ossified bureaucracy here, but an agile and well run organization, emblem of the United States military at its best.
+It was unusual, catering to the Department of Defense, but Swift reminded himself that he was really on the cutting edge. He wasn't dealing with an old ossified bureaucracy here, but an agile and well run organization, emblem of the United States military at its best. 
 
 The SGC's software quality wasn't the greatest. Their engineers and scientists were not by any great programmers. The software code does what it do, and no more.
 
