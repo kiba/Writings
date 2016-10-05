@@ -12,7 +12,7 @@ We got three thousand people in Allothmy. That's a drop in the bucket when you c
 
 Dawn still hadn't decided whether to become part of my kingdom, but they're a protectorate by the virtue of being very close. It's even bigger now, with over ten thousand people living there. They're doing brisk trade trading with us and the rest of the world.
 
-Free apartment and power armor suit, and rationing are apparently not enough.
+Free apartment and power armor suit, and minimum rationing are apparently not enough.
 
 At least it isn't exploding in population size. That would be a huge mess. On the other hand, we're still desperately searching for skillsets. We need more people!
 
@@ -46,7 +46,7 @@ Somewhat expensive to make, but the factory environment is cleaner than ever bef
 
 **Day 333**
 
-I am considering whether to port the linux based Factorio Operating System to Remnant computer devices, given that my own graphene computers are much faster than their.
+I am considering whether to port the linux based Factorio Operating System to Remnant computing devices, given that my own graphene computers are much faster than their.
 
 **Day 338**
 
@@ -80,23 +80,23 @@ Apparently, he was rejected by Vale on his grant proposal to fund his supersonic
 
 Their loss is my gain! I don't need him to build supersonic jets either. I want him to build rockets. He's just as happy to work on that.
 
-You know the other grant proposal. It goes like this:
+He did tried to propose building a rocket. It goes like this:
 
 "Frank Whittle, everyone knows that getting a rocket to work in space is impossible."
 
 "No, damn it! I am not using Dust fuels!"
 
-One of the other project should be to discover why dust only works in the atmosphere.
+We need a project to discover why dust only works in the atmosphere.
 
 **Day 349**
 
-Oh dear, Whittle broke into tears about Earth and how ashamed he was to forgot English. His real name isn't actually Frank Whittle.
+Oh dear, Whittle broke into tears about Earth and the lost of his English skills. He's relearning English withus. His real name isn't actually Frank Whittle.
 
 You know the pioneer of jet engines? He named himself after the British airman because he didn't know his real name.
 
 I found an Earthling, guys!
 
-The man explained his backstory as an aviator who was found wrecked to shit by a huntress chick. That woman is married to him.
+Whittle explained his backstory as an aviator who was found in an air wreck by a huntress. That woman is married to him.
 
 Twice as good! I got a dedicated aeronautic engineer, and a resident huntress. Did you know that Rin Furukawa signed a treaty with the kingdoms a while ago, granting global citizenship for huntsmen? I thought it was nuts giving away our sovereignity like that. Next thing you know, they wanted a global government!
 
@@ -126,7 +126,7 @@ A new year on Remnant, coincidentally. I also celebrated one year of being stran
 
 Doctor Whittle finally found the root cause of accident number one and is working with Rin to implement the bugfix.
 
-Now he has to identify fourteen other accidents! It's a good thing that I saved ALL the debris that I can identify, and all the telemetries I can muster.
+Now he has to identify fourteen other accidents! It's a good thing that I saved ALL the debris that I can identify, and made sure to record in depth as much as possible.
 
 **Year 2, Day 10**
 
@@ -142,4 +142,4 @@ We launched the first Remnan satellite into orbit in probably five thousand year
 
 While there were celebration from the world, the four kingdoms are aghast and horrified by the possibility. They got in their mind the idea of delivering dust bombs by using rockets. They certainly saw what we can do with our rockets.
 
-They wanted to negotiate, again.
+We went to the negotiation table again.
