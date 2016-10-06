@@ -8,9 +8,9 @@
 
 "Trade Complaints Lodged Against Mechatron."
 
-Ozpin scrolled down the headlines related to the new kingdom. There was nothing in his myths and legend that would had foretold its arrival.
+Ozpin scrolled down the headlines related to the new kingdom. There was nothing in his myths and legend that would had foretold the creation of a new kingdom.
 
-Mysteriously, he received an anonymous letter from them. He knew that, for all the precaution that the imperial couple took, their operational security was imperfect. The mistakes he founded allowed him to find the source.
+What led to this waiting room just outside the imperial office. For all the precaution that the imperial couple took, their information security was imperfect. The mistakes he founded allowed him to trace the source.
 
 Under the guise of possibly establishing a new huntsmen academy, he arranged a meeting with the ruling couple at their capital, Allothmy.
 
@@ -20,9 +20,9 @@ Finally, the door to the imperial office disgorged power armors that was very co
 
 "Ah, welcome," a male voice said as Ozpin entered the room. "I am very sorry for that. Very important meeting."
 
-"You must be emperor Karl Gearworth," he said, sampling the names on his lip. By tradition, the names of a person was supposed to invoke a color, but Mechatron and their rulers really didn't hitch to present day traditions. They were supposedly survivor from an age long past, even before his knowledge of myths and legends.
+"You must be emperor Karl Gearworth," he said, sampling the names on his lip. By tradition, the names of a person was supposed to invoke a color, but their rulers cared nothing about the color naming scheme. They were, after all, supposedly survivor from an age long past, even before his knowledge of myths and legends.
 
-"You want to discuss establishing an academy, yes?"
+"You want to establish an a huntsmen academy."
 
 "And a letter among other things." The tension in the room went up at that mention. "You should soundproof your office. I heard voices through the wall."
 
@@ -30,7 +30,7 @@ Finally, the door to the imperial office disgorged power armors that was very co
 
 "A good question. While huntsmen have global citizenship, they typically have a city that they usually return to constantly over time, and that city tended to be where the huntsman academy that they attend."
 
-"A kingdom is synonymous with a city, yes?" the emperor asked.
+"A kingdom is synonymous with a city, is that correct?" the emperor asked.
 
 "It is true that you only have two towns, but they are quickly becoming small cities; a micro kingdom. Assuming that your cities survived the growing Grimm threat, they should be able to host a small combat school until you can host a post-secondary huntsman academy. It is crucial that your academy is staffed by qualified professors. I can assist you in that, along with other headmasters."
 
@@ -58,17 +58,17 @@ The relaxed face of the two sovereigns became very serious in one short moment. 
 
 "I am an extraterrestrial, though as human as you and my beautiful wife here."
 
-"Believe me! I really do come out of a stasis chamber!" Rin Furukawa said.
+"Believe me! I really do come out of a stasis chamber!" Rin Furukawa exclaimed.
 
 "Just over a year ago, somebody very powerful decided to strand me here for some sick reason. I don't know who, but I also know this world from a work of fiction. Remnant, aura, the grimm, and Beacon Academy are not supposed to be real. Yet they are."
 
-Ozpin could see the lies mixed in with the truth. It seemed that there are more to the story than the sovereign told him, but he felt that the emperor was telling the truth.
+Ozpin could see the lies mixed in with the truth. It seemed that there are more to the story than the sovereign told him, but he felt that he could mostly trust the emperor's world.
 
 "I believed you," Ozpin said.
 
 "That was quick," the empress remarked.
 
-"Some myths and legends, no matter how crazy it sounded, are true. I also developed an ability to detect lies."
+"Some myths and legends, no matter how crazy it sounded, are true. I also know when someone is lying to me."
 
 "Did I lie to you?" Karl Gearworth questioned.
 
@@ -86,18 +86,18 @@ The couple looked at each other. Rin Furukawa nodded her approval.
 
 Ozpin dialed his scroll.
 
-"Professor? What do you need," a veteran huntress answered.
+"Professor? What do you need?" a veteran huntress answered.
 
 "We all need to talk when I get back," Ozpin answered.
 
 "I understand."
 
-The headmaster of the beacon academy stared at the moon in the night sky from the balcony of a hotel room. Five thousand years ago, and he was inclined to believe in the empress' story, somebody blew up the moon, leading to a catastrophic destruction of civilization.
+The headmaster of the Beacon Academy stared at the broken moon from the balcony of a hotel room. Five thousand years ago, and he was inclined to believe in the empress' story, somebody blew up the moon, leading to a catastrophic destruction of civilization.
 
-Soon after, the Grimm appeared.
+Then at some point in the timeline, the Grimm appeared.
 
 When he heard those stories, walked the halls of his ancestors in the underground, and conversed with Rin Furukawa about the world before Remnant, he saw something greater than he ever thought possible. Of course, humanity knew that they are remnant of a forgotten past, but so much history was lost until now.
 
-Humans had landed on that very moon. They even started a moon colony. Until plain human hatred ruined it all.
+Humans had landed on that very moon. They even started a moon colony. Until human hatred finally destroy the world.
 
 Now, there's an artificial satellite orbiting the night sky for the first time in thousand of years. He could even see the satellite as a fast moving bright object in the night sky. There's hope for the people of this planet after all.
