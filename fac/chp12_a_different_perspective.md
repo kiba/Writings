@@ -10,7 +10,7 @@ I smiled. "It's a surprise." The impact of Mechatron did nothing to butterfly th
 
 "What surprise?" Nora questioned.
 
-"Nora," Ren said, scolding him. "We aren't going to be surpr-"
+"Nora," Ren said, scolding her. "We aren't going to be surpr-"
 
 There was a loud boom in the tower.
 
