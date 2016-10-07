@@ -90,9 +90,9 @@ Some highlights of the day:
 
 * **Prototype hardsuit**: It's basically is power armor, but much of the mass is shaved off in exchange for agility. Some huntsmen do use power armor and really move well in it. The armor usually took a beating for such heavy usage. It also exhausts huntsmen faster.
 
-* **Mechacycle MK I**: A prototype ground unit that can run on four legs and can also transforms into a motorcycle. With sensor fusion and integration with battlefield network, it can anticipate and adjust its movements for obstacles ahead of time. The researchers that built was understandingly veyr excited about this, but the engineer in Rin and I died a little.  It's a very complex war machine, and I worried about its reliability and manufacturability.
+* **Mechacycle MK I**: A prototype ground unit that can run on four legs and can also transforms into a motorcycle. With sensor fusion and integration with battlefield network, it can anticipate and adjust its movements for obstacles ahead of time. The researchers that built was understandingly very excited about this, but the engineer in Rin and I died a little.  It's a very complex war machine, and I worried about its reliability and manufacturability.
 
-* **Corvette airship**: Yet to be named; it is a long endurance airship three times as big as bullhead with speed up to only two hundred kilometers per hours. It is mostly a platform for learning how to build and design airships.
+* **Corvette airship**: Yet to be named; it is a long endurance airship three times as big as bullhead with speed up to only two hundred kilometers per hours. It is mostly a platform for learning how to build and design airships, with the end goal of building an expeditionary force.
 
 **Year 2: day 244**
 
@@ -100,7 +100,7 @@ I went to Beacon Academy incognito to discuss Salem's location with Ozpin.
 
 There are deep black spot on the map that seemed to have indicated large concentration of Grimm. One spot happens to be near to my kingdom. The joy.
 
-Anyway, Ozpin thanked me for informing information, even though he said that there's no way he's going to get his huntsmen near any of those black spots.
+Anyway, Ozpin thanked me for informing him, even though he said that there's no way he's going to get his huntsmen near any of those black spots.
 
 I thought about nuking all the black spots, but I don't need the political headaches. There's also no guarantee that Salem will be there in any of those locations, and there's a good chance that the black spots might just re-emerge, wasting our nuclear weapon for the price of a pandora's box.
 
