@@ -6,7 +6,7 @@ Cinder is dead. A Salem plot foiled? Stay vigilant, Remnant.
 
 **Year 2, Day 123**
 
-The Vytal cultural festival begun.
+The Vytal cultural festival began.
 
 Some of our Mechatron representatives are displaying Chikyuu cultural work.
 
@@ -52,13 +52,13 @@ Nobody apparently batted an eye to the use of power armor, to both of our confus
 
 It's traditional to send their most senior to universities, and to send the rest to die(huntsmen academy or in the military), or else their children get married to no-name commoners and forced to secede their claim on the throne. It's a bargain with the non-democratic oligarchic governments, which they openly expressed their dislike and hatred.
 
-Like the kingdoms back on Earth, they usually spend their time looking nice and pretty attending official state functions while the councils did the behind-the-work scenes.
+Like the queens and kings back on Earth, they usually spend their time looking nice and pretty attending official state functions while the councils did the behind-the-work scenes.
 
 The queen of Mantle even asked in a very round-bout way on how to take back her kingdom from those "damn Atlasian militants."
 
 Later that evening, some even asked in a very round-bout way when my and I will have children.
 
-Fuck that. It's more political bullshit. I got coached by Rin about how to say no, very nicely. She didn't want to deal with the implication of founding an independent movement or overthrowing any of the government either.
+Fuck that. It's more political bullshit. I got coached by Rin about how to say no, very nicely. She didn't want to deal with the implication of founding an independence movement or overthrowing any of the government either.
 
 **Year 2, Day 144**
 
@@ -88,7 +88,7 @@ The ambassadors from the four kingdoms got together to negotiate something regar
 
 My "business competitors" screamed bloody murder. We negotiated a trade treaty that gives the kingdom more tax revenue in exchange for scientists and engineers. In return, they will force the suits to drop all the lawsuits and will send their lawyers to fight any antitrust charges after five years. Sweet.
 
-The lawsuits were not at all popular with the population, but they'll appreciate the extra burst of tax dollars.
+The lawsuits were not at all popular with the population, but they'll appreciate the extra burst of tax dollars from traiff on my products.
 
 I gave the business competitors the middle finger. I was so ready for prolonged protracted court battles.
 
