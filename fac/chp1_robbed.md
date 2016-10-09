@@ -1,4 +1,8 @@
-A fanfic based on the game [Factorio](https://www.factorio.com/).
+A multicross fanfic based on the game [Factorio](https://www.factorio.com/).
+
+EDIT:
+
+This is also a fanfic of fanfics such as: [Marked for Death](https://forums.sufficientvelocity.com/threads/marked-for-death-a-rational-naruto-quest.24481/page-1108#post-7018914), and [Emergence](https://forums.spacebattles.com/threads/emergence-rwby.308628/).
 
 # Chapter One: ROBbed
 
