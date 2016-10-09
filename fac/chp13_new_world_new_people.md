@@ -26,7 +26,7 @@ We're fast perfecting a prototype that will let us access the megaship.
 
 **Year 2, Day 134**
 
-I learned that Doctor Whittle hired a gopher and assistant named Blue, another Earthling. Apparently, Blue got booted out of Beacon Academy for cheating.
+I learned that Doctor Whittle hired a gopher and assistant named Blue, another Earthling and that Blue got booted out of Beacon Academy for cheating. Whittle decided to give the Earthling a second chance.
 
 Ozpin emailed me with a warning about Blue's hoarding of important, lifesaving information.
 
