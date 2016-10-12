@@ -30,11 +30,11 @@ If Ironwood didn't know better, he would have thought that this place was extrem
 
 Soft piano music played as the royal couple came into the center of the room. Everyone else retreated as they let the empress and emperor of Mechatron danced.
 
-"I would had never guessed that one of them would be my ancestor," Goodwitch. "Though I find it hard to believe that her husband is from another world." There was basically no evidence to support the supposition. Some either believed he was just another human entombed together with the empress or was a Remnan discoverer.
+"I would had never guessed that one of them would be my ancestor," Goodwitch said. "Though I find it hard to believe that her husband is from another world."
 
-"There's a legend about a sanctuary. A safe but primitive world. I thought Earth might be that world described in the legend. I talked to one of their Earth society member, a flunky from Beacon Academy."
+"Speaking of different worlds, there's a legend about a sanctuary," the queen said. " A safe but primitive world. I thought Earth might be that world described in the legend. I talked to one of their Earth society member, a flunky from Beacon Academy."
 
-"That's a rude way to speak of a former student of mine," Goodwitch admonished. "His name is Blue Horowitz. Despite the falsified transcript, we saw nothing to suspect on his time with the academy, not with his academic record, leadership, or his fighting ability."
+"That's a rude way to speak of a former student of mine," Goodwitch admonished. "His name is Blue Horowitz. Despite the falsified transcript, we saw nothing to suspect on his time with the academy, not with hisacademic record, leadership, or his fighting ability."
 
 The queen ignored that remark. "He said his world isn't primitive at all, and that it would be a mistake to think of his world as a sanctuary, despite the lack of Grimm and the domination of mankind."
 
@@ -54,7 +54,7 @@ Ironwood's face contorted with unease. "It is precisely the destructive capabili
 
 "That's not the point, but they could just as easily develop a powerful bomb to deliver that to a kingdom."
 
-"They never acted so hostile to us," the queen of mantle said. "And their level of cooperation with the kingdoms gave us insight into their magnificent industrial capability. Or do you suggest that we should plifered the kingdom for all their secrets without giving anything back?"
+"They never acted so hostile to us," the queen of Mantle said. "And their level of cooperation with the kingdoms gave us insight into their magnificent industrial capability. Or do you suggest that we should plifer the kingdom for all their secrets without giving anything back?"
 
 "Are you in league with Mechatron? I thought you were for Atlas?"
 
