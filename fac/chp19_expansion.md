@@ -62,13 +62,13 @@ After mutual threatening, it became more cordial. We revealed a bit about oursel
 
 Eventually he suggested sending a representative of his to our kingdom. We said no.
 
-After that, we were done. The spymaster elected to leave Jiraiya with pornography, pictures only, as a gift. Then she made bedroom eyes at Jiraiya, which was a huge surprise to us, and disgusted the hell out of her genin.
+After that, we were done. The spymaster elected to leave Jiraiya with some pictures that Jiraiya appreciated. A bunch of things happened while the remote were aways.
 
-We knew that he was a big pervert and that he has many lovers, but we never think it would include the spymaster.
+A ninja try to track the spymaster and her genin down, but they were able to get away.
 
-A ninja did try to track the spymaster and her genin down, but they were able to get away.
+When they came back, the commander had a brief talk with her, in which spymaster gushed all about Jiraiya the Galliant, but made it clear that her team was far more important than Jiraiya will ever be. The commander declined to tell us some of the details, saying that it was unimportant.
 
-When they came back, the commander had a brief talk with her, in which spymaster gushed all about Jiraiya the Gallant and how good he was in bed, but made it clear that her team was far more important than Jiraiya will ever be.
+Given what we know about Jiraiya's reputation as a pervert and his relationship to the spymaster, we don't want to know either.
 
 **Year 3, Day 7**
 
