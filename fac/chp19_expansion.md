@@ -62,7 +62,7 @@ After mutual threatening, it became more cordial. We revealed a bit about oursel
 
 Eventually he suggested sending a representative of his to our kingdom. We said no.
 
-After that, we were done. The spymaster elected to leave Jiraiya with some pictures that Jiraiya appreciated. A bunch of things happened while the remote were aways.
+After that, we were done. The spymaster elected to leave Jiraiya with some pictures that Jiraiya would appreciate. A bunch of things happened while the remote were aways.
 
 A ninja try to track the spymaster and her genin down, but they were able to get away.
 
@@ -104,7 +104,7 @@ It's not going to work if I simply bomb every training camp. I must destroy thei
 
 To do that, I need to reach Faunus everywhere, and I have a huge advantage in that department. Mechatron is a kingdom with the highest concentration of Faunus everywhere, and they are very likely to have families across the four kingdoms.
 
-To do that, I need to increase immigration and tie to Faunus communities and enclaves.
+To do that, I need to increase immigration from those places and foster stronger tie to the Faunus communities and enclaves.
 
 **Year 3, Day 47**
 
@@ -116,7 +116,7 @@ He told the Faunus to turn away from the kingdom, saying that it's all a trap an
 
 **Year 3, Day 48**
 
-You know what? I felt absolutely powerless. Even if we were to start tomorrow hunting down white fang members. It will take decades at most to reduce the White Fang to an absolutely powerless version of themselves.
+You know what? I felt absolutely powerless. Even if we were to start tomorrow hunting down white fang members. It will take decades at least to reduce the White Fang to an absolutely powerless version of themselves.
 
 **Year 3, Day 49**
 
