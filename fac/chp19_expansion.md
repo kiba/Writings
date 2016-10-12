@@ -20,7 +20,7 @@ The army's on the move.
 
 **Year 2, 330**
 
-We finally finished laying down a foundation which went all the way through the underground, and to the bedrock, we started building a skyscrapper. It shall be the tallest building in all of Remnant and will support all our residential needs for years to come. Not that it will stay that way long. Many of the residential apartment will quickly turn into businesses, which will in turn pays land value taxes.
+We finally finished laying down a foundation which went all the way through the underground, and to the bedrock, we started building a skyscraper. It shall be the tallest building in all of Remnant and will support all our residential needs for years to come. Not that it will stay that way long. Many of the residential apartment will quickly turn into businesses, which will in turn pays land value taxes.
 
 Construction should be done in about sixty days, and it will tower a kilometer into the air. There will be ports for airships and freight elevators to bring the goodies down. Thanks to dimensional storage, the freight capacity is larger than expected, even though it isn't the primary channel for export and import.
 
