@@ -72,6 +72,6 @@ The applause came through, melting the tension around the table. The dance has f
 
 "I don't know. I liked him for his uncompromising no-nonsense push to make everything better. I think I want to marry him."
 
-"It seemed that his wife has more political sense than the emperor," Goodwitch opined. "And with the prime minister seemly in charge, both his wife and his political influence is vastly reduced."
+"It seemed that his wife has more political sense than the emperor," Goodwitch opined. "And with the prime minister in charge, both his wife and his political influence is vastly reduced."
 
-"That can only be a good thing," Ironwood concurred. "The more that man stayed away from the politic, the better it is for the world."
+"That can only be a good thing," Ironwood concurred. "The more that man stay away from the politic, the better it is for the world."
