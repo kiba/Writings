@@ -7,7 +7,7 @@ I was so busy that I wasn't able to write anything in my journal for months. Mos
 
 **Year 3, Day 175**
 
-This year, we actually lost people, due to the loss of faith in Mechatron's defenses.
+Our population actually shrank, due to the loss of faith in Mechatron's defenses.
 
 Three thousand people lost their lives in the fighting, mostly military and milita. We lost an additional fifteen thousand citizens to migration.
 
@@ -25,7 +25,7 @@ I attended a peace summit and made it clear to everyone that I would start devel
 
 The kingdoms pleaded to me that I shouldn't do that, and that I should remember what happened to the Moon.
 
-It is moot. If I were able to nuke the Grimm, I wouldn't hemorrhage so many people to migration and lost two thousands to the Grimm.
+It is moot. If I were able to nuke the Grimm, I wouldn't hemorrhage so many people to migration and almost lost my aboveground kingdom.
 
 For better or worse, they walked away with no demand to restrict rods of gods, nuclear bombs, or any other strategic weapons.
 
@@ -35,25 +35,25 @@ But boy did it cause a shitstorm and controversy throughout Remnant.
 
 The department of statistics and information tallied up how many people we lost to migration. Most of them are not in the government, and they're mostly humans.
 
-The faunus for the most part sticks with my kingdom rather than fleeing.
+The faunus for the most part decided to stick with my kingdom rather than fleeing.
 
 **Year 3, Day 185**
 
-General Ironwood approached me to purchase war machines from me, and in particular bullets, as well all the blueprints for those machines and bullets.
+General Ironwood approached me to purchase war machines from me, and in particular bullets, as well all the blueprints necessary to produce them. They will paid royalties if they should decide to produce those machines and bullets in their own factories.
 
-For the most part, they find it cheaper to buy from me.
+It's actually much cheaper and more efficient to buy from me rather than start up their own factories.
 
-The general commented on how my war machines made their mech obsolete overnight.
+The general commented on how my war machines made their mech obsolete overnight and that they were trying to catch up, but he was under no illusion over who has the greatest manufacturing capacity.
 
-It is a five year contract in which I will supply the Atlasian military with the latest and greatest military hardware and the manual and the blueprints and training. It's some serious lien.
-
-What are they going to do? They trade heavily with me for dusts and other industrial goods, and they know that getting to a war would mean bad thing for everyone's GDP and protection against the Grimm.
+It is a five year contract in which I will supply the Atlasian military with the latest and greatest military hardware and the manual and the blueprints and training. It's some serious lien that will go to support my SWF.
 
 **Year 3, 199**
 
-Other kingdoms are approaching me to buy military hardwares. They are very afraid of what might happen to them.
+Other kingdoms are approaching me to buy military hardware. They are very afraid of what might happen to them.
 
-The Grimm literally did fought Mechatron to a standstill, the micro kingdom that is the premiere military power on Remnant.
+The Grimm literally did fought Mechatron to a standstill, the micro kingdom that is the premiere military power on Remnant. If the Grimm did try to attack any other kingdoms, a lot more people will die.
+
+I wonder why Salem chose my kingdom rather than the others? Maybe she thought that I was going to become very difficult to destroy as time go on.
 
 **Year 3, 210**
 
@@ -65,7 +65,7 @@ Summit of Strategic Weapons happened.
 
 * Strategic weapons are banned from warfare against any kingdoms.
 
-* All kingdoms shall be informed of strategic weapons research.
+* All kingdoms shall be informed of strategic weapon researchs taken by other kingdoms.
 
 * The use of strategic weapons shall only be authorized against existential threats and enemies of mankind.
 
@@ -73,7 +73,7 @@ By the way, I twisted the wording broadly enough to allow the use of strategic w
 
 We didn't get anything down regarding enforcement of the Strategic Weapon Treaty. It's all based on a gentleman's agreement for now.
 
-Some of the kingdoms wanted to use independent huntsmen for enforcement. I basically said, "fuck no" without further vetting.
+Some of the kingdoms wanted to use independent huntsmen for enforcement. I basically said, "fuck no", not without further vetting.
 
 **Year 3, 230**
 
@@ -116,6 +116,10 @@ Rin and I discussed the merits of opening up the Stargate program to everyone el
 MSC discovered the Nox homeworld.
 
 We almost got kicked out.
+
+Sending sociologists and professors and try to chitchat up with Nox.
+
+So far nothing useful other than advices for mediation and comments about how unusual my people are.
 
 **Year 3, 260**
 
