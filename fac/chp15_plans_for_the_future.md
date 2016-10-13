@@ -2,7 +2,8 @@
 
 **Year 2: Day 201**
 
-There's a very interesting mural right in the cave where the stargate was housed.
+
+There's a very interesting mural right in the cave where the stargate was housed on the planet where we found ninjas.
 
 Some guy who looked like a monk(Six path sage?) used really large animals and magic to whoop some snake parasite bastard asses and expelled them.
 
@@ -20,7 +21,7 @@ This is a great medical mystery, and I am afraid that it has bad implication reg
 
 All patients recovered except one adult. He was declared unrecoverable and moved immediately into stasis storage before any additional damage can occur. This is standard policy.
 
-We should be expecting to move them back where they belong. I made a decision to also dump the dead male body as well. I am not dealing with dangerous ninjas.
+We should be expecting to move them back where they belong. I made a decision to also dump the dead male body as well. I am washing my hand off of rescuing any dead ninja.
 
 Addendum: I got yet into another argument with Rin about moving them back or not. She was very insistent on taking care of them, not just their physical health, but also mental health as well. I also pointed out that they are trained killers and missing-nins. She argued back against me that we don't know their history and who they are. We kept arguing back and forth, sometime in circles.
 
@@ -98,7 +99,7 @@ Some highlights of the day:
 
 * **Prototype hardsuit**: It's basically is power armor, but much of the mass is shaved off in exchange for agility. Some huntsmen do use power armor and really move well in it, but those power armor took a beating for this. The hardsuits should be able to handle the kind of strain that huntsmen put on the suits.
 
-* **Mechacycle MK I**: A prototype ground unit that can run on four legs and can also transforms into a motorcycle. With sensor fusion and integration with battlefield network, it can anticipate and adjust its movements for obstacles ahead of time. The researchers that built was understandingly very excited about this, but the engineer in Rin and I died a little. It's a very complex war machine, and we worried about its reliability and manufacturability.
+* **Mechacycle MK I**: A prototype ground unit that can run on four legs and can also transforms into a motorcycle. With sensor fusion and integration with battlefield network, it can anticipate and adjust its movements for obstacles ahead of time. The researchers that are working on this project was understandingly very excited about this, but the engineer in Rin and I died a little. It's a very complex war machine, and we worried about its reliability and manufacturability.
 
 * **Corvette airship**: Yet to be named; it is a long endurance airship three times as big as bullhead with speed up to only two hundred kilometers per hours. It is mostly a platform for learning how to build and design airships, with the end goal of building an expeditionary force.
 
