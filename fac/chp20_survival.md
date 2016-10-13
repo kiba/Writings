@@ -1,8 +1,8 @@
 # Chapter Twenty: Survival
 
-Sergeant Jaune Arc never thought beyond cheating to get into Beacon Academy or becoming a hero. He just wanted to be the guy who save people, someone who matters. He knew better now not to buy in all that glory. A huntsman frequently ended up missing, never coming back to his or her loved ones.
+Sergeant Jaune Arc never thought beyond getting Beacon Academy and becoming a huntsmen before he was found cheating. He just wanted to be the guy who save people, someone who matters. He knew better now not to buy in all that glory. A huntsman frequently ended up missing, never coming back to his or her loved ones.
 
-Instead of dying at the initiation ritual, Arc lived two more years into the future, became a real soldier, and got promoted up through the rank as the military expanded. He now patrolled with his squad and a couple of huntsmen-in-training from Beacon. He was grateful at that last addition. They might take all the glory, but they reduce the risk of everyone dying as well.
+Instead of dying at the initiation ritual, Arc lived two more years into the future, became a real soldier, and got promoted up through the rank as the military expanded. He now patrolled with his squad and a couple of huntsmen-in-training from Beacon. He was grateful with the force addition. They might take all the glory, but they reduce the risk of everyone dying as well.
 
 Today was a simple search and destroy mission deep inside an old growth forest, a measure to temporarily reduce the population of Grimm until new fortification and construction can be fully established. Then, the economy here will be able to support a population and churn out its own machines, establishing a stronger claim on this land, and pushing out against the forces of darkness.
 
@@ -32,7 +32,7 @@ All the sudden, the robots were firing westward.
 
 Arc engaged the enemies with his rifle as well, spewing bullets at holographic waypoints. His armor readily steadied his aims, but most of his bullets hit ground.
 
-"Team JNPR?! Need help here!" Arc shouted. "Damn it! We need to get out of there! Where the hell are they coming from?" Artillery unavailable. Units rapidly dwindling. Enemy counter increasing. Every indicator was just bad news.
+"Team JNPR?! Need help here!" Arc shouted. "Damn it! We need to get out of there! Where the hell are they coming from?" Artillery unavailable. Units rapidly dwindling. Enemy counter increasing. Every indicator on his HUD was just more bad news.
 
 All a sudden, a ursa got sliced in half by a sword.
 
