@@ -14,6 +14,8 @@ Things went fuck up in the medical bay of the new Mechatron Stargate Command. A 
 
 We were almost forced to put her in stasis.
 
+This is a great medical mystery, and I am afraid that it has bad implication regarding my aura.
+
 **Year 2: Day 204**
 
 All patients recovered except one adult. He was declared unrecoverable and moved immediately into stasis storage before any additional damage can occur. This is standard policy.
@@ -22,9 +24,9 @@ We should be expecting to move them back where they belong. I made a decision to
 
 Addendum: I got yet into another argument with Rin about moving them back or not. She was very insistent on taking care of them, not just their physical health, but also mental health as well. I also pointed out that they are trained killers and missing-nins. She argued back against me that we don't know their history and who they are. We kept arguing back and forth, sometime in circles.
 
-Finally, the commander made the tie-breaking decision to take a chance to end the argument.
+Finally, the commander made the tie-breaking decision to take a chance, ending our argument.
 
-I warned Rin that ninjas are very dangerous, even if they don't have aura.
+Fine. But don't blame me if something really bad happens.
 
 **Year 2: Day 205**
 
@@ -42,6 +44,12 @@ We have set a wedding day, since we never actually conducted the ceremony.
 
 Interrogation yielded a wealth of information about the planet. It isn't the Elemental Nations as I know it, though my memory of the series was very rusty and didn't really extend to the fourth shinobi world war.
 
+Naruto is known as the son of the fourth hokage since the last chunin exam, but there's no Sound/Sand invasion because of a lack of a hidden village in Tea.
+
+Zabuza is a missing-nin hunter, which is ironic.
+
+Lot of cool details that probably made my canonical knowledge basically irrelevant.
+
 **Year 2: Day 213**
 
 Us Earthlings got together for a day.
@@ -58,7 +66,7 @@ Blue said he didn't remember much since it was seventeen years ago for him.
 
 I offered the redhead ninja a deal to become my agent. She accepted it.
 
-With that agreement, they automatically granted asylum.
+With that agreement, they are automatically granted asylum.
 
 The genin are forbidden from combat until they reach of age when schoolchildren started hunting monsters, which will not be very long, actually. They'll be schooled and trained with special operation at Stargate Command.
 
@@ -86,11 +94,11 @@ Did a demo day with my R&D staff.
 
 Some highlights of the day:
 
-* **Shield generator MK II**: Next generation shield with better energy consumption, in addition to mass and volume reduction. All that means is that power armor users will pack either more shields or something else, bringing back the mass back to where it was before.
+* **Shield generator MK II**: Next generation shield with lower energy consumption, in addition to mass and volume reduction. I doubt it will reduce the mass of power armor users in general, as they always find more excuse to pack more stuff.
 
-* **Prototype hardsuit**: It's basically is power armor, but much of the mass is shaved off in exchange for agility. Some huntsmen do use power armor and really move well in it. The armor usually took a beating for such heavy usage. It also exhausts huntsmen faster.
+* **Prototype hardsuit**: It's basically is power armor, but much of the mass is shaved off in exchange for agility. Some huntsmen do use power armor and really move well in it, but those power armor took a beating for this. The hardsuits should be able to handle the kind of strain that huntsmen put on the suits.
 
-* **Mechacycle MK I**: A prototype ground unit that can run on four legs and can also transforms into a motorcycle. With sensor fusion and integration with battlefield network, it can anticipate and adjust its movements for obstacles ahead of time. The researchers that built was understandingly very excited about this, but the engineer in Rin and I died a little.  It's a very complex war machine, and I worried about its reliability and manufacturability.
+* **Mechacycle MK I**: A prototype ground unit that can run on four legs and can also transforms into a motorcycle. With sensor fusion and integration with battlefield network, it can anticipate and adjust its movements for obstacles ahead of time. The researchers that built was understandingly very excited about this, but the engineer in Rin and I died a little. It's a very complex war machine, and we worried about its reliability and manufacturability.
 
 * **Corvette airship**: Yet to be named; it is a long endurance airship three times as big as bullhead with speed up to only two hundred kilometers per hours. It is mostly a platform for learning how to build and design airships, with the end goal of building an expeditionary force.
 
