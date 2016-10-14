@@ -6,7 +6,7 @@ Soft footsteps reached Whittle's ears.
 
 "Frank? Thinking about work again?" A deep feminine voice asked.
 
-"Yeah," he said. His eyes can barely spot the dark outline of his oh-so-beautiful wife, with her soft brown eyes, clear complexion, red and black hairs, and probably wearing a hardsuit. The last part made him feel better. As an Earthling, he always worried about the lack of armor that her wife wore. She wore whatever she liked, damned the consequence. Now that she was working for Mechatron Special Operation, she always wore more practical uniforms and suits.
+"Yeah," he said. His eyes can barely spot the dark outline of his oh-so-beautiful wife, with her soft brown eyes, clear complexion, red and black hairs, and probably wearing a hardsuit. The last part made him feel better. As an Earthling, he always worried about the lack of armor that her wife wore. She wore whatever she liked, damned the consequence. Now that she was working for Mechatron Special Operation, she was obliged to wear more practical uniforms and suits.
 
 She sat down right next to his body, before falling on his chest. She wasn't in her armor like he thought, and now her soft skins pressed against him. For once, he was grateful for that. The wife put her hand on Whittle's face, feeling up Whittle's rough beard. He neglected to shave for the past few days.
 
@@ -16,7 +16,7 @@ The rocket scientist didn't put much stock into keeping up his appearances. Desp
 
 "Flae, you should know what's happening when I think about you."
 
-"Think positive thoughts, like all the dates we have together. Didn't your therapist said that?"
+"Think positive thoughts, like all the dates we have together. Didn't your therapist said something about that?"
 
 Whittle sighed. "I don't have time for this."
 
@@ -28,7 +28,7 @@ She stood up, her arms dragging her husband up by his hand.
 
 ***
 
-When work resumed in the morning, he was happy that he was making forward progress, but his team was in a race against time. Their rocket was far more ambitious than the other two rocket projects funded by SETO. The design was a complete jump into dust-based rocketry, rather than sticking to conventional rocket fuels such as hydrogen or kerosene. However, replicating the ancients' rocket technology was far more difficult than anticipated, which in turned might end up getting his rocket canned by the kingdoms for being too difficult.
+When work resumed in the morning, he was happy that he was making forward progress, but his team was in a race against time. Their rocket was far more ambitious than the other two rocket projects funded by SETO. The design was a complete jump into dust-based rocketry, rather than sticking to conventional rocket fuels such as hydrogen or kerosene or partly mixed dust engines. However, replicating the ancients' rocket technology was far more difficult than anticipated, which in turn might end up getting his rocket canned by the kingdoms for being too difficult.
 
 There aren't many days left. On Earth, that would justify overnight crunch mode.
 
@@ -38,7 +38,7 @@ His team closed up at the end of the day at five PM sharp, rather than work over
 
 He might have tried to raise his opinion on working overtime once more, or stubbornly continued to work from home, much to the dismay of his wife. Today was different. He was just too drained.
 
-The engineer decided not to even walk. using the moving sidewalk ubiquitous to Mechatron to transport him at a leisurely pace.
+The engineer decided not to even walk. Instead, he stood on the moving sidewalk ubiquitous to Mechatron to transport him at a leisurely pace.
 
 ***
 
@@ -50,7 +50,7 @@ They're all playing a game that resembled very much like Starcraft. He wasn't su
 
 The young teenager, whose name is Satoshi, made a predatory smile as he watched the other two ganged up on him.
 
-With a fury of rapid movement, Satoshi brushed away his adversaries in a matter of minutes, sending the blonde soldier and Blue into the pit of despair. With victory in his hand, Satoshi laughed.
+With a fury of rapid movement, Satoshi brushed away his adversaries in a matter of minutes, sending the blonde soldier and Blue into the pit of despair. With victory in his hand, Satoshi made a whooping sound for victory.
 
 "No fair! That's...just not possible," Jaune Arc's voice said. That triggered the rocket scientist's memory of Satoshi's dexterity feats at a small talent show organized for family and friends. He knew exactly why Satoshi won.
 
@@ -70,7 +70,7 @@ He decided to change the subject. "I thought you're supposed to be studying engi
 
 "I am curious as to what are you doing inside the cafe. That is all. One more thing, you shouldn't play against him in any games that involved high dexterity skill. That's his strength."
 
-"I noticed. Truth be told, we tried a more tactical game, and we still got our asses handed over. Even with Jaune Arc, and he's from the military, Satoshi still crush us. Seriously, he pulled out tactical moves from nowhere."
+"We noticed. We tried a turn-based strategy game where clicking don't matter, and we still got our asses kicked."
 
 "A quality that I must have missed, because he never shown that in the times he been invited by my wife to my house."
 
