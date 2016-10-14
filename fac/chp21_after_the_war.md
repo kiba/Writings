@@ -3,7 +3,7 @@
 
 What a horrific year. It seemed that the Grimm never stopped attacking or letting up, but eventually they finally gave up.
 
-I was so busy that I wasn't able to write anything in my journal for months. Most of my time were spent with my generals and industrial operation, while also fighting fires as the economy crash and social unrest climbs. It's not fun.
+I was so busy that I wasn't able to write anything in my journal for months. Most of my time were spent with my generals and industrial operation, while also fighting fires as with the worldwide recession and increasing social unrest. It's not fun.
 
 **Year 3, Day 175**
 
@@ -17,7 +17,9 @@ Most devastatingly, the enemy were able to chop away my logistical support, dest
 
 They tried an all out effort to destroy Dawn and Allothmy during the closing month of the war. I thought I had to execute plan Omega for general evacuation of my people to the underground and then through the stargate.
 
-Then the enemy just melted away.
+Then the enemy just melted away at the last second.
+
+I am still improving plan Omega should that becomes necessary.
 
 **Year 3, Day 178**
 
@@ -27,7 +29,7 @@ The kingdoms pleaded to me that I shouldn't do that, and that I should remember 
 
 It is moot. If I were able to nuke the Grimm, I wouldn't hemorrhage so many people to migration and almost lost my aboveground kingdom.
 
-For better or worse, they walked away with no demand to restrict rods of gods, nuclear bombs, or any other strategic weapons.
+For better or worse, they walked away with no demand to restrict rods of god, nuclear bombs, or any other strategic weapons.
 
 But boy did it cause a shitstorm and controversy throughout Remnant.
 
@@ -39,7 +41,7 @@ The faunus for the most part decided to stick with my kingdom rather than fleein
 
 **Year 3, Day 185**
 
-General Ironwood approached me to purchase war machines from me, and in particular bullets, as well all the blueprints necessary to produce them. They will paid royalties if they should decide to produce those machines and bullets in their own factories.
+General Ironwood approached me to purchase war machines, and in particular bullets, as well all the blueprints necessary to produce them. They will pay royalties if they should decide to produce those machines and bullets in their own factories.
 
 It's actually much cheaper and more efficient to buy from me rather than start up their own factories.
 
@@ -125,7 +127,7 @@ So far nothing useful other than advices for mediation and comments about how un
 
 The Mantle Queen made a visit. Told us that she got enough spectral dust to make a portal. We knew that. She knew we knew, and so on.
 
-Then we have tea, talking about various topics. Then at some point, she tried to suggest multiple marriages, but Rin subtly shut her down. I am staying away from that crazy woman.
+Then we have tea, talking about various topics. Then at some point, she tried to suggest multiple marriages, but Rin subtly shut her down. I want to stay away from that crazy woman.
 
 After she left, I told my MSC commander to prep a stargate team for a trip to Atlas.
 
