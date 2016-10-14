@@ -1,6 +1,6 @@
 # Chapter Sixteen: Whittle's Detour
 
-Frank Whittle looked upward at the shattered moon from the roof of his home, a reminder that he wasn't on Earth anymore. Cool breeze of air continuously flowed over his body on the recliner. He thought about the latest test. Engine revision 112 exploded right at the end of a workday. Instead of working out the root cause, his workmates decided to go home. However, Frank Whittle couldn't stop thinking about work, even when he was supposed to be relaxing.
+Frank Whittle looked upward at the shattered moon from the roof of his home, a reminder that he wasn't on Earth anymore. Instead of thinking about the moon, he thought about the latest test. Engine revision 112 exploded right at the end of a workday. Instead of working out the root cause, his workmates decided to go home. However, the rocket scientist couldn't stop thinking about work, even when he was supposed to be relaxing.
 
 Soft footsteps reached Whittle's ears.
 
@@ -16,7 +16,7 @@ The rocket scientist didn't put much stock into keeping up his appearances. Desp
 
 "Flae, you should know what's happening when I think about you."
 
-"Think positive thoughts, like all the dates we have together. Didn't your therapist said something about that?"
+"Think happy memories, like all the dates we have together. Didn't your therapist said something about that?"
 
 Whittle sighed. "I don't have time for this."
 
