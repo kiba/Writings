@@ -1,10 +1,10 @@
 # Chapter One: A Dreamer
 
-I ran through a forest.
+I ran through the forest as hard as I could, with my lung hurting.
 
 I didn't even know why I am running.
 
-Just that I am very scared.
+Just that I am scared.
 
 A series of growl echoed throughout the forest.
 
@@ -40,19 +40,19 @@ I screamed as I woke up. Moments later, the door swung open to my mother.
 
 "What's wrong, honey?" she asked as she switched on the light. I could see the blond form of my mother in her sleep grown.
 
-I noticed that I was visibly in sweating. Then I checked my bodies for signs of injuries.
+I noticed that I was visibly in sweating. Then I checked my own body for signs of injuries. I was relieved that nothing happened to me.
 
 "A very vivid nightmare," I said. "I ran through a forest trying to get away from some monsters."
 
 "Night terror."
 
-"Yeah. I think that's it."
+"Yeah. I think that's it. I don't even know what I am running from."
 
-"Child, I don't know what to do. If this keeps up, we're going to get a doctor's appointment. I am going to do research this morning."
+"Child, I don't know what to do. If this keeps up, we're going to get a doctor's appointment. See the sleep doctor, maybe?"
 
 "But-"
 
-"No but! I am not going to have a son with night terror in my house, especially when he disturbs my sleep. Do you want to die in a traffic accident."
+"No but! I am not going to have a son with constant night terror in my house, especially when he disturbs my sleep. Do you want to die in a traffic accident?"
 
 "No, mom."
 
@@ -72,7 +72,7 @@ Thinking that it's over, I fell asleep again.
 
 "He's not in the system at all?" another voice puzzled.
 
-"There are some individuals who opted not to register themselves and their children with the government. It's possible that he might be one of them."
+"There are some individuals who opted not to register themselves and their children with the government, especially after Unification Day. It's possible that he might be one of them."
 
 ...
 
@@ -110,7 +110,7 @@ The hazmat suit shined a light into my eyes.
 
 "Andy Watson."
 
-"Alright, Mrs. Watson. I am Doctor Jerry Spring and I will be caring for you." A couple more of hazmat suits came in at the same time, with a cart as well, and with what looked like food as well on top of the cart. "Do you know what year it is?"
+"Alright, Mrs. Watson. I am Doctor Jerry Spring and I will be caring for you." A couple more of hazmat suits came in at the same time, with a cart as well. I can even see the prepared food on top of the cart. It wasn't recognizable to me though. "Do you know what year it is?"
 
 "Two thousand sixteen?"
 
@@ -118,14 +118,50 @@ The hazmat suit shined a light into my eyes.
 
 "Two thousand sixteen yanno anno?"
 
-"I don't understand. That's not remotely the year we're in." The doctor then puts an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in which I successfully answered. "Good, it looked like your hearing is not compromised. Now, the year is three thousand twenty-five after landing."
+"You're a little bit off. Less then two thousand years after landing. And I don't know what 'yanno anno' is." The doctor then puts an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in which I successfully answered. "Good, it looked like your hearing is not compromised. Now, the year is nineteen thousand twenty five after landing."
 
 "Excuse me? Landing what?"
 
-"You don't remember your history? The important thing is that you are aware. Let see if the crash didn't make you any more bonker. Two plus two is?"
+"You don't remember your history? The important thing is that you are aware and lucid, I guess. More questions. Two plus two is?"
 
 "Four."
 
-"Name the thirteen gods."
+"Name the thirteen worlds of man."
 
-"What? From what pantheon?"
+"What? Since when the solar system has thirteen planets?"
+
+The doctor sighed. "Are you a cultist?"
+
+"What? No! I don't even believe in God!" The occasional beeps turned into full long beep. "Hel-"
+
+"we got a cardiac arrest!" the doctor yelled one last time.
+
+My vision turned all blurry, and then to black. I blanked out.
+
+***
+
+I woke up, jumping out of my bed.
+
+"What the fuck?!" I yelled to no one in particular.
+
+"You're being awfully loud up there!" mom yelled.
+
+I turned around, taking a quick look at everything in rapid succession. Then I grabbed my android, and flip it on. It was a brand new day, January fourteen, two thousand sixteen. I hadn't gone back in the past, did I?
+
+No. It was really vivid. I still remembered the nightmare, and then talking to my mom, and then ending up in a weird hospital that doesn't understand my answer.
+
+"Breakfast ready!" my mom hollered.
+
+"I'm coming!" I reflexively yelled back.
+
+As soon as I came down, I can see the dishes laid on the table. There's eggs and bacons, with buttered bread and jam, and pancake with syrup, milk and orange, and everything that I could possibly want in a breakfast.
+
+Nobody put as much effort into breakfast like my mom.
+
+Still, there's something I must communicate before sitting down to eat breakfast.
+
+"Mom?" I pressed for her attention.
+
+"Yes?"
+
+"My dreams...aren't like dreams?"
