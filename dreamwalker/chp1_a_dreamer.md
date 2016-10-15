@@ -1,5 +1,5 @@
 # Chapter One: A Dreamer
-
+[todo]Make it scarier somehow.[/todo]
 I ran through the forest as hard as I could.
 
 My lung really hurt, screaming for air.
@@ -37,7 +37,7 @@ A loud roar vibrated through my body. I turned around.
 A giant claw swiped at me.
 
 ***
-
+[todo]Make mom less cold[/todo]
 I screamed as I woke up. Moments later, the door swung open to my mother.
 
 "What's wrong, honey?" she asked as she switched on the light. I could see the blond form of my mother in her pajamas.
