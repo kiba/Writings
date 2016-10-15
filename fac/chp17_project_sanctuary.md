@@ -2,11 +2,11 @@
 
 **Year 2, Day 250**
 
-Wedding preparation kicked into high gear. The queen of Mantle dropped in for tea. She also help us prepared for a royal wedding.
+Wedding preparation kicked into high gear. The queen of Mantle dropped in for tea and making sure that we're not an embarrassment to all royals.
 
 Ugh.
 
-I remembered her desire to overthrow the Atlasian military oligarchy.
+As nice as she is, I remembered her desire to overthrow the Atlasian military oligarchy.
 
 **Year 2, Day 253**
 
@@ -14,7 +14,7 @@ Invitation are going out. We have a very few that we would considered friends an
 
 **Year 2, Day 263**
 
-By now, the MSC(Mechatron Stargate Command) explored a dozen of planets, but not any new habitable worlds. We're definitely not going to colonize the Elemental Nations. The people there are very dangerous, and there would be hell to pay to try to invade and take over their land. We'll wait until we're sufficiently powerful enough to deal with some of their more bullshit ninjas there, and even then, there would be only limited trade.
+By now, the MSC(Mechatron Stargate Command) explored a dozen of planets, but not any new habitable worlds beside the Elemental Nations, and we're definitely not going to colonize that world. The people there are very dangerous, and there would be hell to pay to try to invade and take over their land. We'll wait until we're sufficiently powerful enough to deal with some of their more bullshit ninjas there.
 
 We're going to keep exploring until we find a habitable world to colonize.
 
@@ -28,7 +28,7 @@ That will lead to the creation of a true united polity across Remnant in which I
 
 Blue and Frank created the Earth Diaspora Society and invited me to join. I accepted.
 
-It's a very exclusive club that's going to be careful in testing members. We aren't going to release information to the public about Earth so that we can identify people using knowledge that only Earthlings have, rather than wade through fakers.
+It's a very exclusive club that's going to be careful in testing for memberships. We aren't going to release information to the public about Earth so that we can identify people using knowledge that only Earthlings have, rather than wade through fakers.
 
 **Year 2, Day 265**
 
@@ -40,15 +40,15 @@ The details basically says I need a lot of money and fiscal discipline. I wonder
 
 **Year 2, Day 268**
 
-Better than nothing. I bled two percent of profit from selling power armors and diverted into the SWF. We'll withdraw one percent of the dividend generated, and reinvest everything else.
+Better than nothing. I bled two percent of profit from selling power armors and diverted the income into the SWF. We'll withdraw one percent of the dividend generated, and reinvest everything else.
 
 Anybody shall be free to donate to the SWF. I know I am.
 
 Eventually, I want to be able to run the entire government only on the SWF. However, the implication is that the investment fund will be monstrous, which implies a very large private sector.
 
-Governments are usually very monstrous, providing a large part of a nation's GDP. It seemed inevitable that I will very effectively create a small government that doesn't interfere very much.
+Governments are usually very monstrous in budget, partly because they're inefficient in the allocation of resource, but also because they provide a wide variety of services.
 
-I am not too worried about that issue. My goal is to build a wealthy and prosperous kingdom that benefit everyone, not just me, not create the ideal 'small' government.
+Somehow, I am not hopeful about building a SWF that can provide my citizenry with a sustainable income.
 
 **Year 2, Day 272**
 
@@ -66,26 +66,25 @@ I thought it was unlikely that such a sanctuary would remain primitive over thou
 
 I made it clear that I am not involving myself in any attempt to overthrow the Atlasian government, or to make a bomb, or any other of that bullshit.
 
-She laughed again, saying that she liked me for such a strength of will. If it weren't for Rin, she would try to date and marry me instead. She would also respect my wishes as well, because she only intended to win power peacefully.
+She laughed again, saying that she liked me for such strength of will and integrity. If it weren't for Rin, she would try to date and marry me instead. She also has no problem complying with my demands, because she wasn't trying to do these things anyway.
 
 Her offer still stand for the next twenty days.
 
 I am very suspicious of her, so I ordered my ninja to start packing and build a spy network in Atlas and Mantle.
 
-
 **Year 2, Day 283**
 
-The Arc matriarch arrived in town. How do I know that?
+The Arc matriarch arrived in town. How did I know that?
 
 The matriarch arrived, tracked down her son, scolded him, hugged him, and then demanded a meeting with me.
 
 Curious, I greeted her. She then demanded an explanation as to why her son was in my military instead of attending Beacon Academy. Then she started crying about how proud she was of her son and how she didn't want him to be a huntsman, intentionally never giving her son any opportunities to learn how to fight.
 
-Maybe I shouldn't meet her, because she was very proud, overbearing, worried, and angry at the same time.
+Anyway, once the meeting was finished, I was somewhat bewildered.
 
 **Year 2, Day 288**
 
-Our spymaster already turned up something useful. It was a whole lot of political bullshit.
+Our spymaster already turned up something useful. It was a whole lot of political bullshit that my Prime Minister could exploit but I don't care to do.
 
 Now we have a series of paid informers feeding us information back about the political happening of Atlas.
 
@@ -93,11 +92,11 @@ With some discussion, Rin and I also agreed to Project Sanctuary. Our spymaster 
 
 **Year 2, Day 291**
 
-The Mantle queen arrived. She thanked us for agreeing to the project.
+The Mantle queen visited us again. She thanked us for agreeing to the project.
 
 Then more royals and dignitaries from other kingdoms arrived. The wedding is now kicking into full gear.
 
-The wedding was also an excuse for a cultural festival. The population boomed three times its normal size. Stampede became a huge worry for security, as well as the threat of terrorist attacks and Salem plotting.
+The wedding was also an excuse for a cultural festival. The population boomed three times to its normal size. Stampede became a huge worry for security, as well as the threat of terrorist attacks and plots by Salem.
 
 **Year 2, Day 294**
 
@@ -109,7 +108,7 @@ In the meantime, we're trying small talk and sticking to what the public already
 
 **Year 2, Day 299**
 
-Last day rehearsal before the wedding.
+Last day rehearsal before the actual wedding ceremony.
 
 **Year 2, Day 300**
 
