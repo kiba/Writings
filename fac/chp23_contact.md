@@ -2,7 +2,7 @@
 
 **Year 3, Day 277**
 
-The Atlasian ambassador was really angry with us.
+The Atlasian ambassador stomped into our office extremely pissed off.
 
 We had to listen to him bitch at us and the queen of Mantle for thirty minutes straight.
 
@@ -10,7 +10,7 @@ I was about to punch him in the face, but my lovely wife stayed my hand.
 
 **Year 3, Day 278**
 
-The Atlasian government came and swept the Mantle Queen's secret project.
+The Atlasian government came and swept the queen's secret project into their grubby hands. It's all under the Atlasian military control now, and they were kind enough not to jail our researchers and military personnels, or make a huge stink about it. In return, they want something, though.
 
 We didn't hear anything from the queen even with our assets, but we assumed that she has something up her sleeves.
 
@@ -32,17 +32,15 @@ I told him that I don't want to let Salem knows.
 
 **Year 3, Day 283**
 
-We finally sent in an agent to Earth.
+We finally sent one of our MSC operator to Earth.
 
-He has to rescue people from a thirteen cars pile-up wreck.
-
-Anyway, he found a probable Remnan, which he knew from his own aura sense, but also his scroll. We got the entire interaction recorded via a hidden cam on his tie.
+He first found a probable Remnan, which he knew from his own aura sense, but also his scroll. We got the entire interaction recorded via a hidden cam on his tie.
 
 Running the software through recognition...and guess what we found? Summer Rose. She was presumed dead thirteen years ago when she failed to return.
 
 It is by no mean assured, but this woman is very likely Summer Rose.
 
-Moving on, the agent caused a shitstorm of media attention. The FBI converged on the scene to interview our agent, the national guard dispatched, and so on.
+Moving on, the agent caused a shitstorm of media attention by being a good samaritan in rescuing people from the cars pileup on a freeway. The FBI converged on the scene to interview our agent, the national guard dispatched, and the president made a big speech about it.
 
 By no means that they will discover our world is Remnant, just yet.
 
@@ -57,6 +55,8 @@ The Earthlings are intimidated by the obviously better equipped and technologica
 **Year 3, Day 287**
 
 They finally discovered what fictional universe we're form. God, this is so entertaining to watch.
+
+On the hand, I discovered that a certain billionaire is campaigning for president. The horror.
 
 **Year 3, Day 290**
 
@@ -76,6 +76,12 @@ I stepped down my foot and said that those two individuals had redeemed themselv
 
 I told Remnant not to join the United Nations as they're a completely toothless organization and an utter waste of time.
 
+They actually listened to me for once.
+
+**Year 3, Day 296**
+
+That billionaire just insulted the people of Remnant, and in particular, my wife. The fuck?
+
 **Year 3, Day 297**
 
 We finally agreed to a treaty. No expansion or creation of any portal without Earth's permission. Each side shall be responsible for the defense of those portals to prevent any Grimm incursion.
@@ -86,7 +92,7 @@ Trade and other policies shall be decided at a later date.
 
 Team BRWY is now renamed RWBY.
 
-They also became really famous in two world.
+They also became really famous in two worlds.
 
 Plus the Ozpin conspiracy group is exposed. Oops.
 
@@ -100,7 +106,7 @@ Ozpin got heckled and hounded by the media. Everyone knows about the maiden now.
 
 **Year 3, Day 305**
 
-Ozpin got called to hearing for some grilling. He managed to say essentially nothing while saying a whole lot of things.
+Ozpin got called to hearing for some grilling. He managed to say essentially nothing while saying a whole lot of things. The council of Vale decided to do nothing, since they didn't have the balls to challenge a headmaster who is universially regarded as a hero.
 
 **Year 3, Day 306**
 
@@ -110,7 +116,7 @@ They arranged a visit date of 'your two weeks'.
 
 I am worried about having alien visitors on my planet. Do they even understand the value of disguise?
 
-Anyway, I told them what they need to know and that we're not responsible for their death if they're careless about confronting the Grimm.
+I told them what they need to know and that we're not responsible for their death if they're careless about confronting the Grimm.
 
 **Year 3, Day 310**
 
@@ -128,7 +134,7 @@ We'll see if the other two will have to go the way of the dodo bird. As it is, t
 
 **Year 3, Day 320**
 
-A few Nox came, disguised as regular humans, with no nature thingy.
+A few Nox came, disguised as regular humans, with no nature stuff growing on their head.
 
 It's a good thing that I practiced a lot of mediation and philosophy. Rin, on the other hand, just didn't want to do it all.
 
