@@ -24,11 +24,13 @@ I replied that I already have a command dedicated to exploration, and already pr
 
 I revealed a big secret to him: the stargate program.
 
-Rin and I knew that we have to do it soon or later. The stargate is the concerns of the entirety of Remnant, especially the Goa'uld threat that might or might not be lurking out there.
+Rin and I knew that we have to do it soon or later. The stargate concerns the people of Remnant, not just Mechatron, since it represent a potential safe haven for Remnan, but also danger, especially from the Goa'uld, which might or might not be present in the galaxy.
 
 Ironwood was taken back by it, but he's intrigued enough to send some specialists my way, but he also said he will mention this project to Ozpin.
 
 I told him that I don't want to let Salem knows.
+
+He nodded.
 
 **Year 3, Day 283**
 
@@ -36,9 +38,7 @@ We finally sent one of our MSC operator to Earth.
 
 He first found a probable Remnan, which he knew from his own aura sense, but also his scroll. We got the entire interaction recorded via a hidden cam on his tie.
 
-Running the software through recognition...and guess what we found? Summer Rose. She was presumed dead thirteen years ago when she failed to return.
-
-It is by no mean assured, but this woman is very likely Summer Rose.
+Running the software through recognition...and guess what we found? Summer Rose. She was presumed dead thirteen years ago when she failed to return. It is by no mean assured, but this woman is very likely Summer Rose.
 
 Moving on, the agent caused a shitstorm of media attention by being a good samaritan in rescuing people from the cars pileup on a freeway. The FBI converged on the scene to interview our agent, the national guard dispatched, and the president made a big speech about it.
 
@@ -66,9 +66,9 @@ They're very cautious about letting any Grimm seep through.
 
 **Year 3, Day 291**
 
-The Earth Diaspora Society got a whole lot attention, as well unfavorable attention for Blue.
+The Earth Diaspora Society got a whole lot of attention, as well unfavorable attention for Blue.
 
-Jaune Arc got unfavorable attention as well.
+Jaune Arc got unfavorable attention as well once they found about the RWBY series.
 
 I stepped down my foot and said that those two individuals had redeemed themselves in the eyes of Mechatron. Jaune Arc is undergoing special operation training and Blue proved to be an able aerospace engineer.
 
@@ -94,7 +94,7 @@ Team BRWY is now renamed RWBY.
 
 They also became really famous in two worlds.
 
-Plus the Ozpin conspiracy group is exposed. Oops.
+Plus by now, the Ozpin conspiracy group is exposed. Oops.
 
 **Year 3, Day 300**
 
@@ -106,7 +106,7 @@ Ozpin got heckled and hounded by the media. Everyone knows about the maiden now.
 
 **Year 3, Day 305**
 
-Ozpin got called to hearing for some grilling. He managed to say essentially nothing while saying a whole lot of things. The council of Vale decided to do nothing, since they didn't have the balls to challenge a headmaster who is universially regarded as a hero.
+Ozpin got called to hearing for some grilling. He managed to say essentially nothing while saying a whole lot of things. The council of Vale decided to do nothing, since they didn't have the balls to challenge a headmaster who is universally regarded as a hero.
 
 **Year 3, Day 306**
 
@@ -116,7 +116,7 @@ They arranged a visit date of 'your two weeks'.
 
 I am worried about having alien visitors on my planet. Do they even understand the value of disguise?
 
-I told them what they need to know and that we're not responsible for their death if they're careless about confronting the Grimm.
+I told them what they need to know and that we're not responsible for their death if they're careless about confronting the Grimm. I also told them the need to keep their identity and visit secret. Strangely enough, they agreed.
 
 **Year 3, Day 310**
 
