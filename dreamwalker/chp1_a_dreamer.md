@@ -12,7 +12,7 @@ A series of growl echoed throughout the forest.
 
 It was the horde.
 
-I hit my foot against a tree, sending pain upward. I didn't stop. A slip there, a stabbing pain in my left arm, with a rock in my shoe.
+I hit my foot against a tree, sending pain upward. I didn't stop. A slip there, a stabbing pain in my left arm, and a tiny rock in my shoe.
 
 It didn't matter. I just kept running.
 
@@ -24,7 +24,7 @@ I didn't know that either. The overwhelming fear propelled me regardless.
 
 Thud. Thud. Crack. They're getting closer.
 
-I slipped, striking a rock with my forehead.
+I slipped and fell, striking a rock with my forehead.
 
 Ouch!
 
@@ -34,7 +34,7 @@ I desperately struggled to find my footing.
 
 A loud roar vibrated through my body. I turned around.
 
-I didn't even have a good look before a giant claw swiped at me.
+A giant claw swiped at me.
 
 ***
 
@@ -58,7 +58,7 @@ I noticed that I was visibly in sweating. Then I checked my own body for signs o
 
 "No, mom."
 
-"Get back to sleep."
+"Go to sleep."
 
 "Yes ma'am."
 
@@ -70,7 +70,7 @@ Thinking that it's over, I fell asleep again.
 
 ...
 
-"Based on the genetic profile, we have an unknown John Doe," a female voice said.
+"Based on the genetic profile, the only identification method we have left, we have an unknown John Doe," a female voice said.
 
 "He's not in the system at all?" another voice puzzled.
 
@@ -102,7 +102,7 @@ Someone in a hazmat suit walked in.
 
 "Where the hell am I? What day it is?"
 
-"John Doe, hold on," the hazmat man said as he pull the bed into a recline position. "We'll ask you a question. You'll try to answer ours. We will also need to run some medical diagnostic on you. Do you understand?"
+"John Doe, please calm down," the hazmat man said as he pull the bed into a recline position. "You were in a serious vehicular accident. The confusion is normal, but we will help you get through that, but you'll have to cooperate with us. Do you understand?"
 
 "Um, yes."
 
@@ -112,7 +112,7 @@ The hazmat suit shined a light into my eyes.
 
 "Andy Watson."
 
-"Alright, Mrs. Watson. I am Doctor Jerry Spring and I will be caring for you." A couple more of hazmat suits came in at the same time, with a cart as well. I can even see the prepared food on top of the cart. It wasn't recognizable to me though. "Do you know what year it is?"
+"Alright, Mrs. Watson. I am Doctor Berry Spring and I will be caring for you." A couple more of hazmat suits came in at the same time, with a cart as well. "Don't worry. They're nurses." I can even see the prepared food on top of the cart. It wasn't recognizable to me though. "Do you know what year it is?"
 
 "Two thousand sixteen?"
 
@@ -120,7 +120,7 @@ The hazmat suit shined a light into my eyes.
 
 "Two thousand sixteen yanno anno?"
 
-"You're a little bit off. Less then two thousand years after landing. And I don't know what 'yanno anno' is." The doctor then puts an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in which I successfully answered. "Good, it looked like your hearing is not compromised. Now, the year is nineteen thousand twenty five after landing."
+"You're a little bit off. Less then two thousand years after landing. And I don't know what 'yanno anno' is." The doctor then put an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in which I successfully answered. "Good, it looked like your hearing is not compromised. Now, the year is nineteen thousand twenty five after landing."
 
 "Excuse me? Landing what?"
 
@@ -130,11 +130,11 @@ The hazmat suit shined a light into my eyes.
 
 "Name the thirteen worlds of man."
 
-"What? Since when the solar system has thirteen planets?"
+"What? Since when the solar system has thirteen worlds?"
 
 The doctor sighed. "Are you a cultist?"
 
-"What? No! I don't even believe in God!" The occasional beeps turned into full long beep. "Hel-"
+"What? No! I don't even believe in God!" The occasional beeps nearby became full long beep. "Gah-"
 
 "we got a cardiac arrest!" the doctor yelled one last time.
 
@@ -150,13 +150,13 @@ I woke up, jumping out of my bed.
 
 I turned around, taking a quick look at everything in rapid succession. Then I grabbed my android, and flip it on. It was a brand new day, January fourteen, two thousand sixteen. I hadn't gone back in the past, did I?
 
-No. It was really vivid. I still remembered the nightmare, and then talking to my mom, and then ending up in a weird hospital that doesn't understand my answer.
+No. It was really vivid. I still remembered the nightmare, and then talking to my mom, and then ending up in a weird hospital with doctors that ask weird questions. The frightening thing was that it all weirdly made sense. Dreams aren't supposed to make sense.
 
 "Breakfast ready!" my mom hollered.
 
 "I'm coming!" I reflexively yelled back.
 
-As soon as I came down, I can see the dishes laid on the table. There's eggs and bacons, with buttered bread and jam, and pancake with syrup, milk and orange, and everything that I could possibly want in a breakfast.
+As soon as I came down, I can see the dishes laid on the table. There's eggs and bacons, with buttered bread and jam, and pancakes with syrup, milk and orange, and everything that I could possibly want in a breakfast.
 
 Nobody put as much effort into breakfast like my mom.
 
@@ -166,4 +166,4 @@ Still, there's something I must communicate before sitting down to eat breakfast
 
 "Yes?"
 
-"My dreams...aren't like dreams?"
+"My dreams...felt so real?"
