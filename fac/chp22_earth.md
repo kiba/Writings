@@ -2,9 +2,9 @@
 
 May Rose just punched the neighborhood bully right in the stomach.
 
-Here he was, on the ground, crying out for his mama, while a classmate of her hid behind her back. It was just right outside school too.
+The bully immediately dropped into the ground, writhing in pain, and crying out for his mama, while a classmate of her hid behind her back. It was just right outside school too.
 
-It was just a punch, right? Henry deserve it, right? He did tried to extort John out of his lunch money.
+It was just a punch, right? Henry deserve it, right? He did tried to extort John out of his lunch money. People shouldn't bully other people for lunch money.
 
 "WHAT THE HELL IS GOING ON?!" an adult bellowed.
 
@@ -16,19 +16,19 @@ The grade schooler swung her legs while sitting on a chair, mindful of the conve
 
 It was fast paced, and sharp. That wasn't how adults supposed to act. Even when mama was angry with her, mama's  voice was very calm.
 
-Finally, one of the adults stomped out before dragging Henry by the ear.
+Finally, one of the adults stomped out before dragging Henry by the ear. "Ouuuch! What did I do?"
 
-John's papa hugged John instead.
+John's papa hugged John.
 
 Finally Mama came out, looking very tired. May knew who she looked like anywhere. Red streak and white hair with grey eyes, she was very distinctive.
 
 May inherited that look as well. When her teachers said that she shouldn't be dyeing her hairs, mama has to get a several letters from doctors to prove that it was all natural.
 
-"You dodge that bullet, kiddo," her mama said.
+"You dodged that bullet, kiddo," her mama said.
 
 "I am not going to get suspended?" May asked, worried.
 
-"No. Let's go home."
+"No. Let's take you home."
 
 ***
 
@@ -90,7 +90,7 @@ Then he started saying words in a language to mama that May didn't recognize the
 
 "Sure thing...go to.."
 
-May looked at him even as he departed. There was something different about that person.
+May stared at him even as he departed. There was something different about that person.
 
 "Why are you looking at him, sweetie?" her mama asked.
 
@@ -104,7 +104,7 @@ May found a new cool anime series to watch, called RWBY. The main heroine has th
 
 The girl binged through it on her laptop.
 
-By the end of the series, May was crying. No fair! She thought it was going to be about cute girls doing cute things and killing monsters. Stupid show!
+By the end of the series, May was crying. No fair! She thought it was going to be about cute girls doing cute things and killing monsters, but why did Phyrra die? Stupid show!
 
 She closed the laptop and went to get some lemonade.
 
