@@ -99,3 +99,33 @@ There were recognizable writings and symbols. The computers looked kinda weird.
 Someone in a hazmat suit walked in.
 
 "Where the hell am I? What day it is?"
+
+"John Doe, hold on," the hazmat man said as he pull the bed into a recline position. "We'll ask you a question. You'll try to answer ours. We will also need to run some medical diagnostic on you. Do you understand?"
+
+"Um, yes."
+
+The hazmat suit shined a light into my eyes.
+
+"What is your name?"
+
+"Andy Watson."
+
+"Alright, Mrs. Watson. I am Doctor Jerry Spring and I will be caring for you." A couple more of hazmat suits came in at the same time, with a cart as well, and with what looked like food as well on top of the cart. "Do you know what year it is?"
+
+"Two thousand sixteen?"
+
+"Excuse me?"
+
+"Two thousand sixteen yanno anno?"
+
+"I don't understand. That's not remotely the year we're in." The doctor then puts an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in which I successfully answered. "Good, it looked like your hearing is not compromised. Now, the year is three thousand twenty-five after landing."
+
+"Excuse me? Landing what?"
+
+"You don't remember your history? The important thing is that you are aware. Let see if the crash didn't make you any more bonker. Two plus two is?"
+
+"Four."
+
+"Name the thirteen gods."
+
+"What? From what pantheon?"
