@@ -1,6 +1,8 @@
 # Chapter One: A Dreamer
 
-I ran through the forest as hard as I could, with my lung hurting.
+I ran through the forest as hard as I could.
+
+My lung really hurt, screaming for air.
 
 I didn't even know why I am running.
 
@@ -38,7 +40,7 @@ I didn't even have a good look before a giant claw swiped at me.
 
 I screamed as I woke up. Moments later, the door swung open to my mother.
 
-"What's wrong, honey?" she asked as she switched on the light. I could see the blond form of my mother in her sleep grown.
+"What's wrong, honey?" she asked as she switched on the light. I could see the blond form of my mother in her pajamas.
 
 I noticed that I was visibly in sweating. Then I checked my own body for signs of injuries. I was relieved that nothing happened to me.
 
