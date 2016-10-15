@@ -4,13 +4,13 @@
 
 Wedding preparation kicked into high gear. The queen of Mantle dropped in for tea and making sure that we're not an embarrassment to all royals.
 
-Ugh.
+As nice as she is, I suddenly remembered her desire to overthrow the Atlasian military oligarchy.
 
-As nice as she is, I remembered her desire to overthrow the Atlasian military oligarchy.
+Ugh.
 
 **Year 2, Day 253**
 
-Invitation are going out. We have a very few that we would considered friends and families, but there are lot of VIPs that will attend, like royals and councilmembers.
+Invitations are going out. We have a very few that we would consider friends and families, but there are lot of VIPs that will attend, like royals and top politicians such as council members.
 
 **Year 2, Day 263**
 
