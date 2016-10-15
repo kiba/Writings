@@ -14,15 +14,15 @@ Rose turned her head to the source. The moment she did that, she knew that she w
 
 The grade schooler swung her legs while sitting on a chair, mindful of the conversation that was taking place within the principal office. It was muffled, but she could hear the tone of the voices.
 
-It was fast paced, and sharp. That wasn't how adults supposed to act. Even when mama was angry with her, it was a calm and cold voice.
+It was fast paced, and sharp. That wasn't how adults supposed to act. Even when mama was angry with her, mama's  voice was very calm.
 
 Finally, one of the adults stomped out before dragging Henry by the ear.
 
 John's papa hugged John instead.
 
-Finally Mama came out, looking very tired. May knew who she look like anywhere. Candy crane colored hairs and grey eyes, she was very distinctive.
+Finally Mama came out, looking very tired. May knew who she looked like anywhere. Red streak and white hair with grey eyes, she was very distinctive.
 
-May inherited that look as well. When her teachers said that she shouldn't be dyeing her hairs, mama has to get a doctor's letter to prove that it was all natural.
+May inherited that look as well. When her teachers said that she shouldn't be dyeing her hairs, mama has to get a several letters from doctors to prove that it was all natural.
 
 "You dodge that bullet, kiddo," her mama said.
 
@@ -38,7 +38,7 @@ May inherited that look as well. When her teachers said that she shouldn't be dy
 
 "Because...one of these days...you're going to get in trouble and I am not going to be able to get you out."
 
-"But I punch him, because he was about to punch me, and John!"
+"But I punched him, because he was about to punch me, and John!"
 
 "I know. I believe you. But, it's frowned on these days. That is just not what people do."
 
@@ -46,7 +46,7 @@ May inherited that look as well. When her teachers said that she shouldn't be dy
 
 "I agree that's dumb. Do you remember Abel?"
 
-"Yeah. He moved away, because Abel was playing outside with nobody around. Abel's parents went to jail."
+"Yeah. He moved away, because Abel was playing outside with nobody looking out for him. Abel's parents went to jail."
 
 "Right. That what will happen to you if you keep fighting. I will go to jail."
 
@@ -64,7 +64,7 @@ Mama end up here at least once a month, because May's mama wasn't like any mom. 
 
 May didn't really understood the concept for a long time.
 
-Mama has to explain to her through bedtime stories about people who lost memories.
+Mama had to explain to her through bedtime stories about people who lost memories.
 
 Finally, mama came back. She looked a bit sad. May didn't want her to go because it made mama sad, but mama will always go regardless of what May wants.
 
@@ -76,9 +76,9 @@ The door opened. "Kiddo, ready for lunch?" she said.
 
 An adult drawn May's attention while they were walking to May's favorite restaurant.
 
-She didn't know why, but she felt compelled. There was nothing about the man that made him stand out. He was a boring person in a place with boring.
+She didn't know why, but she felt compelled. There was nothing about the man that made him stand out. He was a boring person in a boring place with boring person, except for mama and May of course.
 
-Then he started saying words to mama that May didn't know.
+Then he started saying words in a language to mama that May didn't recognize the slightest.
 
 "I am sorry, what?" mama said.
 
@@ -106,7 +106,7 @@ The girl binged through it on her laptop.
 
 By the end of the series, May was crying. No fair! She thought it was going to be about cute girls doing cute things and killing monsters. Stupid show!
 
-She closed the laptop and went to get a dream.
+She closed the laptop and went to get some lemonade.
 
 Something caught her eyes in the living room.
 
@@ -116,7 +116,7 @@ May waited for many years, waiting to meet them. She never did.
 
 Now that she thought about it, they looked like RWBY characters. May giggled at the coincidence.
 
-Then her eyes drawn on the photo. There was her papa and mama together, together with baby May. This was before papa passed away. May noticed a sniff.
+Then her eyes drawn on the photo. There was her papa and mama together, together with baby May. This was before papa passed away. May noticed a tiny tear flowing down her face.
 
 Blah! She must get lemonade.
 
