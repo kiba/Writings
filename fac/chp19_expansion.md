@@ -2,17 +2,21 @@
 
 **Year 2, 305**
 
-The wedding was over five days ago. Everything went smoothly as it should. No White Fang attack, no riot, no stampede, and even with the larger Grimm presence, my military handled everything.
+We finished the wedding five days ago. Everything went smoothly as it should. No White Fang attack, no riot, no stampede, and even with the larger Grimm presence, the military has had no problem.
 
-My spy network was able to gather a lot of intel from inside the ballroom. Everybody probably knows that they were being spied on, but we were able to hear a lot of candid details, including some crude remarks about my wife and me.
+My spy network was able to gather a lot of intel from inside the ballroom. Everybody probably knows that they were being spied on, but we still collected lot of candid details, including some crude remarks.
 
 Ironwood didn't think much of me. He actually thought I am dangerous.
 
-Hey! I have absolutely no intention of waging war against anybody. What about the time I helped prevent the kingdom of Vale? Isn't that supposed to mean something to you?
+Hey! I have absolutely no intention of waging war against anybody. What about the time I helped prevent the kingdom of Vale from falling? Isn't that supposed to mean something to you?
 
 **Year 2, 314**
 
-We're prepping for a breakout after a long period of expanding our industrial capacity and getting the logistics ready. I want to expand both west and east to connect up with Vacuo and Vale.
+We're prepping for a breakout after a long period of expanding our industrial capacity and setting up the logistics. It will be glorious.
+
+Not only it includes machines and its logistics component such as logistic drones, but also construction components. We're going to be rapidly establishing defenses and forts.
+
+ The goal is to expand both west and east to connect up with Vacuo and Vale.
 
 **Year 2, 315**
 
@@ -20,9 +24,9 @@ The army's on the move.
 
 **Year 2, 330**
 
-We finally finished laying down a foundation which went all the way through the underground, and to the bedrock, we started building a skyscraper. It shall be the tallest building in all of Remnant and will support all our residential needs for years to come. Not that it will stay that way long. Many of the residential apartment will quickly turn into businesses, which will in turn pays land value taxes.
+We finally finished laying down a foundation which went all the way through the underground and to the bedrock. Now we're building a skyscraper. It shall be the tallest building in all of Remnant and will support all our residential needs for years to come. Not that it will stay that way long. Many of the residential apartment will quickly turn into businesses, which will in turn start paying land-value tax.
 
-Construction should be done in about sixty days, and it will tower a kilometer into the air. There will be ports for airships and freight elevators to bring the goodies down. Thanks to dimensional storage, the freight capacity is larger than expected, even though it isn't the primary channel for export and import.
+Construction should be done in about sixty days, and it will tower a kilometer into the air. There will be ports for airships and freight elevators to bring the goodies down. Thanks to dimensional storage, the freight capacity is larger than expected, even though it isn't the primary channel for trade.
 
 **Year 2, 332**
 
@@ -50,7 +54,7 @@ The empress and I argued with the spymaster in taking children. Ultimately, we r
 
 **Year 3, Day 4**
 
-We met in a small town in a safehouse.
+We met in a safehouse located in a small town.
 
 Jiraiya wasn't happy that he won't be taken to our land, even though it's not in the elemental nation.
 
@@ -62,21 +66,17 @@ After mutual threatening, it became more cordial. We revealed a bit about oursel
 
 Eventually he suggested sending a representative of his to our kingdom. We said no.
 
-After that, we were done. The spymaster elected to leave Jiraiya with some pictures that Jiraiya would appreciate. A bunch of things happened while the remote were aways.
+After that, we were done. The spymaster elected to leave Jiraiya with some pictures that Jiraiya would appreciate.
 
 A ninja try to track the spymaster and her genin down, but they were able to get away.
 
-When they came back, the commander had a brief talk with her, in which spymaster gushed all about Jiraiya the Galliant, but made it clear that her team was far more important than Jiraiya will ever be. The commander declined to tell us some of the details, saying that it was unimportant.
-
-Given what we know about Jiraiya's reputation as a pervert and his relationship to the spymaster, we don't want to know either.
-
 **Year 3, Day 7**
 
-Ah. The stasis pod. We didn't have to reverse engineer the technology, since we have the CAD files, the manuals, and several thousand pages of documentation. It still took a while for us to perfect the manufacturing chain.
+Ah. The stasis pod. We didn't have to reverse engineer the technology, since we have the CAD files, the manuals, and several thousand pages of documentation. It still took a while for us to perfect the manufacturing chain, since we have to develop several new machines which were not in the blueprint.
 
 Now we're finally selling stasis pod technologies to the public.
 
-We fulfilled the orders for hospital first, then for everyone else. The specs sheet are out there so people can determine if they're willing to spend energy to keep objects from experience thermodynamic processes. I might have said it before, but I must make it clear that the stasis pod technology cannot stop entropy. At best, it only slows down, as the tech required energy to operate.
+We fulfilled the orders for hospital first, then for everyone else. The specs sheet are out there so people can determine if they're willing to spend energy to keep objects from experiencing thermodynamic processes. I might have said it before, but I must make it clear that the stasis pod technology cannot stop entropy. At best, it only slows entropy down, as the tech required energy to operate.
 
 One percent of revenue collected will be diverted to the SWF.
 
@@ -110,8 +110,6 @@ To do that, I need to increase immigration from those places and foster stronger
 
 Adam Taurus made his appearance in video, claiming responsibility for the attack. Then he has the gall to call my wife lot of nasty and unpleasant names, which I won't reproduce here.
 
-FUCK YOU!
-
 He told the Faunus to turn away from the kingdom, saying that it's all a trap and so on. Blah blah blah, typical propaganda.
 
 **Year 3, Day 48**
@@ -120,12 +118,12 @@ You know what? I felt absolutely powerless. Even if we were to start tomorrow hu
 
 **Year 3, Day 49**
 
-My wife made a response.
+My wife made a response to the terrorist attack on Mechatron soil.
 
 She told her story about the Human Liberation Front and how the ancestors of humanity perished, comparing it to the Faunus terrorist group, then she pledged support for the Faunus community here, vowing to help Faunus right groups fight injustice worldwide.
 
-It was a very good response. We didn't change how we did security, didn't ask law enforcement to start suspecting Faunus more, or change our law to allow indefinite detention and so on. But I did task my spymaster to start infiltrating potential white fang groups. I believe the key to victory is to destroy their brotherhood.
+It was a very good response. We didn't change how we did security, didn't ask law enforcement to start suspecting Faunus more, or change our law to allow indefinite detention and a litany of counter-productive measures that some citizens want to implement. But I did task my spymaster to start infiltrating potential white fang groups. I believe the key to victory is to destroy their brotherhood.
 
 **Year 3, Day 51**
 
-Fuck. Large Scale Grimm attack imminent on the western front.
+Fuck. Large scale Grimm attack imminent on the western front.
