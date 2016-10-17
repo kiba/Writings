@@ -4,11 +4,11 @@ Plants literally grew on the Nox's head, who are more or less really advanced hu
 
 I decided that a super powerful race is worth the trouble since we might be able to no-sell or eliminate the Grimm if they can figure out what they are. A bunch of soulless monsters that prey on humans can't possibly be good, right?
 
-Despite their declared intention of studying the Grimm, we seemed to got sidetracked into a tour of a farm. My wife is also nowhere to be found, saying that she's on an important meeting. Damn it! Where are you?! Why did you desert me?
+Despite their declared intention of studying the Grimm, we got sidetracked into a tour of a farm. My wife was also nowhere to be found, saying that she's in an important meeting. Damn it! Where are you?! Why did you desert me?
 
 Back to the factory tour, the Nox in their normal human disguise listened to a tour guide. The company who brought this property built an entire marine environment underground to grow seedweed and marine animals. Right beside us was a thin transparent wall which was keeping us dry and safe from the pool of water.
 
-It wasn't certainly my doing. The state was in the business of providing bland rations, security, and basic infrastructure, not cultivating tasty fishes.
+It wasn't certainly my doing. The state was in the business of providing bland rations, security, and basic infrastructure, not cultivating tasty marine animals for consumption.
 
 "It is impressive that such a young people such as your were able to build an entire system for growing food deep underground," Lya, the leader of the Nox delegates, said. I believe she is the Nox woman who appeared on Stargate-SG1, though my memory about the series was rather rusty. "Even if that is growing animals for food consumption."
 
@@ -18,7 +18,7 @@ It wasn't certainly my doing. The state was in the business of providing bland r
 
 "I don't think that will be easy to achieve, Elder Lya."
 
-The Nox nodded. "It is not...necessary. Though we do note that animals would be uninvolved in the production of cultured meat. It is a good ethical choice, a path we did not take. We have stopped eating any meat when we separated from the Alterans eons ago. We did not develop any technologies regarding the industrial production of cultured meat."
+The Nox nodded. "It is not...necessary. Though we do note that animals would be uninvolved in the production of cultured meat. It is a good ethical choice, a path we did not take. We have stopped eating any meat when we separated from the Alterans eons ago. As such, we did not develop any technologies regarding the industrial production of cultured meat."
 
 That's a new one for me. There's so much that we don't know about Nox society and civilization. There's only so much you can glean from MSC sociologists when they spent most of their time with the Nox mediating and discussing extremely abstract philosophical thoughts.
 
@@ -38,7 +38,7 @@ Let's get the show on the road.
 
 ***
 
-Lya seemed completely unconcerned about capturing a Grimm, as she didn't bother asking questions about security. Several Nox and her rode with us into the wilderness via a bullhead, while we were surrounded by several dozen commandos as protection details.
+Lya seemed completely unconcerned about capturing a Grimm, as she didn't bother asking questions about security. Several Nox and her rode with us into the wilderness on a bullhead, while we were surrounded by several dozen commandos as protection details.
 
 We dropped down in the middle of a forest, while the bullhead and my power armor started gorging war machines by the boatload. Dimensional storage is bullshit.
 
@@ -56,17 +56,17 @@ Once a Ursa was found, the Nox simply waved their hands, freezing a Ursa in exis
 
 "It is similar to your stasis pod and your dimensional storage," she said.
 
-That's it? It was the least dramatic capture of a Grimm ever, and I am not complaining about that.
+That's it? It was the least dramatic capture of a Grimm ever, and I am not complaining about that. After that, we took in a several dozen of specimen with no problem as well.
 
 It actually took me longer to pick all of my robots than it is for the rest of the trips, because my robot army was so spread out to ensure 'protection' even though it was completely unnecessary in this situation.
 
-When we went home, my men have a quiet laugh about the whole thing.
+When we went home, my men had a quiet laugh about the whole thing.
 
 ***
 
 "So what did you found out?" My wife questioned, as she laid against me on a couch. There was no TV program on, or anything from the CCTS. It was just us cuddling against each other in our living room.
 
-I shrugged. "We don't know much yet, but Lya said the Nox can feel strong negative emotions coming from the Grimm. Contrary to beliefs, they are not soulless monsters."
+I shrugged. "We don't know much yet, but Lya said the Nox can feel strong negative emotions coming from the Grimm. Contrary to what we thought, they are not soulless monsters. However, the Nox said that they don't know how long the research will take."
 
 "What are they then?"
 
