@@ -1,6 +1,6 @@
 # Chapter Eighteen: The Ball
 
-There's an extreme uniformity and bare utilitarianism present through Mechatron engineering, suggesting that Mechatron as a kingdom lacking creativity, at least when it comes to government buildings. The first embassies in Mechatron were a series of warehouse, and all the furniture in that embassy were evident copies of one another. "Any color so long as it's black or grey" was joked as its unofficial motto.
+There's an extreme uniformity and bare utilitarianism present through Mechatron engineering, suggesting that Mechatron paid no attention to aesthetics when creating their designs, at least when it comes to government buildings and infrastructure. The first embassies in Mechatron were a series of warehouse, and all the furniture in that embassy were evident copies of one another. "Any color so long as it's black or grey" was joked as its unofficial motto.
 
 Any misunderstanding of the kingdom as against the ideology of freedom and art was quickly rectified by its citizenry, through decoration and other means, such as large scale murals, graffiti, and mosaics.
 
@@ -8,7 +8,7 @@ Any misunderstanding of the kingdom as against the ideology of freedom and art w
 
 "I see that they pulled out all the stop when it comes to a wedding," Ironwood said. "No exposed pipes or bare  walls."
 
-If Ironwood didn't know better, he would have thought that this place was extremely opulent. It was one gigantic room, with a couple of "floors" against the walls, and stairs that let one walk up and down the floors. Murals were painted on the room's walls, depicting scenery from before the fall, with the celling depicting the cosmos, and the floor with mosaics of Remnant myths and historical scenes. The labor that designed all of this was probably the single largest cost, rather than putting it altogether. Before the kingdom's arrival the material chosen would be considered 'rare', with diamonds, gems, and precious metals. Those meant nothing to Mechatron, a kingdom that's very good at mining.
+If Ironwood didn't know better, he would have thought that this place was extremely opulent. It was one gigantic room, with a couple of "floors" against the walls, and stairs that let one walk up and down the floors. Murals were painted on the room's walls, depicting scenery from before the fall, with the celling depicting the cosmos, and finally with the floor decorated with mosaics of Remnant myths and historical scenes. It probably costs Mechatron more to pay the designers of the Ballroom than it does to put the ballroom together. Before the kingdom's arrival the materials chosen would be considered 'rare', with diamonds, gems, and precious metals. After the arrival, it was precisely those goods that dropped rapidly in price, due to Mechatron's industrial might.
 
 "Oh! So you did show up!" a familiar voice beckoned for his attention. "General James Ironwood and Professor Glynda Goodwitch, I am pleased to see you." The voice came from a young woman in her late twenties, with green hair and brown eyes. They both recognized her as the Queen of the Kingdom of Mantle, which was annexed to Atlas following the Great War.
 
@@ -52,7 +52,7 @@ Ironwood's face contorted with unease. "It is precisely the destructive capabili
 
 "That's not the point, but they could just as easily develop a bomb to drop on any of the kigndom, and they could do it tomorrow as soon as a new rocket is developed."
 
-"There's no evidence that they would meant any us harm," the queen of Mantle said. "And their level of cooperation with the kingdoms gave us insight into their magnificent industrial capability. Or do you suggest that we should plifer the kingdom for all their secrets without giving anything back?"
+"There's no evidence that they would meant any us harm," the queen of Mantle said. "And their level of cooperation with the kingdoms gave us insight into their magnificent industrial capability. Or do you suggest that we should pilfer the kingdom for all their secrets without giving anything back?"
 
 "Are you in league with Mechatron? I thought you were our queen."
 
@@ -66,10 +66,10 @@ The applause came through, melting the tension around the table. The dance has f
 
 "What do you have against Mechatron?" the queen questioned.
 
-"I don't have anything against the colonists of this kingdom," Ironwood declared. "They are our blood, and we should support their effort in this frontier. They should have this land as far as they could push back against the Grimm. But...that man the empress is marrying is volatile. He gets angry when we do things that he doesn't like, or if he doesn't get his way. His wife is the only person who could calm him down and reach a compromise with us. If she die today, he might be against us, and we would be at his mercy."
+"I don't have anything against the colonists of this kingdom," Ironwood declared. "They are our blood, and we should support their effort in this frontier. They should have this land as far as they could push back against the Grimm. But...that man that the empress married is volatile. He gets angry when we do things that he doesn't like, or if he doesn't get his way. His wife is the only person who could calm him down and reach a compromise with us. If she die today, he might be against us, and we would be at his mercy."
 
 "I don't know. I liked him for his uncompromising no-nonsense push to make everything better. I think I want to marry him."
 
-"It seemed that his wife has more political sense than the emperor," Goodwitch opined. "And with the prime minister in charge, both his wife and himself's political influence are vastly reduced"
+"It seemed that his wife has more political sense than the emperor," Goodwitch opined. "And with the prime minister in charge, both his wife and himself's political influence are vastly reduced."
 
 "That can only be a good thing," Ironwood concurred. "The more that man stay away from the politic, the better it is for the world."
