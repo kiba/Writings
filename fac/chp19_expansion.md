@@ -2,9 +2,9 @@
 
 **Year 2, 305**
 
-We finished the wedding five days ago. Everything went smoothly as it should. No White Fang attack, no riot, no stampede, and even with the larger Grimm presence, the military has had no problem.
+We finished the wedding five days ago. Everything went smoothly as it should. No White Fang attack, no riot, no stampede, and even with the larger Grimm presence, the military had has no problem.
 
-My spy network was able to gather a lot of intel from inside the ballroom. Everybody probably knows that they were being spied on, but we still collected lot of candid details, including some crude remarks.
+My spy network was able to gather a lot of intel from inside the ballroom. Everybody probably knows that they were being spied on, but we still collected lot of candid details, including some crude remarks about my wife and me.
 
 Ironwood didn't think much of me. He actually thought I am dangerous.
 
