@@ -1,6 +1,6 @@
 # Chapter Twenty: Survival
 
-Sergeant Jaune Arc once tried to cheat his way into Beacon Academy so that he can become a huntsman, but he never thought much about what it would actually entrails. He wanted to save people, to be someone who matters. Of course, the sergeant knew better what to expect now. A huntsman frequently ended up missing, never coming back to his or her loved ones.
+Sergeant Jaune Arc once tried to cheat his way into Beacon Academy so that he can become a huntsman, but at the time, he never thought about what it would actually entails. He wanted to save people, to be someone who matters. Of course, the sergeant knew better what to expect now. A huntsman frequently ended up missing, never coming back to his or her loved ones, and most never reach old age.
 
 Instead of dying at the initiation ritual, Arc lived two more years into the future, became a real soldier, and got promoted up through the rank as the military expanded. He now patrolled with his squad and a couple of huntsmen-in-training from Beacon Academy. He was grateful for the force addition. They might take all the glory, but they reduce the risk of everyone dying as well.
 
@@ -14,7 +14,7 @@ Today was a simple search and destroy mission deep inside an old growth forest, 
 
 The sergeant sighed. Didn't they go to secondary combat school before attending universities? They might be students but they should have a depth of experience that tells them to be less reckless. Then again, charging into the face of soulless monsters is pretty reckless.
 
-The soldiers of mechatron are certainly different from the huntsmen in many ways. They are taught never to engage their opponents in melee until they are very close. Their attitude is of cautiousness rather than bravo.
+The soldiers of Mechatron are certainly different from the huntsmen in many ways. They are taught never to engage their opponents in melee until they are very close. Their attitude is of cautiousness rather than bravo, and they always used the canon fodders(robots) before engaging the enemy themselves.
 
 Arc sighed in resignation. "At least they're doing all the work."
 
@@ -54,7 +54,7 @@ The armored men drop masses of protective slabs to the ground, sacrificing prote
 
 They jaunted east, with robots providing covering fire against the West, but it became quickly clear that the protective coon of armor was fast shredding away.
 
-The monsters were relentless, simply bulldozing their way through hailstorm of bullets by sheer number.
+The monsters were relentless, simply bulldozing their way through hailstorm of bullets with sheer number.
 
 As for Arc's squad, they sliced through stray Grimm, while picking up more robots to delay the enemy.
 
@@ -76,7 +76,7 @@ The thump sounds coming from artillery fire, oddly enough, was a comforting soun
 
 Thump, thump, thump, all in continuous, rapid succession.
 
-In the distance, there were booms, catering the landscrape and exploding Grimm by the dozen.
+In the distance, there were booms, catering the landscape and exploding Grimm by the dozen.
 
 As long as that hold, this bastion should be safe.
 
@@ -96,7 +96,7 @@ The enemy's number wasn't decreasing.
 
 "What happens after that?" Jarl inquired.
 
-"Then they'll get to our wall. The turrets keep firing until they either run out or is destroyed. The turrets are mostly gatling guns, so their firepower is really great, but they'll run through ammo really fast. If the grimms are smart, they'll target the train routes rather than the bastions. So we'll have to retreat to the last bastion before that happens."
+"Then they'll get to our wall. The turrets keep firing until they either run out or is destroyed. The turrets are mostly gatling guns, so their firepower is really great, but they'll run through ammo really fast. If the grimm are smart, they'll target the train routes rather than the bastions. So we'll have to retreat to the last bastion before that happens."
 
 "All personnels are to disembark for the train," the PA system announced. "This is not a drill. All personnels..."
 
