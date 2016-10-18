@@ -112,6 +112,9 @@ function Doc( body, meta, vars )
   return table.concat(buf, '\n')
 end
 
+function Todo()
+end
+
 function Str(s)
   return s
 end
