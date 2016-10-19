@@ -16,7 +16,7 @@ This list is not a comprehensive overview of Mechatron machines, units, technolo
 
 * **Battle drone** - As its name implied, quadropters equipped with weapons, usually small arms.
 
-* **Sprit-class Airship** - The first design for a long range airship to provide expeditionary capability. It is considered a corvette with staffing up to fifty crewmembers.
+* **Spirit-class Airship** - The first design for a long range airship to provide expeditionary capability. It is considered a corvette with staffing up to fifty crewmembers.
 
 ## **Category: Construction and Logistics**
 
@@ -27,6 +27,7 @@ This list is not a comprehensive overview of Mechatron machines, units, technolo
 * **Construction drone** - A catch-all term for the various type of drones used for construction. The simplest drone is essentially a logistic drone, used to deliver construction materials. More complicated drones can have multitools used for repairs or delicate custom works.
 
 * **Tunnel Boring Machine** - Used to bore tunnels deep underground. Sometime has turrets attached to it as self-defense mechanism.
+
 ## **Category: Buildings and Infrastructure**
 
 * **Dust turbine power plant** - Burn dusts to generte energy. It is used when solar panels don't provide enough energy or for compact bases, or provide emergency power.
