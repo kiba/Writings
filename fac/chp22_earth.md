@@ -1,14 +1,14 @@
 # Chapter Twenty-two: Earth
 
-May Rose just punched the neighborhood bully right in the stomach.
+May Rose punched the neighborhood bully right in the stomach.
 
-The bully immediately dropped into the ground, writhing in pain, and crying out for his mama, while a classmate of her hid behind her back. It was just right outside school too.
+The bully immediately collapsed. "Mommy!" he bawled. A classmate of her hid behind her back. Children immediately formed a circle around the scene.
 
 It was just a punch, right? Henry deserve it, right? He did tried to extort John out of his lunch money. People shouldn't bully other people for lunch money.
 
 "WHAT THE HELL IS GOING ON?!" an adult bellowed.
 
-Rose turned her head to the source. The moment she did that, she knew that she was in big trouble.
+Rose turned her head to the source. She knew that she was in big trouble.
 
 ***
 
@@ -24,7 +24,7 @@ Finally Mama came out, looking very tired. May knew who she looked like anywhere
 
 May inherited that look as well. When her teachers said that she shouldn't be dyeing her hairs, mama has to get a several letters from doctors to prove that it was all natural.
 
-"You dodged that bullet, kiddo," her mama said.
+Mama bent to the height of her child. "You dodged that bullet, kiddo," her mama said.
 
 "I am not going to get suspended?" May asked, worried.
 
@@ -60,13 +60,13 @@ Finally, the car stopped, parking right outside a private eyes' office.
 
 "I'll be right back," mama said, before scrolling down the window, lest her daughter gets heatstroke.
 
-Mama end up here at least once a month, because May's mama wasn't like any mom. She only remembered thirteen years of her life, but mommy was a lot older than that. She went to this place in the hope of getting back what she lost.
+Mama end up here at least once a month, because May's mama wasn't like any mom. Her mommy only remembered thirteen years of her life, but mommy was a lot older than that. She went to this place in the hope of getting back what she lost.
 
 May didn't really understood the concept for a long time.
 
 Mama had to explain to her through bedtime stories about people who lost memories.
 
-Finally, mama came back. She looked a bit sad. May didn't want her to go because it made mama sad, but mama will always go regardless of what May wants.
+Finally, mama came back. She looked a bit sad. May didn't want her to go because it made mama sad, but mama will always go regardless of what May wanted.
 
 The door opened. "Kiddo, ready for lunch?" she said.
 
@@ -78,7 +78,7 @@ An adult drawn May's attention while they were walking to May's favorite restaur
 
 She didn't know why, but she felt compelled. There was nothing about the man that made him stand out. He was a boring person in a boring place with boring person, except for mama and May of course.
 
-Then he started saying words in a language to mama that May didn't recognize the slightest.
+Then he started saying words in a language to mama that May didn't know.
 
 "I am sorry, what?" mama said.
 
