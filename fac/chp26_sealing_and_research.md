@@ -2,7 +2,7 @@
 
 **Year 3, Day 323**
 
-Sealing is bullshit. All you need is paper and a chakra user and you could do things that's out of reach for technology alone.
+Sealing is bullshit. All you need is paper and a chakra user and you could do things that's out of reach for technology alone. On the other hand, sealing required a lot of research, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
 
 One of spymaster's student, Satoshi is really blossoming in his study. Studying physics and getting lot of ideas really do him wonder, or so they said.
 
@@ -18,9 +18,11 @@ Printing seals doesn't require much infrastructure, but we have no way to test f
 
 Satoshi finished his work on checking seal correctness, using another seals, Admittedly, it has to be calibrated for each new type of seal.
 
+Not that we need one, but it's nice that our seal printing factory got a little bit safer.
+
 **Year 3, Day 330**
 
-The kids petitioned to go back to the Elemental Nations for a six month period, during which they resume working with their merchant network, and improving people's live through dangerous ninja missions.
+The kids petitioned to go back to the Elemental Nations for a six month period, during which they resume working with their merchant network, and improving people's live through dangerous ninja missions. It will allow us to silently uplift the Elemental Nation.
 
 They are all of age to start fighting again. Rin flatly said no, saying that children shouldn't have to fight. I thought about leaning toward 'yes'.
 
@@ -34,7 +36,7 @@ A White Fang terrorist tried to bomb the local market. Bad idea. We caught his a
 
 A series of bombing attacks by the White Fang are launched against Mechatron affiliated organizations across Remnant.
 
-We suffered fifteen people dead and hundred wounded. I am not pleased, but I also recognized that it's generating sympathy for Mechatron. Terrorists aren't exactly the brightest people in the world.
+Remnant suffered fifteen people dead and hundred wounded. I am not pleased, but I also recognized that it's generating sympathy for Mechatron, and causing Faunus everywhere to be less supportive of the White Fang. Terrorists aren't exactly the brightest people in the world.
 
 **Year 3, Day 338**
 
@@ -48,7 +50,7 @@ We got news that Summer Rose came forward. It should be interesting.
 
 **Year 3, Day 340**
 
-My wife finally succumbed to the kids. The teenagers are going starting next year, but they're going with an experienced huntsman.
+My wife finally succumbed to the kids. The teenagers are going starting next year, but they're going with an experienced huntsman. It will be six months long before they'll return.
 
 **Year 3, Day 344**
 
@@ -142,12 +144,12 @@ Does that remind me of something?
 
 **Year 4, Day 31**
 
-A news team from the United States arrived in Atlas. They wanted to interview and learn about the local culture.
+A news team from the United States arrived in Atlas, and they wanted to know more about the world of Remnant.
 
 **Year 4, Day 37**
 
-We sent a team  disguised traders to a mountainhome thirty kilometers from here.
+We sent a team disguised as traders to a mountainhome thirty kilometers from here.
 
 **Year 4, Day 44**
 
-Another team of Earthlings arrived in our capital. They wanted an interview. I am going to give them an interview!
+Another team of Earthlings arrived in our capital. They wanted an interview with me. They're going to get one.
