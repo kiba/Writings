@@ -2,15 +2,17 @@
 
 **Year 3, Day 323**
 
-Sealing is bullshit. All you need is paper and a chakra user and you could do things that's out of reach for technology alone. On the other hand, sealing required a lot of research, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
+Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for technology alone. On the other hand, sealing required a lot of research, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
 
 One of spymaster's student, Satoshi is really blossoming in his study. Studying physics and getting lot of ideas really do him wonder, or so they said.
 
 Satoshi recently developed a CCTV equivalent of a seal, the first of its kind as far as Satoshi knew anywhere in the universe.
 
+It's too bad that we can't make use of seals since we don't have a chakra system, but it's something to think about as we deepen our study of chakra biology. Someday, everyone will have bullshit ninja magic.
+
 **Year 3, Day 325**
 
-Every kingdom on Remnant is finally on board with the MSC, all sending special operations or huntsmen. As a result, the Mechatron Stargate Command is now renamed to Remnant Stargate Command.
+Every kingdom on Remnant is finally on board with the MSC, all sending special operators or huntsmen. As a result, the Mechatron Stargate Command is now renamed to Remnant Stargate Command.
 
 **Year 3, Day 326**
 
@@ -22,7 +24,7 @@ Not that we need one, but it's nice that our seal printing factory got a little 
 
 **Year 3, Day 330**
 
-The kids petitioned to go back to the Elemental Nations for a six month period, during which they resume working with their merchant network, and improving people's live through dangerous ninja missions. It will allow us to silently uplift the Elemental Nation.
+The kids petitioned to go back to the Elemental Nations for a six month period, during which they resume working with their merchant network, and improving people's live through dangerous ninja missions. It will allow us to silently uplift the Elemental Nation more easily.
 
 They are all of age to start fighting again. Rin flatly said no, saying that children shouldn't have to fight. I thought about leaning toward 'yes'.
 
@@ -30,7 +32,7 @@ I need them to be loyal to me. If they aren't able to go back home and start imp
 
 **Year 3, Day 333**
 
-A White Fang terrorist tried to bomb the local market. Bad idea. We caught his ass. Now he's going to get the finest lawyer while we throw the book at him.
+A White Fang terrorist tried to bomb the local market. Bad idea. We caught his ass. Now he's going to get the finest defense lawyers while we throw the book at him.
 
 **Year 3, Day 336**
 
@@ -120,15 +122,15 @@ We're starting to merge software development of our operating system with the li
 
 YES! The RSC discovered a new lush world!
 
-There are medieval style villages and towns from our ballon.
+We spotted medieval style villages and towns from our ballon that we launched.
 
 We are not sure how dangerous the world will be, yet.
 
-But if it's considered safe, it may be a new colonization site for the whole of Remnant. Wouldn't that be something? This is a place that Salem won't be able to touch.
+But if it's considered safe, it may be a new colonization site for the whole of Remnant. Wouldn't that be something? This is a place that Salem won't be able to touch, until we clean her clock out.
 
 **Year 4, Day 26**
 
-OK, the local humans on the new planet are filthy and they smell. At least they have a sewer system, even if that is necessarily polluting the water downstream.
+OK, the explorers reported that the local humans on the new planet are filthy and they smell. At least they have a sewer system, even if that is necessarily polluting the water downstream.
 
 **Year 4, Day 28**
 
