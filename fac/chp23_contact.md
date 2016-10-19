@@ -2,7 +2,7 @@
 
 **Year 3, Day 277**
 
-The Atlasian ambassador stomped into our office extremely pissed off.
+An extremely pissed Atlasian ambassador stomped into our office demanding an explanation.
 
 We had to listen to him bitch at us and the queen of Mantle for thirty minutes straight.
 
@@ -16,11 +16,9 @@ We didn't hear anything from the queen even with our assets, but we assumed that
 
 **Year 3, Day 281**
 
-General Ironwood arrived.
+General Ironwood and I had a long talk about what we should do with the spectral project and the Earth portal.
 
-We have a long talk about what we should do with the spectral project and the Earth portal.
-
-I replied that I already have a command dedicated to exploration, and already prepped one of my operator extensively for Earth. He wondered why I already have explorers.
+I told him that I already have a command dedicated to exploration, and already prepped one of my operator extensively for Earth. He wondered why I already have explorers.
 
 I revealed a big secret to him: the stargate program.
 
@@ -40,7 +38,7 @@ He first found a probable Remnan, which he knew from his own aura sense, but als
 
 Running the software through recognition...and guess what we found? Summer Rose. She was presumed dead thirteen years ago when she failed to return. It is by no mean assured, but this woman is very likely Summer Rose.
 
-Moving on, the agent caused a shitstorm of media attention by being a good samaritan in rescuing people from the cars pileup on a freeway. The FBI converged on the scene to interview our agent, the national guard dispatched, and the president made a big speech about it.
+Moving on, the agent caught massive media attention by being a good samaritan in rescuing people from the cars pileup on a freeway. The FBI converged on the scene to interview our agent. Then the national guard were dispatched, and the president made a big speech about making first contact once they found the shiny portal.
 
 By no means that they will discover our world is Remnant, just yet.
 
@@ -56,13 +54,13 @@ The Earthlings are intimidated by the obviously better equipped and technologica
 
 They finally discovered what fictional universe we're form. God, this is so entertaining to watch.
 
-On the hand, I discovered that a certain billionaire is campaigning for president. The horror.
+On the hand, I discovered that a certain billionaire is campaigning for president. I remembered him sourly.
 
 **Year 3, Day 290**
 
-Back to business, the Americans formed a formidable fortress around the remote gate.
+Back to business, the Americans formed a formidable fortress around the remote gate, not as great as our of course. They lacked the logistics to supporting gattling turrets.
 
-They're very cautious about letting any Grimm seep through.
+They're very cautious about letting any Grimm slipping through.
 
 **Year 3, Day 291**
 
@@ -102,7 +100,7 @@ The Queen of Mantle finally got a small concession from Atlas. She will be able 
 
 **Year 3, Day 302**
 
-Ozpin got heckled and hounded by the media. Everyone knows about the maiden now. Everyone also want to know what other secrets Ozpin and his group are hiding. I am not sure what we do now since Salem is now known to everyone as a real legend.
+Ozpin got heckled and hounded by the media. Everyone knows about the maidens now and they also want to know what other secrets Ozpin and his group are hiding. I am not sure what we do now since Salem is now known to everyone as a real legend.
 
 **Year 3, Day 305**
 
