@@ -23,13 +23,13 @@ I am still improving plan Omega should that becomes necessary.
 
 **Year 3, Day 178**
 
-I attended a peace summit and made it clear to everyone that I would start developing strategic weapons, particular nuclear weapons.
+I attended a peace summit and made it clear to everyone that I would start developing strategic weapons. In particular, that would be nuclear weapons.
 
 The kingdoms pleaded to me that I shouldn't do that, and that I should remember what happened to the Moon.
 
 It is moot. If I were able to nuke the Grimm, I wouldn't hemorrhage so many people to migration and almost lost my aboveground kingdom.
 
-For better or worse, they walked away with no demand to restrict rods of god, nuclear bombs, or any other strategic weapons.
+For better or worse, they walked away with no demand to restrict rods of god, nuclear bombs, or any other weapons of massive destructive power.
 
 But boy did it cause a shitstorm and controversy throughout Remnant.
 
@@ -41,19 +41,19 @@ The faunus for the most part decided to stick with my kingdom rather than fleein
 
 **Year 3, Day 185**
 
-General Ironwood approached me to purchase war machines, and in particular bullets, as well all the blueprints necessary to produce them. They will pay royalties if they should decide to produce those machines and bullets in their own factories.
+General Ironwood approached me to purchase war machines, and in particular bullets, as well all the blueprints to create the machines that manufacture them. They will pay royalties if they should decide to produce those machines and bullets in their own factories.
 
 It's actually much cheaper and more efficient to buy from me rather than start up their own factories.
 
 The general commented on how my war machines made their mech obsolete overnight and that they were trying to catch up, but he was under no illusion over who has the greatest manufacturing capacity.
 
-It is a five year contract in which I will supply the Atlasian military with the latest and greatest military hardware and the manual and the blueprints and training. It's some serious lien that will go to support my SWF.
+It is a five year contract in which I will supply the Atlasian military with the latest and greatest military hardware, with the manual, blueprints along with training services. It's some serious lien that will go to support my SWF.
 
 **Year 3, 199**
 
-Other kingdoms are approaching me to buy military hardware. They are very afraid of what might happen to them.
+Other kingdoms are approaching me to buy military hardware as well. They are very afraid of what might happen to them.
 
-The Grimm literally did fought Mechatron to a standstill, the micro kingdom that is the premiere military power on Remnant. If the Grimm did try to attack any other kingdoms, a lot more people will die.
+The Grimm literally did fought Mechatron to a standstill, the micro kingdom that is the premiere military power on Remnant. If the Grimm did try to attack any other kingdoms, a lot more people will die, and maybe the kingdom would disappear altogether.
 
 I wonder why Salem chose my kingdom rather than the others? Maybe she thought that I was going to become very difficult to destroy as time go on.
 
@@ -65,9 +65,9 @@ We finally got the first dust rocket engine design tested at the SETO test cente
 
 Summit of Strategic Weapons happened.
 
-* Strategic weapons are banned from warfare against any kingdoms.
+* Strategic weapons are banned from use against any kingdoms, including any population centers such as towns or cities.
 
-* All kingdoms shall be informed of strategic weapon researchs taken by other kingdoms.
+* All kingdoms shall be informed of strategic weapon research taken by other kingdoms.
 
 * The use of strategic weapons shall only be authorized against existential threats and enemies of mankind.
 
@@ -75,7 +75,7 @@ By the way, I twisted the wording broadly enough to allow the use of strategic w
 
 We didn't get anything down regarding enforcement of the Strategic Weapon Treaty. It's all based on a gentleman's agreement for now.
 
-Some of the kingdoms wanted to use independent huntsmen for enforcement. I basically said, "fuck no", not without further vetting.
+Some of the kingdoms wanted to use independent huntsmen for enforcement. I basically said, "fuck no", not without further vetting. The last thing I want is a Salem plot waiting to happen.
 
 **Year 3, 230**
 
