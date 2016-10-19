@@ -4,7 +4,7 @@
 
 An extremely pissed Atlasian ambassador stomped into our office demanding an explanation.
 
-We had to listen to him bitch at us and the queen of Mantle for thirty minutes straight.
+We had to listen to him bitch at us about the Queen of Mantle for thirty minutes straight.
 
 I was about to punch him in the face, but my lovely wife stayed my hand.
 
@@ -58,9 +58,9 @@ On the hand, I discovered that a certain billionaire is campaigning for presiden
 
 **Year 3, Day 290**
 
-Back to business, the Americans formed a formidable fortress around the remote gate, not as great as our of course. They lacked the logistics to supporting gattling turrets.
+Back to business, the Americans formed a formidable fortress around the remote gate, not as great as Atlas of course. They lacked the logistics to support gatling turrets.
 
-They're very cautious about letting any Grimm slipping through.
+They're very cautious about letting any Grimm slipping through at least, or a potential invasion from Atlas.
 
 **Year 3, Day 291**
 
@@ -122,7 +122,7 @@ Frank's rocket made its maiden flight. The whole of Remnant watched. And it some
 
 God damn. This is just...impressive work. One hundred metric ton to Low Earth Orbit, and we're working on a fully reusable variant.
 
-Anyway, we got a really big satellite in low earth orbit with high power radio transmission.
+We got a really big satellite in low earth orbit with high power radio transmission.
 
 The production rate is only one per week due to quality control and the learning curve. We need time before we can ramp it up to a rocket a day, but only if we stop iterating.
 
@@ -134,8 +134,6 @@ We'll see if the other two will have to go the way of the dodo bird. As it is, t
 
 A few Nox came, disguised as regular humans, with no nature stuff growing on their head.
 
-It's a good thing that I practiced a lot of mediation and philosophy. Rin, on the other hand, just didn't want to do it all.
-
-You see, they like to grill my MSC exploration teams on matter of wisdoms, and then forced them to mediate for seven hours. It's maddening!
+It's a good thing that I practiced a lot of mediation and philosophy, because that's what the Nox expect when MSC teams made their visit. Rin, on the other hand, just didn't want to do it all.
 
 We'll see what the Nox will have to say about the Grimm.
