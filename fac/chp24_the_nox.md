@@ -1,6 +1,6 @@
 # Chapter Twenty-four: The Nox
 
-Plants literally grew on the Nox's head, who are more or less really advanced humans. They also love to mediate and discuss philosophy, which caused no end of annoyance to the MSC commander. However, they can sense aura, and they really want to see what the Grimm are all about.
+Did you know that plants literally grew on the Nox's head? It's all a result of genetic engineering, but I am not sure why would they want plants to grow on their head. It does strongly reinforce their space hippy image though. They also love to mediate and discuss philosophy, which caused no end of annoyance to the MSC commander. However, they can sense aura, and they really want to see what the Grimm are all about.
 
 I decided that a super powerful race is worth the trouble since we might be able to no-sell or eliminate the Grimm if they can figure out what they are. A bunch of soulless monsters that prey on humans can't possibly be good, right?
 
