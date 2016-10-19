@@ -93,7 +93,7 @@ Second Summit on Strategic Weapons took place.
 
 We finally hashed out further rules and policies. Each nations can build as many strategic weapons as they want, but they will be guarded and operated by all Kingdoms' militaries, who will all be stringently vetted.
 
-The use of strategic weapons can only be authorized by designated individuals, such as the sovereign ruler or the council. The security will then decide if they shall carry out the order.
+The use of strategic weapons can only be authorized by designated individuals, such as a sovereign ruler or the council. The security will then decide if they shall carry out the order.
 
 I noted that this would never have happened on Earth, but it's clear that the fear of the Grimm won out over the fear of Mechatron's as a military power.
 
