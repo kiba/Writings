@@ -4,24 +4,59 @@ This list is not a comprehensive overview of Mechatron machines, units, technolo
 
 ## **Category: Warfare**
 
-* **Doom Buggy** - The first autonomous ground unit, developed using the original "car" blueprint, adding a much needed element to the Mechatron arsenal. Otherwise, it is impossible for Mechatron to contest territory beyond its core territory. The original autonomous blueprint was a hacked together prototype that works well enough. Since then, much of the space intended for humans was removed and the buggy was instead packed with everything else, cumulating in the MK Three, which is capable of packing shield, standard sensor package, scouting drone, and a weapon loadout.
+* **Doom Buggy** - The first autonomous ground unit, developed using the original "car" blueprint, making it the first ground component of the Mechatron military. Otherwise, it is impossible for Mechatron to contest territory beyond its base and core territory. The original autonomous blueprint was a hacked together prototype that works well enough. Since then, much of the space intended for humans was removed and the buggy was instead packed with everything else, cumulating in the MK Three Doom Buggy, which is capable of equpping shield, standard sensor package, scouting drone, weapon and utility loadout package.
 
-* **Shiftcycle** - The first transforming autonomous ground unit that can transform from a motorcycle into a four legged body plan. It was almost canned by the ruling royal for being too complicated, unreliable, and too difficult to maintain and manufacture. The machine's mobility on the battlefield allowed Mechatron to contest area where previously only legged infantry could, as well as being speedy as wheeled units when necessary. This is in spite of the flaws that the royals thought as a weakness to its design. The design opened the way for more transforming Mechatron designs.
+* **Shiftcycle** - The first transforming autonomous ground unit that can transform from a motorcycle into a four legged body plan. It was almost canned by the ruling royals for being too complicated, unreliable, and too difficult to maintain and manufacture. The machine's mobility on the battlefield allowed Mechatron to contest area where previously only legged infantry could, as well as being speedy as wheeled units when necessary. The design opened the way for more transforming Mechatron designs.
 
-* **Light Infantry Bot** or **LIB** - Adapted from exoskeleton designs, it proved to be the workhorse of ground units, taking the role of human infantry in seizing and controlling territory as well operate interfaces designed for humans.
+* **Light Infantry Bot** or **LIB** - Utilized exoskeleton as a base, a humanoid design is built. The humanoid robot proved to be the workhorse of ground units, taking the exact same role of infantry in seizing and controlling territory, as well being capable of operating weapons and technologies intended for humans.
 
-* **Heavy Infantry Bot** or **HIB** - Twice the mass of LIB, this design trades for heavier firepower at the expense of mobility and speed.
+* **Gatling Turret** - The basic turret of any Mechatron military installation. When firing, it made loud burping sounds, expending bullets at stupendous rate. However, the fire rate can be adjusted downward for low rated threats and to conserve ammo.
 
-* **SpritFire class Airship** - The first design for a long range airship to provide expeditionary capability.
+* **Heavy Infantry Bot** or **HIB** - Twice the mass of the LIB, this design trades for heavier firepower and armor at the expense of mobility and speed.
+
+* **Battle drone** - As its name implied, quadropters equipped with weapons, usually small arms.
+
+* **Sprit-class Airship** - The first design for a long range airship to provide expeditionary capability. It is considered a corvette with staffing up to fifty crewmembers.
 
 ## **Category: Construction and Logistics**
 
-* **Logistic drone** - The main logistical workhorse of Mechatron. Its purpose is to carry materials and items from one location or another. Citizens in the kingdom of Mechatron can purchase services directly from the logistic network. The fee either went to maintenance or to the Mechatron's Sovereign Wealth Fund.
+**Drone** refers to a quadropter flying machine and its variations.
 
-* **Construction drone** -
+* **Logistic drone** - The main logistical workhorse of Mechatron. Its purpose is to carry materials and items from one location or another by flying. With control towers, charging stations, and other component, the logistics drones are part of an overarching Logistic Network. In the kingdom of Mechatron, the logistic network is not only used to support the state's industrial complex but also can be used by private citizens and organizations as well, as long as they pay according to a fee schedule. Not the end-all be-all of logistics, as bulk goods travel in other modes, such as trains or belts.
+
+* **Construction drone** - A catch-all term for the various type of drones used for construction. The simplest drone is essentially a logistic drone, used to deliver construction materials. More complicated drones can have multitools used for repairs or delicate custom works.
+
+* **Tunnel Boring Machine** - Used to bore tunnels deep underground. Sometime has turrets attached to it as self-defense mechanism.
+
+
+## **Category: Buildings and Infrastructure**
+
+* **Dust turbine power plant** - Burn dusts to generte energy. It is used when solar panels don't provide enough energy or for compact bases, or provide emergency power.
+
+* **Maglev Belt** - Belts that floated using magnetic levitation, reducing friction and increasing overall reliability.
+
+* **Solar panels** - Cheap and ubiquitous, it is used everywhere when there is enough territory. However, with Mechatron's increasing industry and urban density and the lack of above-ground to the Grimm, it became a secondary power source.
+
+* **Geothermal Tap** - A power plant with a hole bored all the way down to the mantle. Provides the majority of energy for Mechatron.
+
+* **Stasis chamber** - A building designed for long term support of stasis pods, which may be used to store objects or the dead and dying.
 
 ## **Category: Equipment**
 
-* **Dimensional Storage** -  In essence, a device that can generate a pocket dimension and store items within it.  Curiously, it cannot store organic living beings. There are various failsafe built into it should the device maintaining the pocket dimension be destroyed.
+* **Dimensional Storage** -  In essence, a device that can generate a pocket dimension and store items within it.  Curiously, it cannot store organic living beings. There are also various failsafe built into it should the device maintaining the pocket dimension be destroyed. This allowed for the gradual safe dispersal of items, rather than an explosive expansion.
 
-* **Stasis pod** - A technology scavenged from the ruins of Allothmy. Supplied with the necessary energy, a stasis pod can generate a field to stop the thermodynamic process of an object from proceeding, effectively preserving it. Unsurprisingly, it had first found uses in the medical industry, especially in hospital, to store a person away until he or she can be care for by medical professional.
+* **Stasis pod** - A technology scavenged from the ruins of Allothmy. Supplied with the necessary energy, a stasis pod can generate a field to stop the thermodynamic process of an object from proceeding, effectively preserving it. Unsurprisingly, it had first found uses in the medical industry, especially in hospital, to store a person away until he or she can be care for by medical professional. The stasis pod is credited with allowing the empress to survive to the modern era.
+
+* **Power Armor Basic** - All purpose power armor provided to the citizenry at large. It provides comprehensive protection against NBC(nuclear, biological, and chemical) threats. In addition, it provides life support, strength and mobility enhancement. It also came with a full toolset for repair and replacement of power armor parts, as well as a comprehensive manual, design and engineering documentation, following the emperor's philosophy of empowering his citizens. Outside of Mechatron, it is by far the most popular power armor design. Due to its open nature, the power armor is easily copied and modified across the whole of Remnant. Despite rampant cloning, Mechatron is able to command a twenty percent profit margin due to brand recognition and production cost below even copycats.
+
+* **Power Armor Heavy** - A heavier version of the the basic design, with armor plate insert and greater strength. Mobility is traded for more strength.
+
+* **Hardsuit** - A version developed for huntsmen who favored more agility and speed than strength. It is not as ugly as Power Armor Basic, making it an easier sell to some huntsmen. However, there are disturbing reports of huntsmen forgoing helmets and armor plates because it 'crimps' their style. It also proved more popular with Remnan civilians outside of Mechatron for affordability and style.
+
+* **Shield** - Generate a force field that protect a user against fast moving projectiles and plasma.
+
+* **Dust Battery** - Uses dust to store enormous amount of energy, allowing power armors to go a few days without recharging.
+
+* **Robotic arm** - Arm attachment used for fine manipulation of objects made for human hands.
+
+* **Basic Assault Rifle** - The standard service weapon of the Mechatron military. There is nothing fancy about the gun.
