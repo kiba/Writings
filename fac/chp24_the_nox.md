@@ -16,11 +16,11 @@ It wasn't certainly my doing. The state was in the business of providing bland r
 
 "You could change your dietary need to only require plant matters," Lya suggested. "It's more efficient than growing meat. Meat requires plant matters to grow. Why not go directly to the source?"
 
-"I don't think that will be easy to achieve, Elder Lya."
+"I don't think that will be easy to achieve, Elder Lya. People will not let go of meat so easily."
 
 The Nox nodded. "It is not...necessary. Though we do note that animals would be uninvolved in the production of cultured meat. It is a good ethical choice, a path we did not take. We have stopped eating any meat when we separated from the Alterans eons ago. As such, we did not develop any technologies regarding the industrial production of cultured meat."
 
-That's a new one for me. There's so much that we don't know about Nox society and civilization. There's only so much you can glean from MSC sociologists when they spent most of their time with the Nox mediating and discussing extremely abstract philosophical thoughts.
+That's a new one for me. There's so much that we don't know about Nox society and civilization. There's only so much you can glean from MSC sociologists when they spent most of their time with the Nox mediating and discussing extremely abstract philosophical ideas.
 
 "Oh? Would you help us make production of artificial meat scalable?"
 
@@ -50,7 +50,7 @@ We dropped down in the middle of a forest, while the bullhead and my power armor
 
 Afterward, we followed them closely as they zeroed in on a Grimm. Better safe than sorry.
 
-Once a Ursa was found, the Nox simply waved their hands, freezing a Ursa in existence. Then the Nox simply made the Grimm disappears into thin air using some sort of weird arm wave.
+Once a Grimm creature was found, the Nox simply waved their hands, freezing a Ursa in existence. Then the Nox simply made the Grimm disappears into thin air using some sort of weird arm wave.
 
 "Where did it go?" I asked.
 
