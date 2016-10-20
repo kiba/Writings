@@ -14,7 +14,7 @@ It wasn't certainly my doing. The state was in the business of providing bland r
 
 "We're working on directly cultivating meat cells," I said. "It's much more efficient, and we don't have to grow entire animal with lives and feelings. Obviously it's not ready for prime time, due to the difficulty of scaling it." Which would basically make this place obsolete. Whether or not the owner of this business has a plan for adapting to that technology is another matter.
 
-"You could change your dietary need to only require plant matters," Lya suggested. "It's more efficient than growing meat, which will require nutrients from plants."
+"You could change your dietary need to only require plant matters," Lya suggested. "It's more efficient than growing meat. Meat requires plant matters to grow. Why not go directly to the source?"
 
 "I don't think that will be easy to achieve, Elder Lya."
 
@@ -46,7 +46,7 @@ We dropped down in the middle of a forest, while the bullhead and my power armor
 
 "I am concerned that you will get hurt," I said. "You got no armor and no weapon."
 
-"I know, but the Nox people are not incapable of protecting themselves. We have power and abilities beyond what you have shown to us."
+"I know, but the Nox people are not incapable of protecting themselves. We have power and abilities beyond what your people have shown."
 
 Afterward, we followed them closely as they zeroed in on a Grimm. Better safe than sorry.
 
