@@ -4,7 +4,7 @@ This list is not a comprehensive overview of Mechatron machines, units, technolo
 
 ## **Category: Warfare**
 
-* **Doom Buggy** - The first autonomous ground unit of the Mechatron military, developed using the original "car" blueprint. Without this vehicle, it is impossible for Mechatron to contest territory beyond its base and core territory, or access the stargate. The original autonomous blueprint was a hacked together prototype that works well enough. Since then, much of the space intended for humans was removed and the buggy was instead packed with everything else, cumulating in the MK Three Doom Buggy, which supports modules. Those modules allowed for ease of customization through standardization. The buggy can equip everything from shield, standard sensor package, scouting drone, to weapons.
+* **Doom Buggy** - The first autonomous ground unit of the Mechatron military, developed using the original "car" blueprint. Without this vehicle, it is impossible for Mechatron to contest territory beyond its base and core territory, or access the stargate. The original autonomous blueprint was a hacked together prototype that works well enough. Since then, much of the space intended for humans was removed and the buggy was instead packed with everything else, cumulating in the MK Three Doom Buggy, which supports modules. Those modules allowed for ease of customization through standardization of equipment cases. The buggy can equip everything from shield, standard sensor package, scouting drone, to weapons.
 
 * **Shiftcycle** - The first transforming autonomous ground unit that can transform from a motorcycle into a four legged body plan, resembling a cheetah. It was almost canned by the ruling royals for being too complicated and unreliable, therefore difficult to maintain and manufacture. The machine's mobility on the battlefield allowed Mechatron to contest area where previously only legged infantry could, as well as being speedy as wheeled units when necessary. The design opened the way for more transforming Mechatron designs.
 
@@ -34,11 +34,11 @@ This list is not a comprehensive overview of Mechatron machines, units, technolo
 
 * **Maglev Belt** - Belts that floated using magnetic levitation, reducing friction and increasing overall reliability of belt-based logistics.
 
-* **Solar panels** - Cheap and ubiquitous, it is used everywhere when there is enough territory. However, with Mechatron's increasing industry and urban density and the lack of above-ground to the Grimm, it became a secondary power source.
+* **Solar panels** - Cheap and ubiquitous, it is used and deployed everywhere above surface. However, with Mechatron's increasing industry and urban density and the lack of safe space, it became a secondary power source.
 
 * **Geothermal Tap** - A power plant with a hole bored all the way down to the mantle. The heat from the mantle is used to power steam based turbine. It is Mechatron's primary source of energy.
 
-* **Stasis chamber** - A building or room designed for long term support of stasis pods, which may be used to store objects or the dead and dying. A well built design can help stasis pods maintain their field for up to five thousand years, as in the case of Rin Furukawa.
+* **Stasis chamber** - A building or room designed for long term support of stasis pods, which may be used to store objects or the dead and dying. A well built design can help stasis pods maintain their field for up to five thousand years, as in the case of Rin Furukawa's survival.
 
 ## **Category: Equipment**
 
@@ -46,7 +46,7 @@ This list is not a comprehensive overview of Mechatron machines, units, technolo
 
 * **Stasis pod** - A technology scavenged from the ruins of Allothmy. Supplied with the necessary energy, a stasis pod can generate a field to stop the thermodynamic process of an object from proceeding, effectively preserving it. Unsurprisingly, it first found uses in the medical industry, especially in hospital, to store a person away until he or she can be care for by medical professional. The stasis pod is credited with allowing the empress of Mechatron to survive to the modern era.
 
-* **Power Armor Basic** - All purpose power armor provided to the citizenry at large. It provides comprehensive protection against NBC(nuclear, biological, and chemical) threats. In addition, it provides life support, strength and mobility enhancement. It also came with a full toolset for repair and replacement of power armor parts, as well as a comprehensive manual, design and engineering documentation, following the emperor's philosophy of empowering his citizens. Outside of Mechatron, it was the most popular design until the adven to of hardsuits. Due to its open nature, the power armor is easily copied and modified across the whole of Remnant. Despite rampant cloning, Mechatron is able to command a twenty percent profit margin due to brand recognition, dedication to quality, and production cost below even copycats.
+* **Power Armor Basic** - All purpose power armor provided to the citizenry at large. It provides comprehensive protection against NBC(nuclear, biological, and chemical) threats. In addition, it provides life support, strength and mobility enhancement. It also came with a full toolset for repair and replacement of power armor parts, as well as a comprehensive manual, design and engineering documentation, following the emperor's philosophy of empowering his citizens. Outside of Mechatron, it was the most popular design until the advent of hardsuits. Due to its open nature, the power armor is easily copied and modified across the whole of Remnant. Despite rampant cloning, Mechatron is able to command a twenty percent profit margin due to brand recognition, dedication to quality, and production cost below even copycats.
 
 * **Power Armor Heavy** - A heavier version of the the basic design, with armor plate insert and greater strength. Mobility is traded for more strength.
 
