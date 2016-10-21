@@ -1,8 +1,8 @@
 # Chapter Twenty-seven: Dwarven Affair
 
-It was sunny and hot on this world, and completely free of Grimm. Specialist Glen Black thought that was amazing, in spite of the insufferable heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
+It was a hot sunny day on this world, and completely free of Grimm. Specialist Glen Black thought the latter was amazing, even with the heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
 
-Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with basic weapons. They're made of a steel alloy that's stronger than what was found in the local markets. Nobody was allowed their usual personal weapons or hardsuits, and almost everything they has were supposed were supposed to blend in with their surrounding. No gadet unless it's extremely discrete.
+Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with basic weapons. They're made of a steel alloy that's stronger than what was found in the local markets, which was better than what the locals have, but it wasn't their personal weapons. In addition to the prohibition, nobody was also allowed to wear hardsuits. It was part of the mission parameter. They're supposed to blend in, not to attract everyone in kilometer radius.
 
 Black never guessed that Mechatron would possess an alien device for traveling to other worlds. Then again, he would have never guessed that a kingdom would pop out of nowhere four years ago either, or that somebody managed to create a portal to another world using reality-bending dusts. It seemed that a lot of thing has changed in the last four years.
 
@@ -18,11 +18,11 @@ Black shrugged at the blondie. It was Major Blanc Sheppard who suggested the hai
 
 ***
 
-The dwarves weren't about to let any shitting donkeys, horses, mules, or any other mancure generating creatures into their mountainhome. "Unclean," they explained. "And we're tired of cleaning the shit inside the hallways of our home."
+The dwarves weren't about to let any shitting donkeys, horses, mules, or any other manure generating creatures into their mountainhome. "Unclean," they explained. "And we're tired of cleaning the shit inside the hallways of our home."
 
-Instead, the caravan paid fee to have their goods transported to a warehouse by dwarven haulers, all on the famed dwarven honor.
+Instead, the caravan paid a fee to have their goods transported to a warehouse by dwarven haulers, all on the famed dwarven honor.
 
-The party didn't care , since they wren't actual merchants and traders, just a scouting party, even if their members were required to act the part.
+Black suspected that it was also about an excuse to make money, but the party didn't care, since they weren't actual merchants and traders, just a scouting party, even if their members were required to act the part.
 
 "The architecture...is amazing," a green haired anthropologist said. The scouting party descended down a shallow ramp into the fortress. They had just went past three set of walls, one higher than the other, with all sort of defensive measures in place.
 
@@ -32,7 +32,7 @@ The Atlasian specialist been through Mechatron's gate before, which were well gu
 
 "Didn't you see the grand open hall? I wonder how they did it, without modern digging technologies."
 
-"Did you see their defenses, woman? They can target or attack us from any direction they like, and several doors that attackers would need to get through. Defense in depth."
+"Did you see their defenses, woman? They can target or attack us from any direction they like, and several heavy doors that attackers would need to get through. The only other way are the possible winding pathways that they constructed. Defense in depth."
 
 "I guess that's impressive too..."
 
@@ -44,7 +44,7 @@ The dwarves stopped.
 
 The dwarves who just had been pushing forward the carts explained to the party the need to load materials onto a set of wheeled platforms on grooved tracks; a railway system. They said that they're working on an above ground train station, but for now this will do.
 
-Then the laborer started to push the cart into the platform and beckoned the party to ride the platform as well. From there, it was a quick ride to the trade warehouse.
+Then the laborer started to push the cart into the platform and beckoned the party to ride the platform as well. From there, it was a quick ride to the trade district.
 
 ***
 
@@ -66,9 +66,9 @@ If things was about to go to shit, there's hidden storage seals hidden in journa
 
 ***
 
-Minori, the green hair lady, seemed content to roam around the city, doing nothing but looking around. Black was fine with that. The anthropologists were supposed to interface with different culture, but there's no guarantee that they won't make social impasse.
+Minori, the lady with the green hair, seemed content to roam around the city, not bothering to talk to the locals. Black was fine with that. The anthropologists were supposed to interface with different culture, but there's no guarantee that they won't make social impasse. It wasn't like they have a lot of experience with different cultures.
 
-"I love those engraving! I wonder what they all mean?" She said. "Every inch of this place was either engraved or decorated or arranged. There seemed to be a purpose and organization. Do you think they have something like the Bureau of Public Art?"
+"I love those engraving! I wonder what they all mean?" She said. "Every inch of this place was either engraved or decorated or arranged. There seemed to be a coherent organization to the engraving. Do you think they have something like the Bureau of Public Art?"
 
 "I don't know," Black replied. "What do I care?"
 
@@ -76,6 +76,6 @@ Minori, the green hair lady, seemed content to roam around the city, doing nothi
 
 "I am more interested in getting out of this place alive."
 
-A dwarf suddenly streaked naked down the street, foaming at the mouth, followed by several grim looking dwarves dressed in armor.
+A dwarf suddenly streaked naked down the street, foaming at the mouth, followed by several grim and sad looking dwarves dressed in armor chasing after the naked dwarf.
 
 "What the fuck!?" Black exclaimed.
