@@ -2,7 +2,7 @@
 
 **Year 3, Day 323**
 
-Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for technology alone. On the other hand, sealing required a lot of research, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
+Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for our technological base. On the other hand, sealing required a lot of research, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
 
 One of spymaster's student, Satoshi is really blossoming in his study. Studying physics and getting lot of ideas really do him wonder, or so they said.
 
@@ -36,9 +36,9 @@ A White Fang terrorist tried to bomb the local market. Bad idea. We caught his a
 
 **Year 3, Day 336**
 
-A series of bombing attacks by the White Fang are launched against Mechatron affiliated organizations across Remnant.
+The White Fang launched a series of bombing attacks against Mechatron affiliated organizations across Remnant.
 
-Remnant suffered fifteen people dead and hundred wounded. I am not pleased, but I also recognized that it's generating sympathy for Mechatron, and causing Faunus everywhere to be less supportive of the White Fang. Terrorists aren't exactly the brightest people in the world.
+All total, Remnant suffered fifteen people dead and hundred wounded. I am not pleased, but I also recognized that it's generating sympathy for Mechatron, and causing Faunus everywhere to be less supportive of the White Fang. Terrorists aren't exactly the brightest people in the world.
 
 **Year 3, Day 338**
 
@@ -52,7 +52,7 @@ We got news that Summer Rose came forward. It should be interesting.
 
 **Year 3, Day 340**
 
-My wife finally succumbed to the kids. The teenagers are going starting next year, but they're going with an experienced huntsman. It will be six months long before they'll return.
+My wife finally succumbed to the kids. The teenagers are going starting next year, but they're going with two experienced huntsman. It will be six months long before they'll return.
 
 **Year 3, Day 344**
 
@@ -66,7 +66,7 @@ What a fucking mess. They killed him before we got there.
 
 A lot of White Fang mooks died to our robots before they got into contact with special ops. Some did surrender. We found a whole bunch of intel on the White Fang.
 
-It's still considered a failure, because an asset of our died. We're going to need to compensate his family for their losses.
+It's still considered a failure, because an asset of our died. We'll have to compensate his family for their loss.
 
 **Year 3, Day 350**
 
