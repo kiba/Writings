@@ -2,7 +2,11 @@
 
 **Year 3, Day 323**
 
-Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for our technological base. On the other hand, sealing required a lot of research to come up with new effects, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
+Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for our technological base.
+
+You want light? There's no need for a whole factory dedicated to manufacturing light bulbs. All you have to do is draw seals the right way and you'll get light!
+
+On the other hand, sealing required a lot of research to come up with new effects, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
 
 One of spymaster's student, Satoshi is really blossoming in his study. Studying physics and getting lot of ideas really do him wonder, or so they said.
 
