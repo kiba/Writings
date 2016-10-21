@@ -1,30 +1,30 @@
 # Chapter Twenty-seven: Dwarven Affair
 
-It was sunny and hot on this world, and completely free of Grimm. Specialist Glen Black thought that was amazing, in spite of the insufferable heat. The hardsuit that he would normally wears spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
+It was sunny and hot on this world, and completely free of Grimm. Specialist Glen Black thought that was amazing, in spite of the insufferable heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
 
-Behind him was the rest of the caravan, with everyone dressed in primitive clothing and with basic weapons. Nobody was allowed their usual personal weapons or hardsuits, and almost everything they had were supposed to be a match with the local civilization, which wasn't very sophisticated.
+Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with basic weapons. They're made of a steel alloy that's stronger than what was found in the local markets. Nobody was allowed their usual personal weapons or hardsuits, and almost everything they has were supposed were supposed to blend in with their surrounding. No gadet unless it's extremely discrete.
 
 Black never guessed that Mechatron would possess an alien device for traveling to other worlds. Then again, he would have never guessed that a kingdom would pop out of nowhere four years ago either, or that somebody managed to create a portal to another world using reality-bending dusts. It seemed that a lot of thing has changed in the last four years.
 
-"I saw something," the Atlasian specialist said. "Walls. Tall for the local civilization here, very quaint." He was supposed to not take anything for granted, but he saw what passed for warfare around here.
+"I saw something," the Atlasian specialist said. "Walls. Tall for the local civilization here, very quaint." He was supposed to not take anything for granted, but he saw what passed for warfare around here. Maybe the mountainhome are supposed to be a different level altogether, but he hoped it will be poor.
 
-"So that's the mountainhome," the leader of the expedition said. "Supposed to be home to short little humans who may or may not require alcohol."
+"So that's the mountainhome," the leader of the expedition said. "Supposed to be home to short little humans who may or may not require alcohol in order to live."
 
-Black shrugged at the blondie. It was Major Blanc Sheppard who suggested the hairbrained mission. The RSC found a green lush world with no Grimm and no real threat. Yet, they're wasting time on missions like these. Who the fuck cared about the local politics?
+Black shrugged at the blondie. It was Major Blanc Sheppard who suggested the hairbrained mission. The RSC found a green lush world with no Grimm and no real threat. Yet, they're wasting time on missions like these. Who the fuck cared about the local politics? It was high time to demolish the area surrounding the stargate and start building a colony.
 
 "Black. You will be on your best behavior. You will say nothing and play it safe."
 
-"Crystal clear, ma'am."
+"Crystal clear, ma'am," Glenn Black acknowledged.
 
 ***
 
-The dwarves weren't about to let any shitting donkeys, horses, mules, or any manure other generating creatures into their mountainhome. "Unclean," they explained.
+The dwarves weren't about to let any shitting donkeys, horses, mules, or any other mancure generating creatures into their mountainhome. "Unclean," they explained. "And we're tired of cleaning the shit inside the hallways of our home."
 
-Instead, the caravan was forced to pay a fee to have their goods transported to a warehouse by dwarven haulers, all on the famed dwarven honor.
+Instead, the caravan paid fee to have their goods transported to a warehouse by dwarven haulers, all on the famed dwarven honor.
 
-Which was fine by the party. They have more gold where that came from. More gold than the dwarves could possibly imagine. They also weren't actual merchants and traders, just a scouting party. Making a profit isn't particularly relevant to their goal.
+The party didn't care , since they wren't actual merchants and traders, just a scouting party, even if their members were required to act the part.
 
-"The architecture...is amazing," a green haired anthropologist said. The scouting party descended down a ram into the fortress, having went past three set of walls, one higher than the other.
+"The architecture...is amazing," a green haired anthropologist said. The scouting party descended down a shallow ramp into the fortress. They had just went past three set of walls, one higher than the other, with all sort of defensive measures in place.
 
 "You're crazy?" Black asked.
 
@@ -36,7 +36,7 @@ The Atlasian specialist been through Mechatron's gate before, which were well gu
 
 "I guess that's impressive too..."
 
-"I am relying on you not to offend our hosts. Unlike the humans that we encountered thus far, the dwarves are not folks to mess with."
+"I am relying on you not to offend our hosts. Unlike the humans that we encountered thus far, the dwarves are not folks we want to mess with."
 
 The dwarves stopped.
 
@@ -52,13 +52,15 @@ The fortress seemed to be awfully a lot more sophisticated than the human kingdo
 
 Black was ready to believe that those dwarves are really a nation of alcoholics. Qrow would have loved this place.
 
-A dwarf in a certain uniform showed up at the unloading dock, with a clipboard in hand. "Hi, I am Urist McTrader, and I will be your broker for the day. Where would like a stall?"
+A dwarf in a certain uniform showed up at the unloading dock, with a clipboard in hand. "Hi, I am Urist McTrader, and I will be your broker for the day. Where would you like a stall?"
 
 ***
 
-The party rented a stall somewhere between the prime location and the poorest for several days' gold, and unloaded the glassware onto the shelves. They had already sold glassware to customers across the kingdoms before arriving in the fortress, plenty of practice to screw up and learn what not to do. Thus, they already have good solid covers with lot of great lies about the origin of their glassware, unless the dwarves are actually more discerning and suspicious than the humans.
+The party rented a stall somewhere between the prime location and the poorest for several days' gold, and unloaded the glassware onto the shelves. Previous expedition had already sold glassware to customers across the local before arriving in the fortress, plenty of practice to screw up and learn what not to do. By now, two members on the team were already experienced in the art of lying the hell out to the locals. They'll be the one hawking out wares.
 
-"Alright, everyone," the commander said once everyone gathered together. "You know your jobs and your mission. Let the anthropologists and social experts do the talking, the guards the guarding. Be discrete with your radio and storage seals. We don't want to look silly or suspicious to the locals. Remember your code."
+Everyone gathered together once the unloading was finished.
+
+"Alright, everyone," the commander said. "You know your jobs and your mission. Let the anthropologists and social experts do the talking, the guards the guarding. Be discrete with your radio and storage seals. We don't want to look silly or suspicious to the locals. Remember your code."
 
 If things was about to go to shit, there's hidden storage seals hidden in journals that store fast-deploy hardsuits.
 
