@@ -2,7 +2,7 @@
 
 **Year 3, Day 323**
 
-Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for our technological base. On the other hand, sealing required a lot of research, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
+Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for our technological base. On the other hand, sealing required a lot of research to come up with new effects, and if you want to do something else, you'll have to literally draw something else different, not just altering the diagram there or here.
 
 One of spymaster's student, Satoshi is really blossoming in his study. Studying physics and getting lot of ideas really do him wonder, or so they said.
 
@@ -32,7 +32,7 @@ I need them to be loyal to me. If they aren't able to go back home and start imp
 
 **Year 3, Day 333**
 
-A White Fang terrorist tried to bomb the local market. Bad idea. We caught his ass. Now he's going to get the finest defense lawyers while we throw the book at him.
+A White Fang operative tried to bomb the local market. Bad idea. We caught his ass. Now he's going to get the finest defense lawyers while we throw the book at him.
 
 **Year 3, Day 336**
 
