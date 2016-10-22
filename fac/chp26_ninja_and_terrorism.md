@@ -2,7 +2,7 @@
 
 **Year 3, Day 323**
 
-Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do things that's out of reach for our technological base.
+Sealing is bullshit. All you need is paper, ink, and a chakra user and you could do crazy and cool things that required a whole factories for our technological base.
 
 You want light? There's no need for a whole factory dedicated to manufacturing light bulbs. All you have to do is draw seals the right way and you'll get light!
 
@@ -108,7 +108,7 @@ The ninja departed.
 
 Before Mechatron showed up on the scene, Remnant would be roughly equal technologically to Earth. Now we're outclassing them.
 
-However, Earth has key advantages in certain area, such as the internet and jet engines. We still haven't built a supersonic jet yet.
+However, Earth has key advantages in certain area, such as the internet and jet engines. In spite of our advanced rocketry program, we still haven't built a supersonic jet yet.
 
 Currently, we're trading dusts away for sample of their technologies.
 
