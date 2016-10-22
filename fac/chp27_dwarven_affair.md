@@ -2,9 +2,9 @@
 
 It was a hot sunny day on this world, and completely free of Grimm. Specialist Glen Black thought the latter was amazing, even with the heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
 
-Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with basic weapons. They're made of a steel alloy that's stronger than what was found in the local markets, which was better than what the locals have, but it wasn't their personal weapons. In addition to the prohibition, nobody was also allowed to wear hardsuits. It was part of the mission parameter. They're supposed to blend in, not to attract everyone in kilometer radius.
+Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with only basic melee weapons, made of a very strong alloy that was superior to the local's steels. In addition to the prohibition, nobody was wearing hardsuits. It was part of the mission parameter. They're supposed to blend in, not attract everyone's attention everywhere they go.
 
-Black never guessed that Mechatron would possess an alien device for traveling to other worlds. Then again, he would have never guessed that a kingdom would pop out of nowhere four years ago either, or that somebody managed to create a portal to another world using reality-bending dusts. It seemed that a lot of thing has changed in the last four years.
+Black never guessed that Mechatron would possess an alien device for traveling to other worlds. Then again, he would have never guessed that a kingdom would pop out of nowhere four years ago either, or that somebody managed to create a portal to another world using reality-bending dusts. It seemed that a lot of things has changed in the last four years.
 
 "I saw something," the Atlasian specialist said. "Walls. Tall for the local civilization here, very quaint." He was supposed to not take anything for granted, but he saw what passed for warfare around here. Maybe the mountainhome are supposed to be a different level altogether, but he hoped it will be poor.
 
@@ -24,11 +24,11 @@ Instead, the caravan paid a fee to have their goods transported to a warehouse b
 
 Black suspected that it was also about an excuse to make money, but the party didn't care, since they weren't actual merchants and traders, just a scouting party, even if their members were required to act the part.
 
-"The architecture...is amazing," a green haired anthropologist said. The scouting party descended down a shallow ramp into the fortress. They had just went past three set of walls, one higher than the other, with all sort of defensive measures in place.
+"The architecture...is amazing," a green haired anthropologist said. The scouting party descended down a shallow ramp into the fortress. They had just went past three set of walls, one higher than the other, no doubt filled with all sort of defensive measures.
 
 "You're crazy?" Black asked.
 
-The Atlasian specialist been through Mechatron's gate before, which were well guarded by gatling turrets and other lethal measures. Somehow, the less technological advanced traps of spiked balls and giant stones hanging above them were as menacing to the specialist as well.
+The Atlasian specialist been through Mechatron's gate before, which were well guarded by gatling turrets and other lethal measures. Somehow, the less technological advanced traps of spiked balls and giant stones hanging above them were just as menacing to the specialist.
 
 "Didn't you see the grand open hall? I wonder how they did it, without modern digging technologies."
 
@@ -56,13 +56,13 @@ A dwarf in a certain uniform showed up at the unloading dock, with a clipboard i
 
 ***
 
-The party rented a stall somewhere between the prime location and the poorest for several days' gold, and unloaded the glassware onto the shelves. Previous expedition had already sold glassware to customers across the local before arriving in the fortress, plenty of practice to screw up and learn what not to do. By now, two members on the team were already experienced in the art of lying the hell out to the locals. They'll be the one hawking out wares.
+The party rented a stall somewhere between the prime location and the poorest for several days' gold, and unloaded the glassware onto the shelves. Previous expedition had already sold glassware to customers to the before this particular expedition to the fortress. It's plenty of practice to screw up and learn what not to do. By now, two members on the team were already experienced in the art of lying the hell out to the locals about the origin of Mechatron glassware. They'll be the one hawking those goods to the dwarves here.
 
 Everyone gathered together once the unloading was finished.
 
 "Alright, everyone," the commander said. "You know your jobs and your mission. Let the anthropologists and social experts do the talking, the guards the guarding. Be discrete with your radio and storage seals. We don't want to look silly or suspicious to the locals. Remember your code."
 
-If things was about to go to shit, there's hidden storage seals hidden in journals that store fast-deploy hardsuits.
+If things was about to go to shit, there's hidden storage seals hidden in journals that store fast-deploy hardsuits and radios.
 
 ***
 
