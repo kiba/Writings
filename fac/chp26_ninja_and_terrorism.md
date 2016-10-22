@@ -46,9 +46,7 @@ All total, Remnant suffered fifteen people dead and hundred wounded. I am not pl
 
 **Year 3, Day 338**
 
-Simultaneous protests and marches are showing across the globe in Faunus communities against the White Fang.
-
-It is a PR disaster for the White Fang.
+Simultaneous protests and marches are showing across the globe in Faunus communities against the White Fang. Predictable, really.
 
 **Year 3, Day 339**
 
@@ -88,7 +86,7 @@ We capped the end of the year with a rocket launch for a dust-mixed methane rock
 
 Controversy ensued over on whether or not Summer Rose will be allowed to keep her American citizenship.
 
-I am not a lawyer, but I doubt Summer Rose will be allowed to keep her citizenship. The POTUS is supportive, but many republicans are on the other side.
+I am not a lawyer, but I doubt Summer Rose will be allowed to keep her citizenship. The POTUS is supportive, but many republicans are opposed.
 
 May Rose isn't in danger of losing citizenship since she was born on American soil.
 
@@ -112,7 +110,7 @@ Before Mechatron showed up on the scene, Remnant would be roughly equal technolo
 
 However, Earth has key advantages in certain area, such as the internet and jet engines. We still haven't built a supersonic jet yet.
 
-Currently, we're trading dusts away for sample of their technology, if inferior.
+Currently, we're trading dusts away for sample of their technologies.
 
 I heard we're on the verge of negotiating an actual trade agreement with the Earthlings.
 
@@ -120,7 +118,7 @@ Personally? I want better camera and more researchers.
 
 **Year 4, Day 19**
 
-We're starting to merge software development of our operating system with the linux kernel project. The bandwidth to support internet traffic is increasing day by day, as more fiber optics are hooked up to the CCTS and satellites.
+We're starting to merge software development of our operating system with the linux kernel project.
 
 **Year 4, Day 25**
 
