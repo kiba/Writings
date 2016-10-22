@@ -113,6 +113,7 @@ function Doc( body, meta, vars )
 end
 
 function Todo()
+  return ''
 end
 
 function Str(s)
