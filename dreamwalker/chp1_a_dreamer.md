@@ -81,6 +81,7 @@ Thinking that it's over, I fell asleep again.
 "There are antibodies that we cannot identify..."
 
 ...
+[todo]make the interaction more professional[/todo]
 
 I finally woke up to a strong white light. Beeping noise pervades my ears, as did the various transparent plastic tubes that seemed to poke everywhere into my body.
 
