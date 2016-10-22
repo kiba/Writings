@@ -1,5 +1,5 @@
 # Chapter One: A Dreamer
-[todo]Make it scarier somehow.[/todo]
+[todo]Make it scarier somehow? Not sure how to improve this section.[/todo]
 I ran through the forest as hard as I could.
 
 My lung really hurt, screaming for air.
