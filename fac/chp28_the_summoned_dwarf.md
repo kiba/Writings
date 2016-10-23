@@ -2,13 +2,13 @@
 
 Mack MacMuffin stared at the detective. It was all he could do in this accursed place. It was a good thing that he got a lawyer with him.
 
-"Where were you last night when the billionaire Johnathan Swift, disappeared?" the detective asked. MacMuffin could hear the accusatory tone underlying his question. MacMuffin tightened his face in anger.
+"Where were you last night when the billionaire Johnathan Swift disappeared?" the detective asked. MacMuffin could hear the accusatory tone underlying his question. MacMuffin scowled at the accusation.
 
 "You can answer that question," MacMuffin's lawyer said.
 
 "Where was I last night? Don't you government folks know where am I just by getting a warrant from the phone company? Huh?" MacMuffin answered with a question.
 
-"You didn't really answered the question," the detective objected.
+"You didn't really answer the question," the detective objected.
 
 "I know you been watching my house using your undercover cars, thus you know that you haven't see me left the house until this morning."
 
@@ -18,7 +18,7 @@ Mack MacMuffin stared at the detective. It was all he could do in this accursed 
 
 The detective did a poker face, revealing no emotion. "We are just trying to find answers to the kidnapping," the police officer offered his own non-answer.
 
-Another ten minutes has passed in which the detective asked further questions about MacMuffin's alibi, but nothing beyond the standard questions.
+Another thirty minutes passed in which the detective asked further questions about MacMuffin's alibi, but nothing beyond the standard questions.
 
 ***
 
@@ -32,9 +32,9 @@ That only begot more questions from the crowd. The dwarf ignored it all and move
 
 ***
 
-MacMuffin didn't like spending his considerable fortune, but paranoia won out. Almost everyone from the Uplift Society Club disappeared, leaving him alone. The dwarf still didn't know why they targeted the membership of his club, but he thought that the kidnappers might be crazy. To that end, he hired security guards by the dozens just today, and stationed them everywhere on his family's tacky McMansion property. There were cops on his property as well, but the wealthy software executive didn't trust them one bit.
+MacMuffin didn't like spending his considerable fortune, but paranoia won out. Almost everyone from the Uplift Society Club disappeared, leaving him alone. The dwarf still didn't know why they targeted the membership of his club, but he thought that the kidnappers might be crazy. To that end, he hired security guards by the dozens just today, and stationed them everywhere on his family's tacky McMansion property. There were also cops on his property as well, but the wealthy software executive didn't trust the cops one bit, since they're the one who accused him of kidnapping.
 
-Outside of his property, there's dozen of police cars and news vans who served as free extra eyes as well.
+Outside of his property, there's dozen of police cars and news vans who served as free extra eyes as well. That should make it difficult to infiltrate his mansion.
 
 "I will pay a two thousand dollar bonus to everyone who stayed awake and did their job throughout the night, understand?" MacMuffin said. "Any sleeping on the job, I will not pay, period."
 
@@ -42,7 +42,7 @@ Outside of his property, there's dozen of police cars and news vans who served a
 
 "Good. Now I must sleep."
 
-MacMuffin, feeling safe and secure jumped into bed without a thought. Before long, he snored away in a deep sleep.
+MacMuffin, feeling safe and secure, jumped into bed without a thought. Before long, he snored away in a deep sleep.
 
 With no recording and no eyewitness, the body of Mack MacMuffin wrinkled away, disappearing into thin air.
 
@@ -56,7 +56,7 @@ Then beautiful and random melody filled his ears.
 
 "Niiiiiiiiiccee."
 
-Then, all the sudden, he was seeing a granite ceiling, while his body laid on stone cold marble.
+Then, all the sudden, the ceiling was all granite, while his body laid on stone cold marble floor.
 
 The dwarf human blinked several time, until it dawn on him that he might be awake. The wealthy dwarf stood up.
 
@@ -92,13 +92,13 @@ As soon he escorted a terrified dwarf to the outside. The human dwarf realized s
 
 There were more of shorties like him in the street! It wasn't the modern street that he expected.
 
-"IT STANK!" MacMuffin complained. There were manure in the street. A crew of dwarves swept away the manure into the running water.
+"IT STANK!" MacMuffin complained. There were manure in the street. A crew of dwarves swept away the manure into the running wastewater below.
 
 ***
 
-It had been three years since he was whisked away to the Fortress of MegaGear. He cleaned up shit in the street, introduced a railway system, fended off several invasions from goblins, all the while heroically keeping the fortress intact through some very hard time. Now they were starting to mass produce steel.
+It had been three years since he was whisked away to the Fortress of MegaGear. He cleaned up and prohibited shit in the street, introduced a railway system, fended off several invasions from goblins, all the while heroically keeping the fortress intact through some very hard time. Now they were starting to mass produce steel.
 
-MacGuffin done so much of a good job that they made him king.
+MacGuffin done so much of a good job that they elevated him into a monarch.
 
 Except, there was one thing on his mind that he wished for. He wanted to go home.
 
