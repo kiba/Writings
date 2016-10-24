@@ -2,23 +2,23 @@
 
 It was a hot sunny day on this world, and completely free of Grimm. Specialist Glen Black thought the latter was amazing, even with the heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
 
-Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with only basic melee weapons, made of a very strong alloy that was superior to the local's steels. In addition to the prohibition, nobody was wearing hardsuits. It was part of the mission parameter. They're supposed to blend in, not attract everyone's attention everywhere they go.
+Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with only basic melee weapons, made of a very strong steel alloy superior to the locals'. Part of the mission parameter is to blend in, not attract everyone's attention everywhere they go.
 
 Black never guessed that Mechatron would possess an alien device for traveling to other worlds. Then again, he would have never guessed that a kingdom would pop out of nowhere four years ago either, or that somebody managed to create a portal to another world using reality-bending dusts. It seemed that a lot of things has changed in the last four years.
 
-"I saw something," the Atlasian specialist said. "Walls. Tall for the local civilization here, very quaint." He was supposed to not take anything for granted, but he saw what passed for warfare around here. Maybe the mountainhome are supposed to be a different level altogether, but he hoped it will be poor.
+"I saw something," the Atlasian specialist said. "Walls. Tall for the local civilization here, very quaint." He was supposed to not take anything for granted, but he saw what passed for warfare around here. Maybe the mountainhome are supposed to be a different level altogether, but he hoped they will be no match against him.
 
 "So that's the mountainhome," the leader of the expedition said. "Supposed to be home to short little humans who may or may not require alcohol in order to live."
 
-Black shrugged at the blondie. It was Major Blanc Sheppard who suggested the hairbrained mission. The RSC found a green lush world with no Grimm and no real threat. Yet, they're wasting time on missions like these. Who the fuck cared about the local politics? It was high time to demolish the area surrounding the stargate and start building a colony.
+Black shrugged at the blondie. It was Major Blanc Sheppard who suggested the harebrained mission. The RSC found a green lush world with no Grimm and no real threat. Yet, they're wasting time on missions like these. Who the fuck cared about the local politics? It was high time to demolish the area surrounding the stargate and start building a colony.
 
-"Black. You will be on your best behavior. You will say nothing and play it safe."
+"Black. You will be on your best behavior," his commander warned. "You will say nothing and play it safe."
 
 "Crystal clear, ma'am," Glenn Black acknowledged.
 
 ***
 
-The dwarves weren't about to let any shitting donkeys, horses, mules, or any other manure generating creatures into their mountainhome. "Unclean," they explained. "And we're tired of cleaning the shit inside the hallways of our home."
+The dwarves weren't about to let any shitting donkeys, horses, mules, or any other manure generating creatures into their mountainhome. "Unclean," they explained. "And we're tired of cleaning the shit inside the hallways of our home." Fair enough.
 
 Instead, the caravan paid a fee to have their goods transported to a warehouse by dwarven haulers, all on the famed dwarven honor.
 
@@ -32,7 +32,7 @@ The Atlasian specialist been through Mechatron's gate before, which were well gu
 
 "Didn't you see the grand open hall? I wonder how they did it, without modern digging technologies."
 
-"Did you see their defenses, woman? They can target or attack us from any direction they like, and several heavy doors that attackers would need to get through. The only other way are the possible winding pathways that they constructed. Defense in depth."
+"Did you see their defenses, woman? They can target or attack us from any direction they like, and several heavy doors that attackers would need to get through. The only other way are the winding pathways that they constructed. Defense in depth."
 
 "I guess that's impressive too..."
 
@@ -48,7 +48,7 @@ Then the laborer started to push the cart into the platform and beckoned the par
 
 ***
 
-The fortress seemed to be awfully a lot more sophisticated than the human kingdom that the group traveled through. It seemed that everything was organized systematically by a bureaucracy. There were no bribes, no room for bargaining, and standardized price for everything, even if there's the pervasive stink of alcohol.
+The fortress seemed to be awfully a lot more sophisticated than the human kingdom that the group traveled through. Everything was organized and there's no inefficiency. There were no bribes, no room for bargaining, and standardized price for everything, even if there's the pervasive stink of alcohol.
 
 Black was ready to believe that those dwarves are really a nation of alcoholics. Qrow would have loved this place.
 
@@ -56,7 +56,7 @@ A dwarf in a certain uniform showed up at the unloading dock, with a clipboard i
 
 ***
 
-The party rented a stall somewhere between the prime location and the poorest for several days' gold, and unloaded the glassware onto the shelves. Previous expedition had already sold glassware to customers to the before this particular expedition to the fortress. It's plenty of practice to screw up and learn what not to do. By now, two members on the team were already experienced in the art of lying the hell out to the locals about the origin of Mechatron glassware. They'll be the one hawking those goods to the dwarves here.
+The party rented a stall somewhere between the prime location and the poorest for several days' gold, and unloaded the glassware onto the shelves. Previous expedition had already sold glassware to customers to the locals before this missiont to the fortress. It's plenty of practice to screw up and learn what not to do. By now, two members on the team were already experienced in the art of lying the hell out to the locals about the origin of Remnan glassware. They'll be the one hawking those goods to the dwarves here.
 
 Everyone gathered together once the unloading was finished.
 
@@ -76,6 +76,6 @@ Minori, the lady with the green hair, seemed content to roam around the city, no
 
 "I am more interested in getting out of this place alive."
 
-A dwarf suddenly streaked naked down the street, foaming at the mouth, followed by several grim and sad looking dwarves dressed in armor chasing after the naked dwarf.
+A dwarf suddenly streaked naked down the street, foaming at the mouth, chased by armored dwarves.
 
-"What the fuck!?" Black exclaimed.
+"What in the world?!" Black exclaimed.
