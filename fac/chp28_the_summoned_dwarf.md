@@ -18,7 +18,7 @@ Mack MacMuffin stared at the detective. It was all he could do in this accursed 
 
 The detective did a poker face, revealing no emotion. "We are just trying to find answers to the kidnapping," the police officer offered his own non-answer.
 
-Another thirty minutes passed in which the detective asked further questions about MacMuffin's alibi, but nothing beyond the standard questions.
+Another thirty minutes passed in which the detective asked further questions about MacMuffin's alibi, but nothing he couldn't answer.
 
 ***
 
@@ -26,7 +26,7 @@ Another thirty minutes passed in which the detective asked further questions abo
 
 "What do you think of the missing Five?" "Who do you think is out to get you?" "Your club is about uplifting..."
 
-"SHUT UP!" the dwarf human bellowed. The crowd suddenly became silent. "To answer your god damn question. I don't know who did this, or why and how other fellow club members disappeared. Obviously, I am distressed and scared, yadaydadayda. Good luck and good day to you. Bye."
+"SHUT UP!" the dwarf human bellowed. The crowd suddenly became silent. "To answer your question, I don't know who did this, or why and how other fellow club members disappeared. Obviously, I am distressed and scared, yadaydadayda. Good luck and good day to you. Bye."
 
 That only begot more questions from the crowd. The dwarf ignored it all and moved through the crowd before reaching his car.
 
@@ -44,7 +44,7 @@ Outside of his property, there's dozen of police cars and news vans who served a
 
 MacMuffin, feeling safe and secure, jumped into bed without a thought. Before long, he snored away in a deep sleep.
 
-With no recording and no eyewitness, the body of Mack MacMuffin wrinkled away, disappearing into thin air.
+With no recording and no eyewitness inside his bedroom, the body of Mack MacMuffin wrinkled away, disappearing into thin air.
 
 ***
 
@@ -92,7 +92,7 @@ As soon he escorted a terrified dwarf to the outside. The human dwarf realized s
 
 There were more of shorties like him in the street! It wasn't the modern street that he expected.
 
-"IT STANK!" MacMuffin complained. There were manure in the street. A crew of dwarves swept away the manure into the running wastewater below.
+"IT STANK!" MacMuffin complained. There were manure in the street, even if those manure were slowly swept away by a crew of dwarves.
 
 ***
 
@@ -110,7 +110,7 @@ The fortress grew from a population of only a hundred to that number in the span
 
 "My king...you must understand! We need you-"
 
-"Answer the god damn question!"
+"Answer the damn question!"
 
 "We're slowly getting there..."
 
