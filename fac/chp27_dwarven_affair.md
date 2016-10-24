@@ -1,6 +1,6 @@
 # Chapter Twenty-seven: Dwarven Affair
 
-It was a hot sunny day on this world, and completely free of Grimm. Specialist Glen Black thought the latter was amazing, even with the heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
+It was a hot sunny day on this world, and completely free of Grimm. Specialist Glen Black thought the latter was amazing, even with the unbearable heat. The hardsuit that he would normally wear spoiled him completely. It has a built-in air conditioning and cooling system, which not only keeps him comfortable at all time, but also enhance performance in battle.
 
 Behind him was the rest of the "caravan", with everyone dressed in primitive clothing and armed with only basic melee weapons, made of a very strong steel alloy superior to the locals'. Part of the mission parameter is to blend in, not attract everyone's attention everywhere they go.
 
@@ -48,7 +48,7 @@ Then the laborer started to push the cart into the platform and beckoned the par
 
 ***
 
-The fortress seemed to be awfully a lot more sophisticated than the human kingdom that the group traveled through. Everything was organized and there's no inefficiency. There were no bribes, no room for bargaining, and standardized price for everything, even if there's the pervasive stink of alcohol.
+The fortress seemed to be awfully a lot more sophisticated than the human kingdom that the group traveled through. The dwarves were courteous and efficient. There were no bribes, no room for bargaining, and standardized price for everything, even if there's the pervasive stink of alcohol.
 
 Black was ready to believe that those dwarves are really a nation of alcoholics. Qrow would have loved this place.
 
@@ -74,7 +74,7 @@ Minori, the lady with the green hair, seemed content to roam around the city, no
 
 "Aren't you at the least curious?"
 
-"I am more interested in getting out of this place alive."
+"I can be curious once we settle this world."
 
 A dwarf suddenly streaked naked down the street, foaming at the mouth, chased by armored dwarves.
 
