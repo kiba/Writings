@@ -16,7 +16,7 @@ Mack MacMuffin stared at the detective. It was all he could do in this accursed 
 
 "So I am a prime suspect now? Huh? You guys should be protecting me instead!"
 
-The detective did a poker face, revealing no emotion. "We are just trying to find answers to the kidnapping," the police officer offered his own non-answer.
+The loud shouting failed to unnerve the detective. Instead, he continued onward as if nothing happened. "We're just trying to get to the bottom of the whole thing," he said.
 
 Another thirty minutes passed in which the detective asked further questions about MacMuffin's alibi, but nothing he couldn't answer.
 
@@ -28,11 +28,13 @@ Another thirty minutes passed in which the detective asked further questions abo
 
 "SHUT UP!" the dwarf human bellowed. The crowd suddenly became silent. "To answer your question, I don't know who did this, or why and how other fellow club members disappeared. Obviously, I am distressed and scared, yadaydadayda. Good luck and good day to you. Bye."
 
-That only begot more questions from the crowd. The dwarf ignored it all and moved through the crowd before reaching his car.
+That only begot more questions from the crowd. The dwarf ignored it all and bulldozed his way through the crowd until he reached the car.
+
+He honked until the crowd scattered away from the car. Even then, it did not deter the reporters from chasing him all the way to MacMuffin's house.
 
 ***
 
-MacMuffin didn't like spending his considerable fortune, but paranoia won out. Almost everyone from the Uplift Society Club disappeared, leaving him alone. The dwarf still didn't know why they targeted the membership of his club, but he thought that the kidnappers might be crazy. To that end, he hired security guards by the dozens just today, and stationed them everywhere on his family's tacky McMansion property. There were also cops on his property as well, but the wealthy software executive didn't trust the cops one bit, since they're the one who accused him of kidnapping.
+MacMuffin didn't like spending his considerable fortune, but paranoia won out. Almost everyone from the Uplift Society Club disappeared, leaving him alone. The dwarf still didn't know why they targeted the membership of his club, but he thought that the kidnappers might be crazy. To that end, he hired security guards by the dozens just today, and stationed them everywhere on his family's tacky McMansion property. There were also cops on his property as well, but the wealthy software executive didn't trust the cops one bit, not after the afternoon's interview with the detective.
 
 Outside of his property, there's dozen of police cars and news vans who served as free extra eyes as well. That should make it difficult to infiltrate his mansion.
 
@@ -76,7 +78,7 @@ The wizard cosplayer stopped dancing. "Oh oh oh yes. We summoned you through a r
 
 The dwarf human hyperventilated as he started to look around for a escape route.
 
-"I assured you. We did not kidnap you," the wizard said. "The ritual circle summoned a suitable hero for our fortress, especially in time of need."
+"I assured you. We did not kidnap you," the wizard said. "The ritual circle summoned a suitable hero for our fortress, especially in time of dire need."
 
 MacMuffin snatched a battle axe off a fallen dwarf. "Oh yeah? Did the ritual ask if the 'hero' wanted to be summoned." The human waved the battle axe, terrifying his kidnappers, causing them to step back! "Well?"
 
@@ -93,6 +95,8 @@ As soon he escorted a terrified dwarf to the outside. The human dwarf realized s
 There were more of shorties like him in the street! It wasn't the modern street that he expected.
 
 "IT STANK!" MacMuffin complained. There were manure in the street, even if those manure were slowly swept away by a crew of dwarves.
+
+It finally dawn on MacMuffin on what happened to him and his fellow clubmembers.
 
 ***
 
