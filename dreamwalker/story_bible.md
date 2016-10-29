@@ -44,3 +44,4 @@ The ability to craft or create an object instantly by gathering the necessary ma
 
 * Origin world - Vanilla Earth that our to-be intrepid dreamwalker protagonist is from.
 * Diaspora of the Stars - A space opera setting.
+* Chakrapunk - A world with kung-fu ninjas, basically.
