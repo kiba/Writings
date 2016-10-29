@@ -21,7 +21,7 @@ These are the factors that a dreamwalker may change:
 * **Pressure** - A substance summoned will default to the ambient pressure of the surrounding environment. Each level impart an additional control of one pascal over the pressure of the summoned substance.
 * **Velocity** - The default velocity of a substance is exactly zero meter per second relative to you. With increasing level, the ability to impart a different velocity go up by one meter per second.
 
-Any points spent on materialization will increase the cost of an additional level by one. Unless stated otherwise, all factors in the skill materialization start at level one. 
+Any points spent on materialization will increase the cost of an additional level by one. Unless stated otherwise, all factors in the skill materialization start at level one.
 
 ## Projection
 
@@ -29,10 +29,12 @@ The ability to project another instance of oneself or summon an object on anothe
 
 These are the factors that a dreamwalker may change:
 
-* Distance - A person may summon a person only if it's on another instance's body. With increasing level, the radius can be increased by one meter.
-* Time - A projected person can only last one minute, but with each new level, it can be increased by one minute.
-* Item count - Initially limited to one item at a time between uses of projection, but with each new level, the amount of items increase.
-* Cooldown - One can only use projection every twenty-four hour period, but with new level, that can be decrease by one hour until it reaches one hour between projection. Then with each new level, it can only be decrease by one minute.
+* **Distance** - A person may summon a person only if it's on another instance's body. With increasing level, the radius can be increased by one meter.
+* **Time** - A projected person can only last one minute, but with each new level, it can be increased by one minute.
+* **Item count** - Initially limited to one item at a time between uses of projection, but with each new level, the amount of items increase.
+* **Cooldown** - One can only use projection every twenty-four hour period, but with each new level, that can be decrease by one hour until it reaches one hour between projection. Then with each new level, it can only be decrease by one minute.
+
+Any points spent on materialization will increase the cost of an additional level by one. Unless stated otherwise, all factors in the skill projection start at level one.
 
 ## Crafting
 
