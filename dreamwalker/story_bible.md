@@ -39,3 +39,8 @@ Any points spent on materialization will increase the cost of an additional leve
 ## Crafting
 
 The ability to craft or create an object instantly by gathering the necessary materials and tools and conducting a rituals. To acquire a new recipe, a person must first acquire the necessary skill and create the target object at least once.
+
+## Settings
+
+* Origin world - Vanilla Earth that our to-be intrepid dreamwalker protagonist is from.
+* Diaspora of the Stars - A space opera setting.
