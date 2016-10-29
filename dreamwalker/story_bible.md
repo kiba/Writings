@@ -6,15 +6,15 @@ This 'connection' is typically a two-way download and upload of long-term memori
 
 Death of an instance will result in intense negative biofeedback, such as phantom sharp pains, rapid heartbeats, nightmare, and so on. It also result in a permanent connection loss, since the person who resided in that universe is considered 'dead'. Finally, it will result in the creation of a new instance ex nihilo in a new universe.
 
-The three basic magic of a dreamwalker, accessible to all 'dream' world are crafting, materalization, and projection.
+The three basic magic of a dreamwalker, accessible to all 'dream' world are crafting, materalization, and projection. Those magics are not flashy or all that powerful at first, but  with practice and training, it is possible to improve the versatility and power of dreamwalker magic.
 
 ## Materalization
 
-**Materialization** is ability to create matter ex nihilo starting with a small amount of elemental substance at ambient condition. For beginners, they can only create a milliliter of hydrogen within a twenty-four hours period. With practice and training, it is possible to improve the versatility of this skill.
+**Materialization** is ability to create matter ex nihilo starting with a small amount of elemental substance at ambient condition.
 
 These are the factors that a dreamwalker may change:
 
-* Cooldown - time required before a person can create matters again. Level one is twenty-four hours period. It decreases by one hour with a point increase.
+* **Cooldown** - time required before a person can create matters again. Level one is twenty-four hours period. It decreases by one hour with a point increase.
 * Volume - The amount of substance one could materialize. Level one is one milliliter. Every point increase is a milliliter increase.
 * Temperature - the ability to decrease or increase the temperature of an object. Level one is one degree celsius. Every increase brings a one celsius increase in control.
 * Composition - The ability to create a given elemental substance. Level one is hydrogen. Further increase gives an additional element to summon based on its atomic number.
