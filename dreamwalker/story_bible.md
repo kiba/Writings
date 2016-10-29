@@ -14,12 +14,14 @@ The three basic magic of a dreamwalker, accessible to all 'dream' world are craf
 
 These are the factors that a dreamwalker may change:
 
-* **Cooldown** - Materialization can only be used once every twenty-four hour or longer. An increase in level will bring the cooldown period by one hour until level twenty-three. Then, every subsequent increase in level will decrease the cooldown period by one minute.
+* **Cooldown** -At level one materialization can only be used once every twenty-four hour or longer. An increase in level will bring the cooldown period by one hour until level twenty-three. Then, every subsequent increase in level will decrease the cooldown period by one minute.
 * **Volume** - The amount of substance one could materialize, with level one at one milliliter. Each subsequent increase in level brings an additional milliliter.
 * **Temperature** - The substance summoned will be at the ambient temperature. Each additional level gives the dreamwalker to change the substance's temperature by one degree celsius.
 * **Elemental substance** - All dreamwalkers start at level one with hydrogen. An increase in level gives a new substance to summon based on its atomic number.
 * **Pressure** - A substance summoned will default to the ambient pressure of the surrounding environment. Each level impart an additional control of one pascal over the pressure of the summoned substance.
 * **Velocity** - The default velocity of a substance is exactly zero meter per second relative to you. With increasing level, the ability to impart a different velocity go up by one meter per second.
+
+Any points spent on materialization will increase the cost of an additional level by one. Unless stated otherwise, all factors in the skill materialization start at level one. 
 
 ## Projection
 
@@ -29,7 +31,7 @@ These are the factors that a dreamwalker may change:
 
 * Distance - A person may summon a person only if it's on another instance's body. With increasing level, the radius can be increased by one meter.
 * Time - A projected person can only last one minute, but with each new level, it can be increased by one minute.
-* Item count - Limited to one item at a time between uses of projection, but with each new level, the amount of items increase.
+* Item count - Initially limited to one item at a time between uses of projection, but with each new level, the amount of items increase.
 * Cooldown - One can only use projection every twenty-four hour period, but with new level, that can be decrease by one hour until it reaches one hour between projection. Then with each new level, it can only be decrease by one minute.
 
 ## Crafting
