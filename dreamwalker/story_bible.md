@@ -14,12 +14,12 @@ The three basic magic of a dreamwalker, accessible to all 'dream' world are craf
 
 These are the factors that a dreamwalker may change:
 
-* **Cooldown** - time required before a person can create matters again. Level one is twenty-four hours period. It decreases by one hour with a point increase.
-* Volume - The amount of substance one could materialize. Level one is one milliliter. Every point increase is a milliliter increase.
-* Temperature - the ability to decrease or increase the temperature of an object. Level one is one degree celsius. Every increase brings a one celsius increase in control.
-* Composition - The ability to create a given elemental substance. Level one is hydrogen. Further increase gives an additional element to summon based on its atomic number.
-* Pressure - Default of a substance summoned is equal to the ambient pressure of the environment. With each increasing level, the amount of pressure can be changed go up by one pascal.
-* Velocity - The default velocity of a substance is exactly zero meter per second relative to you. With increasing level, the ability to impart a different velocity go up by one meter per second.
+* **Cooldown** - Materialization can only be used once every twenty-four hour or longer. An increase in level will bring the cooldown period by one hour until level twenty-three. Then, every subsequent increase in level will decrease the cooldown period by one minute.
+* **Volume** - The amount of substance one could materialize, with level one at one milliliter. Each subsequent increase in level brings an additional milliliter.
+* **Temperature** - The substance summoned will be at the ambient temperature. Each additional level gives the dreamwalker to change the substance's temperature by one degree celsius.
+* **Elemental substance** - All dreamwalkers start at level one with hydrogen. An increase in level gives a new substance to summon based on its atomic number.
+* **Pressure** - A substance summoned will default to the ambient pressure of the surrounding environment. Each level impart an additional control of one pascal over the pressure of the summoned substance.
+* **Velocity** - The default velocity of a substance is exactly zero meter per second relative to you. With increasing level, the ability to impart a different velocity go up by one meter per second.
 
 ## Projection
 
