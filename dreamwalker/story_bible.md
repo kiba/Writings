@@ -6,9 +6,9 @@ This 'connection' is typically a two-way download and upload of long-term memori
 
 Death of an instance will result in intense negative biofeedback, such as phantom sharp pains, rapid heartbeats, nightmare, and so on. It also result in a permanent connection loss, since the person who resided in that universe is considered 'dead'. Finally, it will result in the creation of a new instance ex nihilo in a new universe.
 
-The three basic magic of a dreamwalker, accessible to all 'dream' world are crafting, materalization, and projection. Those magics are not flashy or all that powerful at first, but  with practice and training, it is possible to improve the versatility and power of dreamwalker magic.
+The three basic magic of a dreamwalker, accessible to all 'dream' world are crafting, materialization, and projection. Those magics are not flashy or all that powerful at first, but  with practice and training, it is possible to improve the versatility and power of dreamwalker magic.
 
-## Materalization
+## Materialization
 
 **Materialization** is ability to create matter ex nihilo starting with a small amount of elemental substance at ambient condition.
 
@@ -43,5 +43,12 @@ The ability to craft or create an object instantly by gathering the necessary ma
 ## Settings
 
 * Origin world - Vanilla Earth that our to-be intrepid dreamwalker protagonist is from.
-* Diaspora of the Stars - A space opera setting.
+* Diaspora of the Stars - A space opera taking place in the Andromeda galaxy. Our protagonist appeared in this setting thirty years before the fall and twenty years after the first contact war.
+
+The First Contact War begins in year three of an ongoing multi-way war between the various human polity and rebelling synthetic intelligence. Unknown aliens did not parlay or hail, and began exterminating any belligerents in the AI war, forcing a coalition and a forceful unification of mankind and their creation for their survival.
+
+After twelve long years of bitter fighting, the aliens agreed to an armstice.
+
+The fall entails the destruction of the civilization of the Nine World of Man and their synthetic intelligence ally by the same alien who initiated the first contact war.
+
 * Chakrapunk - A world with kung-fu ninjas, basically.
