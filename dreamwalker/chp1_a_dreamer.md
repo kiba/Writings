@@ -1,68 +1,60 @@
 # Chapter One: A Dreamer
-[todo]Make it scarier somehow? Not sure how to improve this section.[/todo]
-I ran through the forest as hard as I could.
 
-My lung really hurt, screaming for air.
 
-I didn't even know why I am running.
+There were glowing eyes of all shapes and sizes, and they're glowing.
 
-Just that I am scared.
+I stepped back, my feet feeling the ground beneath me.
 
-A series of growl echoed throughout the forest.
+*Where am I?*
 
-It was the horde.
+No name came to mind. All I knew I was in a forest with a full moon hanging over my head.
 
-I hit my foot against a tree, sending pain upward. I didn't stop. A slip there, a stabbing pain in my left arm, and a tiny rock in my shoe.
+Then there's this loud growling and rumbling. It shook my body.
 
-It didn't matter. I just kept running.
+I fell down. My hands tried to find a footing in the dark, only for the left hand to hit something sharp.
 
-I didn't want to get caught by the horde.
+"Ouch!"
 
-Who is the horde?
+The glowing eyes moved closer and closer.
 
-I didn't know that either. The overwhelming fear propelled me regardless.
+*I should run.*
 
-Thud. Thud. Crack. They're getting closer.
-
-I slipped and fell, striking a rock with my forehead.
-
-Ouch!
-
-More cracking and snapping. They're getting closer.
-
-I desperately struggled to find my footing.
-
-A loud roar vibrated through my body. I turned around.
-
-A giant claw swiped at me.
+I turned around, only to see a giant claw coming at me.
 
 ***
-[todo]Make mom less cold[/todo]
 I screamed as I woke up. Moments later, the door swung open to my mother.
 
-"What's wrong, honey?" she asked as she switched on the light. I could see the blond form of my mother in her pajamas.
+"What's wrong?!" she asked. The light switched on. I saw my mother in her transformer pajamas. "My god, you're sweating!"
 
-I noticed that I was visibly in sweating. Then I checked my own body for signs of injuries. I was relieved that nothing happened to me.
+I jumped out of my bed and ran past my mother to the toilet to vomit my dinner.
 
-"A very vivid nightmare," I said. "I ran through a forest trying to get away from some monsters."
+"Are you alright, Andy?" she questioned.
 
-"Night terror."
+"Night terror," I said.
 
-"Yeah. I think that's it. I don't even know what I am running from."
+"Wha-what sort of nightmare would cause you to sweat so much and throw up?"
 
-"Child, I don't know what to do. If this keeps up, we're going to get a doctor's appointment. See the sleep doctor, maybe?"
+"I don't know, mama."
+
+She threw her arms around me and pulled me into a hug.
+
+"Are you going to be alright?" I nodded. "Do you need water?" I nodded. "Come with me. Did you puke because you're scared?" I nodded vigorously. "Alright then, do you want to tell me what happened?"
+
+I told her that my nightmare was about.
+
+"Are you sure that's your nightmare?" Her eyes arched a bit.
+
+"I don't know, mom. It doesn't make sense. My nightmare usually has something to do with not passing high school, or girls, or people laughing at me.." I then gulped down a glass of water.
+
+"Slow down, kiddo. Anyway, I am thinking of staying in your bedroom for the night."
+
+I shook my head sideway.
+
+"No? You're not going to die of embarrassment. I am more worried about you getting another round of night terror and throwing up. At least if you're thrashing about, I can wake you up before you wake up the entire neighborhood."
 
 "But-"
 
-"No but! I am not going to have a son with constant night terror in my house, especially when he disturbs my sleep. Do you want to die in a traffic accident?"
-
-"No, mom."
-
-"Go to sleep."
-
-"Yes ma'am."
-
-Thinking that it's over, I fell asleep again.
+"But or if or please. That's final!"
 
 ***
 
