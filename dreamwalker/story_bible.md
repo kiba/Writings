@@ -14,12 +14,12 @@ The three basic magic of a dreamwalker, accessible to all 'dream' world are craf
 
 These are the factors that a dreamwalker may change:
 
-* **Cooldown** -At level one materialization can only be used once every twenty-four hour or longer. An increase in level will bring the cooldown period by one hour until level twenty-three. Then, every subsequent increase in level will decrease the cooldown period by one minute.
-* **Volume** - The amount of substance one could materialize, with level one at one milliliter. Each subsequent increase in level brings an additional milliliter.
-* **Temperature** - The substance summoned will be at the ambient temperature. Each additional level gives the dreamwalker to change the substance's temperature by one degree celsius.
-* **Elemental substance** - All dreamwalkers start at level one with hydrogen. An increase in level gives a new substance to summon based on its atomic number.
-* **Pressure** - A substance summoned will default to the ambient pressure of the surrounding environment. Each level impart an additional control of one pascal over the pressure of the summoned substance.
-* **Velocity** - The default velocity of a substance is exactly zero meter per second relative to you. With increasing level, the ability to impart a different velocity go up by one meter per second.
+* **Cooldown** -At level one, materialization can only be used once every twenty-four hour or longer. An increment in level will bring the cooldown period by one hour until level twenty-three. Then, every subsequent increase in level will decrease the cooldown period by one minute.
+* **Volume** - The amount of substance one could materialize. At level one, that is one milliliter. An increment in level brings an additional milliliter available for creation.
+* **Temperature** - Substance assumed ambient temperature unless otherwise changed by user, with level one at one degree celsius from starting temperature. An increment in level brings an additional one degree celsius for control.
+* **Elemental substance** - All dreamwalkers start at level one with hydrogen. An increment in level gives a new substance to create based on its atomic number.
+* **Pressure** - A substance summoned will default to the ambient pressure of the surrounding environment. An increment in level imparts additional control of one pascal of pressure.
+* **Velocity** - The default velocity of a substance is exactly zero meter per second relative to you. With an increment in level, the ability to impart a different velocity go up by one meter per second.
 
 Any points spent on materialization will increase the cost of an additional level by one. Unless stated otherwise, all factors in the skill materialization start at level one.
 
@@ -42,21 +42,26 @@ The ability to craft or create an object instantly by gathering the necessary ma
 
 ## Characters
 
-* Andy Watson - Fifteen year old high schooler who lives with his mom.
-* Kara Watson - Andy's mother.
-* Doctor Berry Spring - The doctor in charge of Watson's care when he apparitiate into Spring's universe.
+* **Andy Watson** - Fifteen year old high schooler who lives with his mom.
+* **Kara Watson** - Andy's mother.
+* **Doctor Berry Spring** - The doctor in charge of Watson's care when he apparitiate into the DS universe.
+* **Greg Holmes** - The doctor who forced Jerry Spring out and make Andy Watson his patient.
+* **Johnathan Swift** - An eccentric Silicon Valley billionaire with a penchant for funding wildly speculative projects.
+* **Mack MacMuffin** - A dwarf human who's the head of the Uplift Society Club.
 
 ## Settings
 
-* Origin world - Vanilla Earth that our to-be intrepid dreamwalker protagonist is from.
-* Diaspora of the Stars - A space opera taking place in the Andromeda galaxy. Our protagonist appeared in this setting thirty years before the fall and twenty years after the first contact war. Current population is fifty-six billions.
+* **Origin world** - Vanilla Earth that our to-be intrepid dreamwalker protagonist is from.
+* **Diaspora of the Stars** - **DS** for short. A space opera taking place in the Andromeda galaxy. Our protagonist appeared in this setting thirty years before the fall and twenty years after the first contact war. Current population is fifty-six billions.
 
 Civilization and culture is somewhat influenced by Norse mythology. The Nine Worlds of Man consist of Niflheim, Muspelheim, Asgard, Midgard, Jotunheim, Vanaheim, Alfheim, Svartalfheim, and Helheim.
 
+Anti-aging drugs and therapies are available for humans, extending their lifespan up to a projected two hundred year. Research is ongoing to increase and improve interventions.
+
 The First Contact War begins in year three of an ongoing multi-way war between the various human polity and rebelling synthetic intelligence. Unknown aliens did not parlay or hail, and began exterminating any belligerents in the AI war, forcing a coalition and a forceful unification of mankind and their creation for their survival.
 
-After twelve long years of bitter fighting, the aliens agreed to an armstice.
+After twelve long years of bitter fighting, the aliens agreed to an armistice after a brutal orbital bombardment of one of the alien's colony.
 
-The fall entails the destruction of the civilization of the Nine World of Man by the same alien who initiated the first contact war. After that, the aliens began a campaign of total xenocide by hunting the survivors.
+The fall entails the destruction of the civilization of the Nine World of Man by the same alien who initiated the first contact war. After that, the aliens began a campaign of total xenocide by hunting the survivors. The story of the DS would begin there, with one of the escaping refugee fleet.
 
-* Chakrapunk - A world with kung-fu ninjas, basically.
+* **Chakrapunk** - Post-apocalyptic world filled with kung-fu ninja. Chakra beasts roam the wilderness, and traveling is dangerous.
