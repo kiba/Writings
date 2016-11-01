@@ -54,7 +54,7 @@ I shook my head sideway.
 
 "But-"
 
-"But or if or please. That's final!"
+"No but or if or please. That's final!"
 
 ***
 
