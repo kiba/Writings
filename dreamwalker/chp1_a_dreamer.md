@@ -1,23 +1,23 @@
 # Chapter One: A Dreamer
 
 
-There were glowing eyes of all shapes and sizes, and they're glowing.
+There were glowing eyes of all shapes and sizes, and they're glowing. My heart beat rapidly as my hair stood on its end.
 
-I stepped back, my feet feeling the ground beneath me.
+I stepped back, my bare feet exposed.
 
-*Where am I?*
+Where am I?
 
 No name came to mind. All I knew I was in a forest with a full moon hanging over my head.
 
 Then there's this loud growling and rumbling. It shook my body.
 
-I fell down. My hands tried to find a footing in the dark, only for the left hand to hit something sharp.
+I fell down. My arms tried to find a footing in the dark, only for the left hand to hit something sharp.
 
 "Ouch!"
 
 The glowing eyes moved closer and closer.
 
-*I should run.*
+I should run.
 
 I turned around, only to see a giant claw coming at me.
 
@@ -58,11 +58,11 @@ I shook my head sideway.
 
 ***
 
-"We're losing him!"
+"What is the nature of your emergency?"
 
 ...
 
-"Based on the genetic profile, the only identification method we have left, we have an unknown John Doe," a female voice said.
+"Based on the genetic profile, the only identification method we have left, this person is a complete unknown," a female voice said.
 
 "He's not in the system at all?" another voice puzzled.
 
@@ -73,17 +73,16 @@ I shook my head sideway.
 "There are antibodies that we cannot identify..."
 
 ...
-[todo]make the interaction more professional[/todo]
 
-I finally woke up to a strong white light. Beeping noise pervades my ears, as did the various transparent plastic tubes that seemed to poke everywhere into my body.
+I woke up, exposed to a strong light source. The white light made my eyes hurt. Beeping noise pervaded my ears and transparent plastic tube snaked around my body.
 
-Why was am I in a hospital?
+Why am I in a hospital?
 
-I tried to wriggle. It seemed that I can't move, and moreover, I am encased in a full body cast. I tried to recall what happened.
+I tried to wriggle. No matter what I did, I can't move, and moreover, I am encased in a full body cast. I tried to recall what happened.
 
-Oh yeah. I had a horrible nightmare last night. Then I woke up. Mom and I talked, and she threatened doctor appointment if this kept up. Then I went to bed.
+Oh yeah. I had a night terror last night. It was so scary that I threw up in the restroom, and mom was so concerned that she decided to sleep in my room.
 
-But how did I get there? The only thing that came to mind was the possibility of a car accident. Mom said something about that last night, but I don't remember getting into a car and crashing. What day is it? Where's my mom?
+But how did I get there? What day is it? Where's my mom?
 
 I did the only thing I think I could. I pivoted with my eyes, trying to get a look good of my surrounding.
 
@@ -95,11 +94,11 @@ Someone in a hazmat suit walked in.
 
 "Where the hell am I? What day it is?"
 
-"John Doe, please calm down," the hazmat man said as he pull the bed into a recline position. "You were in a serious vehicular accident. The confusion is normal, but we will help you get through that, but you'll have to cooperate with us. Do you understand?"
+"Please calm down. We're trying to help you," the hazmat man said. He pulled the bed into recline position. "You were in a serious vehicular accident. The confusion is normal, but we will help you get through that. Do you understand?"
 
 "Um, yes."
 
-The hazmat suit shined a light into my eyes.
+The hazmat suit shined lights into my eyes.
 
 "What is your name?"
 
@@ -111,27 +110,27 @@ The hazmat suit shined a light into my eyes.
 
 "Excuse me?"
 
-"Two thousand sixteen yanno anno?"
+"Two thousand sixteen AD?"
 
-"You're a little bit off. Less then two thousand years after landing. And I don't know what 'yanno anno' is." The doctor then put an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in which I successfully answered. "Good, it looked like your hearing is not compromised. Now, the year is nineteen thousand twenty five after landing."
+"You're a little bit off. It's nineteen ninety-eight, less than two thousand years after landing. It's AL, not AD.." The doctor then put an earbud into one of my ear. "Say yes if you hear a beep." There were a series of beep in both ears, which I answered to the best of my capability. "Good, it looked like your hearing is not compromised."
 
-"Excuse me? Landing what?"
+A thought came to my attention. "Excuse me? What is After Landing."
 
-"You don't remember your history? The important thing is that you are aware and lucid, I guess. More questions. Two plus two is?"
+"You don't remember your history? The important thing is that you are aware and lucid, I guess. What is the last thing you remember when you woke up?"
 
-"Four."
+"I had a nightmare which woke up my mother."
 
-"Name the thirteen worlds of man."
+"Not the moments leading up to the crash?"
 
-"What? Since when the solar system has thirteen worlds?"
+"Excuse me?"
 
-The doctor sighed. "Are you a cultist?"
+"Never mind. Tell me the name of your mother."
 
-"What? No! I don't even believe in God!" The occasional beeps nearby became full long beep. "Gah-"
+"Her name's Kara."
 
-"we got a cardiac arrest!" the doctor yelled one last time.
+My vision blurred suddenly. Loud beeping noise went off.
 
-My vision turned all blurry, and then to black. I blanked out.
+"CODE BLUE!" the doctor shouted as I faded away from consciousness.
 
 ***
 
@@ -141,11 +140,11 @@ I woke up, jumping out of my bed.
 
 "You're being awfully loud up there!" mom yelled.
 
-I turned around, taking a quick look at everything in rapid succession. Then I grabbed my android, and flip it on. It was a brand new day, January fourteen, two thousand sixteen. I hadn't gone back in the past, did I?
+I turned around, taking a quick look at everything in rapid succession. Then I grabbed my android, and flip it on. It was a brand new day, January fourteen, two thousand sixteen. I hadn't gone back in the past, did I? They said it was nineteen ninety-eight.
 
-No. It was really vivid. I still remembered the nightmare, and then talking to my mom, and then ending up in a weird hospital with doctors that ask weird questions. The frightening thing was that it all weirdly made sense. Dreams aren't supposed to make sense.
+No. It was really vivid. I still remembered the nightmare, and then talking to my mom, and then ending up in a weird hospital with doctors that wants weird answers. The frightening thing was that it all weirdly made sense. Dreams aren't supposed to make sense, right?
 
-"Breakfast ready!" my mom hollered.
+"Breakfast ready!" mom hollered.
 
 "I'm coming!" I reflexively yelled back.
 
@@ -159,4 +158,4 @@ Still, there's something I must communicate before sitting down to eat breakfast
 
 "Yes?"
 
-"My dreams...felt so real?"
+"I dreamt very vividly last night about ending up in a hospital."
