@@ -40,14 +40,22 @@ Any points spent on materialization will increase the cost of an additional leve
 
 The ability to craft or create an object instantly by gathering the necessary materials and tools and conducting a rituals. To acquire a new recipe, a person must first acquire the necessary skill and create the target object at least once.
 
+
+## Plot
+
+The prince, Hano Nobuyoki is in the driver seat. His main concern is the security of his family and kingdom, from both internal and external threats. Andy Watson helps him with his memories and knowledge.
+
+
+
 ## Characters
 
-* **Andy Watson** - Fifteen year old high schooler who lives with his mom.
-* **Kara Watson** - Andy's mother.
-* **Johnathan Swift** - An eccentric Silicon Valley billionaire with a penchant for funding wildly speculative projects.
+* **Andy Watson/Yuu Katsurou** - Fifteen year old high schooler who lives with his mom. Alternately, he is also a prince of a nation.
+* **Kara Watson/Ren Katsurou** - Andy's Earth mother.
+* **Hiroki Nakamoto** - The prince's math tutor.
+* **Johnathan Swift** - An eccentric Silicon Valley billionaire with a penchant for funding wildly speculative projects. A major board member of the USC.
 * **Mack MacMuffin** - A dwarf human who's the head of the Uplift Society Club.
 
 ## Settings
 
 * **Origin world** - Vanilla Earth that our to-be intrepid dreamwalker protagonist is from.
-* **Chakrapunk** - Post-apocalyptic world filled with kung-fu ninja. Chakra beasts roam the wilderness, and traveling is dangerous.
+* **Chakrapunk** - Post-apocalyptic world filled with kung-fu ninja.
