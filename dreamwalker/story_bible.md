@@ -45,6 +45,12 @@ The ability to craft or create an object instantly by gathering the necessary ma
 
 The prince, Hano Nobuyoki is in the driver seat. His main concern is the security of his family and kingdom, from both internal and external threats. Andy Watson helps him with his memories and knowledge.
 
+## History
+
+Elementia, a once great empire that spans the continent.
+
+* The Long Winter - caused by a powerful eruption on the other side of the world, caused many years with long winters.
+* Warring state period
 
 
 ## Characters
