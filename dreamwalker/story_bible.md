@@ -49,11 +49,11 @@ The ability to craft or create an object instantly by gathering the necessary ma
 The prince, Yuu Katsurou is in the driver seat. His main concern is the security of his family and kingdom, from both internal and external threats. Andy Watson helps him with his memories and knowledge, and using the resources around him.
 
 * Daimyo Hachiro Katsurou - engaged in multiple sexual relation with women who are not his wife. Say to have fathered illegitimate children.
-* Ninja squad - a squad of female kunoichi-in-training and their sensei who tutors the prince in assets of combat and warfare.
+* The Kage - Head of the country's military and responsible for all ninjas. She sent a squad of female kunoichi-in-training and their sensei who tutors the prince in aspects of combat and warfare, but also to wrap Yuu around his finger.
 
 ## History
 
-A once great empire spans the continent. It is an advandced technological civilization ruled by a monarch until the coming of The Long Winter.
+A once great empire spans the continent. It is an advanced technological civilization ruled by a monarch until the coming of The Long Winter.
 
 Even today, there are ruins and buildings that can be explored.
 
