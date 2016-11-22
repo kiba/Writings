@@ -1,7 +1,7 @@
 
 
 ## World
-* The Kurisutaru Kingdom - land that the Katsurou family rules. Its major resources are precious minerals and gemstones, hotsprings, and lush agricultural land steming from volcanic activities. It also has access to the coast.
+* The Kurisutaru Kingdom - land that the Katsurou family rules. Its major resources are precious minerals and gemstones, hotsprings, and lush agricultural land stemming from rich soils created by volcanic activities. It also has access to the ocean through its coasts, and it is connected to the rest of the nations through the Green river. Luckily, for defense, it is also protected by a mountain range that virtually surrounded the entire nation's territorial claim. It is a very small nation, about only two thousand six hundred squared kilometer, one-eighth of our world's Israel.
 * The Emerald Kingdom - rival kingdom that conquered territory formerly belonging to the Land of Kurisutaru. It is known for its largely red-colored forests.
 * The Northern Powers - Three powerful nations that lie in the north.
 * The Southern Powers - Three powerful nations that lie in the south.
