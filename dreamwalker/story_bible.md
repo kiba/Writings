@@ -12,12 +12,13 @@ The prince, Yuu Katsurou is in the driver seat. His main concern is the security
 
 Arc Ideas:
 
-* Father's death: a crisis emerged when his father was found dead in the chamber of a noblewoman.
+* Father's death: The king, Yuu's father, was found dead in the chamber of a beautiful noblewoman.
+* The Uplift Society Club - Andy Watson joins a club that teaches people how to uplift.
 * Sudden succession: His brother died under mysterious circumstance. Yuu suspected that the Kage arranged his death.
-* Building Ships: Yuu build ships. 
+* Building Ships: Yuu build ships.
 * Annexation and Marriage: Yuu did not want to marry the queen of Emerald and unify the Land of Kurisutaru with Emerald.
 * Begging for allies - Yuu seeks additional allies to help in the war.
-* Ending: The Kingdom of Kurisutaru handed the Northern powers a resounding defeat.
+* Ending: The Kingdom of Kurisutaru achieved victory in the war against the Northern Powers, marking the Land of Kurisutaru as not only a rising power, but the preeminent kingdom in the world.
 
 ## History
 
