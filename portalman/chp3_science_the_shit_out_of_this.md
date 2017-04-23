@@ -1,4 +1,4 @@
-[center][b][url=https://forums.sufficientvelocity.com/posts/7348358/]Science The Shit Out of This[/url][/b][/center]
+[center][b][url=https://forums.sufficientvelocity.com/posts/7348358/]Chapter Three: Science The Shit Out of This[/url][/b][/center]
 
 After the experimentation with unknown cornstalks, all he could think was, "ah".
 
@@ -16,7 +16,7 @@ Predictably, his phone rang afterward.
 
 "Hello, this is-"
 
-"I know what you're calling for. It's all legitimate purchases by me. Nobody took my credit card," he uttered the words as quickly as he could. "Sorry. But I need to buy something really fast."
+"I know what you're calling for. It's all legitimate purchases by me. Nobody took my credit card," he uttered the words as quickly as he could. "Sorry. But I need to buy a lot of things really fast."
 
 "We still need to verify you."
 
@@ -30,7 +30,7 @@ He grumbled as the cashier scanned extra cages along with the birds and the mice
 
 -o-
 
-The problem of buying online is that you have to wait a few business days for goods to arrive. In hindsight, he should hadn't done that. He could have bought everything from the local big box retailer. In the meantime, he returned to his former bedroom with experimental objects for testing.
+The problem of buying online is that you have to wait a few business days for goods to arrive. In hindsight, he should hadn't done that. He could have bought everything from the local big box retailer instead, but he got really impatient and ended up in this suboptimal situation. In the meantime, he returned to his former bedroom with experimental objects for testing.
 
 There was a tiny edge that he could perceive, and he wanted to know if it was sharp.
 
